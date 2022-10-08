@@ -1,0 +1,23 @@
++++
+author = "Mia Love"
+title = "Mia Love Quotes"
+quotes_len = "17"
+description = "the best 17 Mia Love Quotes"
++++
+- The government is not your salvation. The government is not your road to prosperity. Hard work, education will take you far beyond what any government program can ever promise.
+- Barack Obama's class warfare will not work on this Republican nominee. Not in Utah.
+- The Democrats have come right out and said it: the power of the central government shall have no limits at all.
+- According to liberals, I'm not supposed to exist. I know that I am going to be a target for the Left. I have something to say to them: 'Game On.'
+- My parents immigrated to the United States with $10 in their pocket and a belief that the America they had heard about really did exist as the land of opportunity.
+- I understand people, and I think that my life and my history and what I represent can relate to a lot of the women, the independents, the moderate voters.
+- The influence I would hope to have is to create an environment where we're not singling Americans out - that we are creating opportunities for all Americans. Not saying, 'I'm going to funnel money into your city so that you're completely dependent on government.'
+- I will tell them that you can work hard, you can improve your life and the lives of your children in one day when you deliver your youngest child to the university, you will look her in the eye and say, 'You will give back.'
+- President Obama's version of America is a divided one - pitting us against each other based on our income level, gender, and social status. His policies have failed! We are not better off than we were 4 years ago, and no rhetoric, bumper sticker, or campaign ad can change that.
+- The America I know is great - not because government made it great but because ordinary citizens like me, like my father and like you are given the opportunity every day to do extraordinary things.
+- Growing up, I had a front row seat to seeing two people work really hard. My dad scrubbed toilets at a private Catholic school for a while, and that was to help me get through school.
+- What are the Democrats, the party of Jim Matheson, telling them? The message of the Democrats is that the Amercian dream is over. 'The government is all you have. Give up your dreams, and the government will save you, the government will heal you, the government will be your hope and change.' We know here in Utah, none of that is true.
+- Regardless of the difficulties we may face individually, in our families, in our communities and in our nation, the old adage is still true - you can make excuses or you can make progress, but you cannot make both! The America I know doesn't make excuses.
+- This is the America we know because we built it.
+- So the America I came to know growing up was filled with all the excitement and possibilities found in living the American dream.
+- Difficult things aren't easy, but they're worth it.
+- I believe this country is in real trouble, and it's up to us, to fix it before its too late.

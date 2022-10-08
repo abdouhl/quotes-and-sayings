@@ -1,0 +1,67 @@
++++
+author = "Kelsey Grammer"
+title = "Kelsey Grammer Quotes"
+quotes_len = "61"
+description = "the best 61 Kelsey Grammer Quotes"
++++
+- I had a kind of romantic notion about being a Hollywood Errol Flynn type. Honestly, I did not get into a lot of bar brawls - but I was always willing to. About the only thing missing from my story is that I haven't had a full knock-down fight in the middle of the Polo Lounge.
+- The greatest sin is judgment without knowledge.
+- Frasier will always hold a special place in my heart. He's a great character I Ioved playing, and he's still a wonderful part of my life. But he was a lot of work!
+- I hope they find some way to come up with a new story that involves Beast in my timeline.
+- There's almost nothing better than a baguette and a pound of salami.
+- I don't really want to go into it, because whenever I say anything about my past now, it becomes a pissing match... but I realised that I had acquiesced, in my 40s, to an idea of 'You know what, maybe this thing that you wanted in your life, maybe it just wasn't important.'
+- I got fired when I was a dishwasher at Denny's. That set me back a little bit. You don't realize how important dishwashers are until you do the job.
+- I'm an actor and I've created a lasting and memorable character named Frasier, who is not me, but who most people think is. So when I have a chance to play something that's different, I embrace it because it's fun; also in this case, he's a memorable character.
+- I miss her in my bones. I was her big brother. I was supposed to protect her - I could not... It very nearly destroyed me.
+- I became an actor, and because I had success as an actor, I became famous. I was acting for quite a while before I got famous; television made me famous. I guess that it's television that is responsible for everybody's desire to be famous.
+- I like audiences and performing and, you know... applause!
+- I've said nice things about the people I was with before, but that's what you do.
+- I had a kind of romantic notion about being a Hollywood Errol Flynn type.
+- As a Christian, we always fail because we can't become Christ. But I can try to at least emulate the best qualities, even if I may fall short.
+- In camp when I was eight - a bunch of kids threw me outside naked. I got 'em back!
+- Kayte is breast-feeding, and we do not have a nanny or a trusted baby-sitter at this time, so Faith goes everywhere with us.
+- 'Macbeth' is a show I'm going to do again someday.
+- I have always been a risk taker.
+- There was one thing I loved a little bit more than surfing - and that was acting.
+- You have to know you are in a comedy. You have to know that you are actually allowing the audience to participate on some level. When you go dark and mean it, then you don't let them in.
+- That's the trick in this business: if you want longevity, just keep people guessing a little bit.
+- Actors are observers of human life, of human behavior.
+- I thought 'Back To You' was a good show. The writers' strike really kind of put an end to that, though, honestly. There were a couple of factors involved, but to start a show and then to have it disappear and not come back for that long... it's just bad form.
+- All of the great music ever written is based upon the Mass. I mean, it's pretty extraordinary stuff, and I think it's done the world some good. And if you take a look at some of the mosques in the world, it calls you to worship the kind of beauty that's in there.
+- Apologizes are pointless, regrets come too late. What matters is you can move, on you can grow.
+- I cry a lot. I find great solace in it.
+- The tone of political assessment has changed. And honestly, the battle for the hearts and minds of the American people has taken on a bit more of a violent and narrow approach.
+- It takes a very strange person to enjoy fame, with all the by-products that come with it. It's not necessarily a thrill.
+- I can't say it was challenging for me to shake the image of Frasier. I've been fortunate to have had a very interesting career since the series ended. I think the turning point for me was the show, 'Boss.'
+- It takes me a while to figure things out. I usually have to repeat a lesson or two - maybe three times!
+- Different things made 'Cheers' and 'Frasier' special. Both of them, though, were honest. It was the old Shakespeare thing: Hold the mirror up to life.
+- I know a lot of people who've lost their siblings and blame themselves.
+- There are so many people that would be lined up to get their cut that even trying to finance a reboot of 'Frasier' would be nightmarish.
+- I don't tend to warm too well to people that tell me how I'm supposed to think. So, my life in Hollywood - I'm afraid I was destined to be a Republican.
+- The idea of self-reliance is important to me, and that is echoed, in my way of thinking, by a conservative approach to politics.
+- Fame obviously has become a premium in everybody's life. Everybody thinks they deserve it, everybody thinks they want it and most people really don't enjoy it once they get it.
+- Life is supposed to get tough.
+- I want to speak seventeen languages. When you think like that, you'll be consumed by failure. I'm haunted daily by what I don't know.
+- My favorite snack is caviar.
+- No day-to-day mishaps or indignities can really compromise your sense of self after you've survived a deep tragedy.
+- 'Frasier' works because we stay focused on the idea that - how he continues to grow. It is not that you are really - the mission is not to try to keep him fresh; the idea is if you naturally put a character in a situation that demands growth of him, then he will remain fresh.
+- I think it's important to approach a house in a way that's reflective of the original environment. Maybe I'm a sentimentalist, but I think that certain geographies call out for certain architecture. I like residences that reflect their place.
+- I think it's your duty to overcome what you inherit in life.
+- For every story you hear that's tragic, there's another that's equally tragic or more so. I think you come to look at it as part of life.
+- I think of houses as having their own personality.
+- I've got this great home life I want to keep living, and I don't want to neglect it.
+- I'm a real geek and fan when it comes to 'Transformers.' I remember being at my first rehearsal for this film, and I looked over and saw the tractor trailer. I was thinking to myself, 'Oh, my. That's Optimus Prime.'
+- I'm a walk-on guy. When the director says, 'Action,' I'm on.
+- 'A Passage To India' by E. M. Forster - It opened my mind to a world I'd never known before.
+- Do I believe it's possible that some young person, young voting actor, or even older voting member for the Emmys, would sit there and go, 'Yeah, that's a great performance, but oooooh, I just hate everything he stands for?' I don't believe that's possible.
+- Prayer is when you talk to God. Meditation is when you're listening. Playing the piano allows you to do both at the same time.
+- Tolerance actually does exist on Broadway.
+- Gosh, I think faith is a wonderful thing. And I even think religion's a wonderful thing. I know a lot of people want to say, 'Religion's the only reason that man has had any trouble at all,' but you know what? World War I and World War II were not fought because of religious reasons.
+- Some of the greatest achievements ever have been achieved as a result of the Church. The Catholic Church. I'm not Catholic but yeah, the Church, for instance, you take a walk through the Vatican, and to your right is the double helix staircase built, I think, in 1138 or something.
+- I remember the defining moment when I first realised I was famous. I was in Africa staying in the little tent city there by the Masai Mara River. Two guys with spears looked at me and said, 'Frasier?'
+- As you wrestle with life... You're going to come out on the other end healed... I've fallen short sometimes, and I've risen pretty high a few times.
+- I'm someone who likes to try new things and take on new challenges. I love making movies, but TV is also great. I really enjoy doing both.
+- I love to sit down and have my drink in the afternoon. It's so lovely if there's no noise, no calamities, no children that have to be attended to.
+- I've never really allowed anyone else to tell me whether I'm good or not.
+- The first thing I did on television was a PBS thing where I played a priest. It was a Walt Whitman or Carl Sandburg story - I can't quite remember - but I was a turn-of-the-20th-century priest kind of guy. Never saw it; don't know if I was any good or not.
+- Iago is one of the most liked characters in Shakespeare's canon, and he's the most evil, most extraordinarily manipulative person in history. He says the worst, most politically incorrect things, even for the time the play is set in - and yet audiences adore that character.

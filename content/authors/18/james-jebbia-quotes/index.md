@@ -1,0 +1,49 @@
++++
+author = "James Jebbia"
+title = "James Jebbia Quotes"
+quotes_len = "43"
+description = "the best 43 James Jebbia Quotes"
++++
+- We were making clothes for that New York skater, who is a picky kind of person with good taste He may look scruffy to the outside world, but he's very sharp in the way he dresses.
+- Ever since September 11, I've been quite conservative in what we've ordered. We've never really been supply-demand anyway.
+- I'm influenced a lot by Chanel and by what Karl Lagerfeld has done.
+- We don't want people to think of Supreme as this hard-to-get, exclusive brand. We're a brand of the people.
+- I'm not a DJ, I'm not a scenester.
+- We're not trying to be everything for everybody. We're not trying to please the masses.
+- I still feel like we're a skate brand - it doesn't mean we can't present our stuff well. It doesn't mean that when you come in, everything has to be messy.
+- I don't really care what a designer has to say.
+- I know what Stone Island means to a lot of people in England and Europe.
+- People should know that the idea of legal fakes is a complete farce. It would be sad if a new generation thinks that's actually legit.
+- I came over here with $100; it was 1983 and I just ended up staying. New York at that time was very inexpensive and it was very easy to get a job. We lived on Staten Island and you could get cheap rent. It was a good time to be in New York.
+- It really doesn't matter what you've done in the past. We just don't rest on our laurels.
+- The skateboarders are snobbier - their look is much cleaner than ravers'.
+- A lot of people dismiss what we do. They think, 'Well, it's skate, so it's got to be, like, big baggy pants, cap backwards, big chain'... They don't understand that just because skating is the culture we're working in, it doesn't mean that we can't make good things.
+- We're going to make the product as good as we can, and we're going to try to put it out as reasonably priced as we can. We don't want a $600 shirt. We want a shirt which is around $100.
+- For us, the reason that our quality has been high, and I feel that our pricing has been reasonable, is because we don't wholesale.
+- My thing has always been that the clothing we make is kind of like music. There are always critics that don't understand that young people can be into Bob Dylan but also into the Wu-Tang Clan and Coltrane and Social Distortion.
+- I've never considered Supreme to be a fashion company, or myself a designer.
+- I much prefer if someone buys something from us that they plan on wearing it and not selling.
+- We just want to make really great-looking clothes that are well-made, fit well... that you can skate in.
+- A big shop in Manhattan would feel like we were betraying our roots. And we're not just going to open a bunch of stores.
+- We can have a leather jacket for $1,500, and if it's a good value, young people will understand that. But we also want to have the feeling that this won't be here in a month.
+- I'm not really concerned if people have this purist view of the New York Supreme thing. If they think opening our shop in Paris is going to harm our brand, then we can't really be that strong of a brand.
+- Fashion people are picky.
+- I don't wish for anybody to go out of business, but I think there are far too many things in New York that really shouldn't be here.
+- Any brand in the world wants to make desirable product. But we don't shove it down people's throats.
+- I think the reason that we do things the way we do is because we respect the customer. And I don't look at what we do as anything less than any other brand.
+- Oftentimes you'll see pictures from fashion shows and all the models outside the show in their real clothes are wearing brands like Supreme.
+- Supreme wasn't meant to be a brand... It's a good name, but it's a difficult one to trademark.
+- When we opened in Paris, we opened in the Marais. And when we opened in London, it was in Soho. These aren't, like, edgy places. These are places where people - and young people - hang out.
+- As a small brand, we do it all. We don't need an investor. We would never go anywhere or do anything where we feel it would compromise what we do.
+- I've seen a lot of brands fail because they went, 'Hey, look, we're from New York, and that's what we're all about.' But wherever you go, people are proud of where they are. So even though we're from New York, what we do is a mindset: it's got to work in Japan, in Los Angeles, London, wherever.
+- Ralph Lauren... Ralph is somebody that doesn't change with trends and has just kept it up and gotten better and better. That's what we aspire to, without getting boring.
+- My approach has always been to make things we were proud of.
+- Our business is as good as any high-end designer. We do good because we make good things.
+- I think a lot of brands reach a point where they say, 'We kind of have a formula - we've got it made.' Our formula is there's no formula.
+- Young people - and skaters - are very, very open-minded.
+- When I do read something about a designer it doesn't alter my thoughts about their collection when I see it in person.
+- I'd always loved what went on in skateboarding. I'd never skated myself, but I loved the graphics - I really liked the rebelliousness of it.
+- I feel a very important factor to our longevity is that, over the years, we have managed to create our own unique identity and aesthetics.
+- We just want to grow at a reasonable pace. Supreme hasn't changed for 20 years, and that feels very simple to me.
+- We were one of the first to say, 'Let's make a really nice shirt for skaters and let's make it really well.' We don't dumb down for somebody young; we are always trying to do something new.
+- I don't want to dumb anything down, and I think people appreciate that. Even if it's not their cup of tea.

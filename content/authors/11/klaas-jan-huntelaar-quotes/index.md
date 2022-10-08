@@ -1,0 +1,90 @@
++++
+author = "Klaas-Jan Huntelaar"
+title = "Klaas-Jan Huntelaar Quotes"
+quotes_len = "84"
+description = "the best 84 Klaas-Jan Huntelaar Quotes"
++++
+- Portugal away is a great match. Even when it's just a friendly.
+- I never felt that AC Milan had full confidence in me.
+- I'm someone who has grown physically at a later age, I was always one of the smallest players.
+- When the spaces are small, the crosses have to be good.
+- I don't really care about statistics from other attackers.
+- It is important that I get to play football.
+- Playing in a World Cup or in a European Championships is like a dream come true.
+- I don't regret my choice to sign for Milan.
+- It's no secret that Ajax is my club.
+- In Italy it is far more difficult than in Spain, where teams are not that attentive in defence.
+- When I was younger my idols were Marco van Basten and Ruud Gullit.
+- Real is a beautiful club.
+- That's how it works, it's football. They need you or they don't.
+- When you manage to achieve something, it gives you great pleasure.
+- I know that I can score at any club.
+- It would be great to play in England. The atmosphere in the stadiums is incredible.
+- When you are a part of the team, you also want to play.
+- Beating Madrid is not impossible.
+- I'm feeling at home at Schalke and that shows in the amount of goals I make.
+- There is always something happening at Schalke. I love the extremes. When we have bad runs, the atmosphere is really bad and you feel that. But you know, when you are on a good run again, it just tops everything - then it is just super!
+- League titles do not get claimed in November or December.
+- Every culture has its own way of showing passion.
+- I see Schalke as a very nice club, they often battle for the title.
+- I tried not to let all the criticism affect me, but it obviously does not go unnoticed.
+- My only objective is to train hard and hopefully get a chance to play, and take it with both hands.
+- I know the football and the training in Italy are different to Spain, but I'm ready.
+- The fans in Germany are very passionate and the Bundesliga is an excellent league.
+- It was very special to score goals for Real Madrid, especially in front of the home crowd at the Bernabeu.
+- From Real, I keep the affection of their supporters.
+- It is true that I did not want to leave Milan. That changed when Zlatan Ibrahimovic came from Barcelona. Then I realised that for me it is better to go.
+- I cannot really say how many goals I will score.
+- There's no such thing as too much confidence.
+- Playing in a big tournament is one of the biggest things for a professional footballer.
+- Ajax were a childhood love of mine.
+- Milan - the club and the city - is a very special place for us Dutch.
+- Madrid are a great club with some fantastic people and I used to play there.
+- I'm more than ready if the national team coach needs me.
+- All I can do is continue to do my utmost and hope for the best.
+- I would like to score many goals.
+- We always have respect for our opponents, but we will try to enforce our own game.
+- A striker always wants to score as many as possible, but what's more important is the team's success.
+- I was around 1.60 m or so, and then when I was 17 or 18 I started growing.
+- If the opponent can score 10 goals, then we need to change something quickly.
+- Every game is important.
+- My own performances at Schalke give me a lot of confidence.
+- People say a striker should be so hungry for goals, that he should eat the grass. Well, I did that - literally!
+- Being part of the Dutch national team is about unity and not about rivalry.
+- Messi can get around his opponent in just a square meter. Ronaldo needs more space.
+- Every match is different, which is why we should not dwell on the past.
+- Sometimes you get hit on the nose and nothing happens, then you get hit and something breaks.
+- I have to do my job and score goals.
+- Anything is possible in football and every match is different!
+- You go to tournaments to win and when you actually lift the prize, you feel tremendous pride and happiness.
+- I am not moving to some club in the desert, China or Turkey.
+- The important thing is always to be sharp and score when the opportunity arises.
+- If you play well at club level, then, you deserve an invitation for the national team. That's the way it goes.
+- If he stays, that would be a positive signal for Schalke. Raul is a super player and we need his high level of quality in order to be successful.
+- Messi is just great.
+- Schalke are a super club and I can achieve my goals here.
+- It's my objective to make sure Schalke are successful again. It's a huge challenge for me to help the club to the Bundesliga title again after years without winning any titles.
+- I will not leave Milan until I have demonstrated my worth.
+- If it was up to me, obviously I would start every game, but that decision is up to the coach.
+- I am a striker who needs to play plenty in order to get to my best form.
+- The Bernabeu is a fantastic stadium, probably the best stadium I have ever played.
+- I am happy at Schalke, this is my foreign team.
+- It is good to be a striker for the Dutch team; the way the Oranje play suits me best.
+- Every derby is special, especially the atmosphere on the stands.
+- If I play well for Holland, I am sure that I will have my chance for Milan.
+- I've always been a big Ajax fan. It is not very strange - my whole family supports Ajax.
+- We can't focus too much on the opponent, we have to focus on ourselves.
+- There are so many clubs that have shown an interest in my services.
+- I always want to score as quickly as possible, whether I am in the starting lineup or playing as a substitute.
+- I really like playing football, but I have four kids and there are so many fun things to do.
+- I was hoping for a little more faith in me following my performances after the 2010 World Cup.
+- I can play with everyone, also with Robin van Persie.
+- Cristiano Ronaldo is good, but Messi is 10 times better.
+- You can score against any 'keeper, no goalkeeper is a superman.
+- I hope that my team can show just how well we can play football and that we have the desire to win each individual match.
+- I already worked with Van Gaal before at the Under-20 team back in 2001. He hasn't changed much as a coach since. He really stands out.
+- Naturally, you always want to play, but it's about being successful - no matter how this is achieved.
+- What is important is that the team continues to win their games.
+- My goals are to be the Bundesliga top scorer and to win the Europa League.
+- I always want to win everything!
+- There is always a chance to score the equaliser with a set piece.

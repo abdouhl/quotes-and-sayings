@@ -1,0 +1,14 @@
++++
+author = "Jwoww"
+title = "Jwoww Quotes"
+quotes_len = "8"
+description = "the best 8 Jwoww Quotes"
++++
+- I don't care how much it costs or who it's by as long as it fits me. I love shopping, but I go to the same stores I've always gone to: Guess, Bebe, Coach. I can't really skip out of that realm.
+- I started taekwondo at 5 or 6 years old and did a bunch of kick-boxing later, too. Eventually I became a black belt and coached as well. I did some basketball and softball growing up, but most of my activity was martial arts.
+- I'm very into working out, but I'm one of those where I'm good for, like, a month, and then I fall off, and then I'm good for a month... like everyone!
+- I graduated from college with a 3.92 GPA with a degree in computer programming and a BFA in fine arts and animation. My first job was painting a mural in the Grimaldi's in Queens.
+- I eat junk food, cheesecake, cheese, pizza - but just lower amounts of it.
+- I don't follow trends. I set my own and I go for the extreme.
+- I'm an only child. Mostly raised by my father outside of Saratoga, doing martial arts and snowmobiling. I wore sweaters, jeans and sneakers. I was more interested in four-wheeling in the Catskills than doing my hair and makeup at 7 A.M. before school.
+- I used to sit on the couch, and I could go through a pound of Brie cheese and a movie. I was like, 'That's enough,' because it feels like a bowling ball in your stomach.

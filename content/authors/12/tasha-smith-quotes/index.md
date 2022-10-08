@@ -1,0 +1,44 @@
++++
+author = "Tasha Smith"
+title = "Tasha Smith Quotes"
+quotes_len = "38"
+description = "the best 38 Tasha Smith Quotes"
++++
+- Everyone has something that they desperately need that makes them feel good, that they don't want anything to get in the way of. Whether it's a man's golf game, whether it's a woman's cooking. I have a friend who has to clean. She's addicted to cleaning.
+- There was a time when I just felt like a superwoman. I was like, 'I got Jesus! I ain't afraid!' But, the truth is, I want to do things right, and sometimes I am afraid that I'm not good enough or that I'm not going to handle something right.
+- Anytime there's a God, there has to be a devil. And anytime there's good, there has to be evil. And the evil sometimes is the best!
+- What we try to do in TSAW, which is Tasha Smith Actors Workshop, is to help the actor get to the core of who they really are and how they really feel. So, we may have them do a dump, where you just basically express everything that you feel that you have not been able to express, whether it's good, bad, or ugly.
+- I use honey to condition my hair and eggs for protein. Also, mayonnaise and olive oil are great options for keeping it moisturized.
+- My sisters are amazing. My sister is my business partner, my twin. She's an amazing producer, writer. You know, we're just grinding and trying to make my mother proud as well as God.
+- My husband taught me so much about being a father. No matter what any of our children do, my husband will always believe in them, love them and accept them.
+- When I speak of family, I immediately think of a support system who can give you a reality check when you need it: a mirror reflection of myself. I believe that we are a result of our family - the people who encourage us and tell us the truth about who we are which helps us to grow through their advice and wisdom.
+- I felt bad to have to get divorced. I wasn't proud of that.
+- Angela Bassett is a friend of mine and someone who I truly admire tremendously in terms of her work and her choices.
+- I enjoy encouraging and inspiring people to pursue their purpose in the arts. To help cultivate and develop their instrument.
+- We in this entertainment industry try to act like we're so super powerful. we're not being honest, because we're human, and in our humanity there's a little fear.
+- I have never felt anchored when it comes to fashion. I've always had to depend on a stylist helping me to figure it out.
+- Now that we have a true leader who stands for family and has a loving relationship with his wife, maybe black men and women will follow their example. We have a lot of faith and trust in President Obama because his integrity thus far has shown us a new level of manhood, fatherhood and husbandhood.
+- There is a restaurant in L.A. called Crustacean, which is very famous for its garlic crab. Well, I can make garlic crab better than Crustacean. My sauce is so good you'll want to dip your bread in it, put it on your egg omelet, in your cereal, and in everything else.
+- President Obama's election has taught us to stop being paralyzed by excuses and given us a floodgate of hope. I'm more daring and going after things that I once thought were not possible.
+- Acting changed my life. I say God and then acting. Because becoming an actor, I've gained a new respect for humanity. And I believe that it's also helped me to grow as a person. It's been one of the biggest blessings and expressions that I could have ever been gifted with.
+- I have been doing so much. Speaking engagements... producing... developing a half-hour sitcom... working on a movie... leading acting workshops all over the world... and hosting 'My Black Is Beautiful,' an empowerment TV show I'm doing on BET for women.
+- There was definitely a time where I did not believe in the Lord. I needed to understand the love of God.
+- I actually think I need 'Homeland' rehab. And that Ray Donovan. I think I've watched every episode more than once. Liev Schreiber, Jeffrey Wright and Jon Voight have made me fall in love with acting again.
+- I'm as addicted to 'Power' as I am 'Empire.' I'm just grateful. We get a chance to have two phenomenal shows that we can enjoy. So when 'Empire' is over, 'Power' starts. When 'Power' is over, 'Empire' starts.
+- God keeps me grounded as well as my husband, Keith Douglas, who is such an inspiration to me. He's an author, speaker, and businessman. He's just a great husband and blessing.
+- I would rather do surrogacy before adopting. If I can't do it, I'd rather find someone who would do it for me.
+- Mr. Idris Elba is amazing! He happens to be British, but what's funny about him is that when he's speaking in his American dialect, he looks like he's a brother from the 'hood. But as soon as he brings out that English thing, I'm like, 'Woo! You look like you're from London. Oh my God!' It's like everything on him changes. He's so cool!
+- No person is perfect. I haven't, thank God, had any infidelity issues. But you can't say what you won't ever do. And you can't say that you won't have forgiveness in your heart if there were to be an issue like that.
+- I was familiar with 'Addicted' for a long time, even prior to the movie, way before it got the greenlight. And when it finally got the greenlight, I was very happy to be a part of it.
+- In real life, I swear by Edge Control by Olive Oil. My hairstylist hates it, but it's everything to me. And I mean everything! It's like a perm in a little jar of gel.
+- One day, my twin sister Sidra and I pranked Tyler Perry on the set of 'For Better or Worse.' I made her dress up as me and do a scene as if she were my character Angela. Tyler says, 'Action!' and my sister starts acting. It was horrible.
+- I'm a lot more introspective than one would believe.
+- I do what I believe the Lord did, and that is walk in love with all mankind, which I don't see a lot of Christians doing. Christians can be so judgmental that it can turn off people who are considering converting. It makes me a little embarrassed, to tell you the truth, when I hear Christians criticizing others.
+- When think about the Frank Oceans of the world, it's not like we don't have gay men within the hip-hop community.
+- I love Catherine Maladrino, Angela Dean and Nicole Miller. Catherine Maladrino designs that beautiful, high-class red carpet stuff. Nicole Miller makes beautiful dresses you can wear every day. And when you just want to go and shut it down, you turn to Angela Dean.
+- I'm a black woman who loves hair. I enjoy changing my hair, having fun with it - just hair! I go from braids, to weaves, to wigs, to natural hair.
+- I think that it's the love of God that brings man into repentance. Once you embrace that love and have that fellowship with God, all those things that you shouldn't be doing will go away.
+- I don't think there are enough stories told about black men and their relationships and how they build and bond with one another.
+- I was a confused young girl with so much tragedy. Sometimes when you're going through stuff, the last person you're thinking exists is God. I mean, it was my confusion, the anger that was in my heart, all that drama. But thank God I know God now, okay?
+- I started off first doing a TV series called 'Boston Common.' That was my first big job, and then I went on to do another half hour comedy show, and that was with Tom Arnold, called 'The Tom Show.'
+- I'm addicted to 'Scandal.' Joe Morton is the devil, and I love him. I am addicted to 'Boardwalk Empire.' Jeffrey Wright is the devil, and I love him.

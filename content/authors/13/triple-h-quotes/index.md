@@ -1,0 +1,39 @@
++++
+author = "Triple H"
+title = "Triple H Quotes"
+quotes_len = "33"
+description = "the best 33 Triple H Quotes"
++++
+- It's hard to find trainers to train, coaches to coach. Just because someone was great in the business doesn't mean they can teach someone else how to be great in the business; and just because someone wasn't great in the business, doesn't mean they can't teach somebody. I used to be a firm believer in the other.
+- You can't dictate to a country or a religion about how they handle things, but having said that, WWE is at the forefront of a women's evolution in the world, and what you can't do is effect change anywhere by staying away from it.
+- Can you do inter-gender matches? Ronda Rousey and our match at Wrestlemania - sure, it can be done. Women don't need a man in their match to steal the show. They just need an equal platform and opportunity, and if the women have it, they will work just as hard, if not harder, than anybody else to steal that show.
+- 'WWE Redefined' has become my new catchphrase.
+- When I went to WCW, I was never supposed to go in there as Terra Ryzing.
+- 'Rocky' is a movie that just happens to be about boxing. It's really about characters and story lines and relationships and all those things, and the backdrop is boxing. You can go back and watch the final fight in 'Rocky' a thousand times. If you dig that movie, if you like the characters, you'll watch the whole movie over and over.
+- I hate to say the future is with NXT, because it's now: they're global stars which you're going to see, the Shayna Baszlers, and then you're going to see the forever, the next generation of superstars of the people competing and the finals of the Mae Young Classic, and to me, that represents everything from the evolvement of Trish Stratus and Lita.
+- Hardcore wrestling like CZW is just nonsense. There's no story there. You've got guys jumping off of houses onto barb wired tables, and that's it. They don't know how to work. CZW is trash.
+- It's the beauty of WWE. We use all our platforms to cross-promote each other and vice versa.
+- It never ceases to amaze me that you come to any place in the world and walk down the street, and people know who you are. There's nowhere you can go in the world without being recognised as a WWE superstar.
+- As far as the talent goes, when you see somebody who's really hungry and talented and has a bright future, you are willing to allow them to spread their wings and try things. And sometimes they are going to make mistakes, and you're going to have to reel them in and control them. And if it gets too bad, you have to really step in.
+- My goal is to make that must-see television so that you have to have the Network. My goal is to make 205 Live the place to see high-flying in a big way. If you're a fan of the U.K. style, then the Network is the place to go get that style.
+- Some of the guys that can teach you the best never really made it just because they couldn't execute it themselves, but they can tell everybody else the reasons why everybody else made it and show you how. It's just hard to find those people.
+- My last name is Levesque, but I don't speak French.
+- If we go in the Middle East, and we start to recruit there, and we see that all of a sudden there's this massive interest, there's massive depth of people that we feel have the ability to succeed, then we would go there first - or quicker.
+- I love steakhouses. When I'm in Chicago, I know there's a Gibsons that's open late. 13 Coins at Sea-Tac Airport in Washington is a gourmet restaurant I love.
+- From my point of view, I'd like to bring other meaningful events through WWE, whether that's NXT or the United Kingdom championships, taking international brands and putting them on in those markets.
+- I get meals when I can, or I have protein shakes.
+- I'm friends with Criss Angel. Criss has offered me a million times to go downstairs and see the setup. I don't want to see it. I just want to go, 'God, how did you do that?'
+- None of us are bigger than the WWE. It will always continue to go on, and I will always be a part of it.
+- WrestleMania is a week-long series of events, and the logistics of executing that week along with the week leading into it and the week after it are extraordinarily difficult in our own back yard.
+- Getting ready to wrestle is like getting ready for a car crash. Getting ready to work with Brock Lesnar is like knowing you're going to get hit by a bus and the bus is going to back over you. If I'm going to work 'WrestleMania,' 16 weeks out I have to start training like I'm Mayweather getting ready for a fight.
+- To me, it's what WWE is: the history, the legacy, all the women who come before this. From Mae Young onwards, their legacy lives forever.
+- When I'm on the road, restaurants are like gyms: I know where I want to be in each city.
+- Hollywood's great, but wrestling is my first love.
+- It's one thing to put out the opportunity, but it's another to take it and run with it. People say to me, 'Thank you for the opportunity,' and I always respond with, 'Thank you for taking it.' We need to be able to see where, how, these changes can grow. Rome wasn't built in a day, nor was WWE.
+- Mike Tyson was probably - positively or negatively - the most recognizable face on the planet: the 'baddest man on the planet.' And you had our new resident baddest man on the planet, Stone Cold Steve Austin, whom fans were just gravitating to in a way they'd never done before, walking out and flipping off Mike Tyson.
+- I had a fascination with the back side of the business, and the creative process always fascinated me. Vince gave me an opportunity in '98 to sit in the production meetings. He would talk creative with me, and we had this creative rapport.
+- Balancing trying to be an athlete trying to get ready for WrestleMania, training twice a day, to everything you do at the office to remembering that you have a wife and kids and everything else - it's challenging, but you just make it happen. In some ways, it's no different than anyone else's life.
+- Being on the road is no excuse for having a poor diet. I don't like fast food, but if I have to, I'll order three plain grilled chicken sandwiches and throw out the buns.
+- We can find athletes. The biggest challenge is personality. It's finding charisma. In most sports, they tell you to turn down the personality. Look like everyone else on the team. It's the team; it's not you. In this, it's the opposite. It's you, not the team. We want you to become the big star.
+- If you're going to set an ambition, set it high.
+- I can tell you there will be a performance centre in India. There will be a performance centre in the Middle East. There will, more than likely, be a performance centre in Latin America. We will be replicating this process around the globe, all over.

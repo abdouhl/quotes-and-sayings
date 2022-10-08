@@ -1,0 +1,26 @@
++++
+author = "Marco Zanini"
+title = "Marco Zanini Quotes"
+quotes_len = "20"
+description = "the best 20 Marco Zanini Quotes"
++++
+- When I was 10 or 11, I started to sketch, and my drawings happened to be like fashion drawings... I'm lucky to have had this dream to chase since I was very young.
+- I love the personality of Schiaparelli so much.
+- It's couture. Everything has to be done by hand. That is most important. That is the crucial element. Without it, that is not couture anymore.
+- I've never liked to conceptualize too much about fashion, like it was art or science, which it is not. But it's nice when there's a clear idea behind a collection.
+- The biggest and most interesting challenge is to bring Elsa Schiaparelli's legacy to the present and the future. She had an exceptional, incredible, and intelligent approach; she was ahead of her times.
+- Integrity is the distinctive Santoni trait. Their attention for the longevity of good product matches the widely-felt need for fashion that's less superficial and volatile.
+- Schiaparelli symbolizes the capacity to think and create in a different way.
+- A Schiaparelli woman is not about cliche.
+- A product that wants to stand out needs different treatment.
+- We are all human, and mistakes are just around the corner, but experience lets you try to avoid them.
+- Real luxury is a balance between quality and the affection you feel for an object that cannot be easily replicated.
+- As long as I have fashion memories, Schiaparelli has been there.
+- I'm always looking for signs.
+- Fashion means never to look too much backwards. It always needs to go forwards.
+- Schiaparelli, for me, is about eclecticism.
+- Luxury is not a $4,000 T-shirt - that's just an expensive item, the same as if a can of Coca-Cola cost $5,000.
+- In fashion, there's huge pressure to produce results in no time. But you cannot guarantee numbers, because fashion gravitates around desire.
+- When I think resort, I think prettiness.
+- Schiaparelli was almost like a pop artist. Even the first sweater had a naive visual impact. You immediately get it, and you love it or you hate it. There's nothing in between. But she had a proper upbringing, so she also understood about quality and luxury.
+- Especially as a teenager, you were so fond of Schiaparelli because she was slightly extreme, rebellious, and iconoclastic as well. That appeals to teenagers!

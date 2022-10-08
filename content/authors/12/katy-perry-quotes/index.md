@@ -1,0 +1,158 @@
++++
+author = "Katy Perry"
+title = "Katy Perry Quotes"
+quotes_len = "152"
+description = "the best 152 Katy Perry Quotes"
++++
+- If you're presenting yourself with confidence, you can pull off pretty much anything.
+- I just like having fun. And, you know, sometimes I just like to present myself in that fun energy.
+- I got a fantastic person to work me out and get me into really good shape.
+- I see everything through a spiritual lens.
+- I did a lot of thrift and vintage. I would mix those pieces into some of the more inexpensive items from Express, Gap, Old Navy, and Clothestime.
+- With songs, I've always pledged to be honest. I write my songs because I've lived them.
+- I always knew I wanted a great man of God, someone who was going to be an inspiration for people and also be a lovely husband and father.
+- I've lived such a great, fantastic life already, but there's still so much more.
+- I like to go out there looking like a strong woman, because I am strong. But I am also a woman who goes through all kinds of problems and highs and lows.
+- Honesty has always worked for me.
+- I don't have a Kate Moss body, but I'm very proud and happy with mine.
+- I'm okay if everything is honest and truthful and relatable. If it's fabricated and ill-motived, it's not good.
+- My dad would give me $10, which is a lot of money when you're 9, to sing at church, on tables at restaurants, at family functions, just about anywhere.
+- I'm kind of a more sunshiny person myself.
+- I think sometimes when children grow up, their parents grow up. Mine grew up with me. We coexist. I don't try to change them anymore, and I don't think they try to change me. We agree to disagree.
+- People don't want just vanilla. They want 31 flavors. I couldn't do what Rihanna does. I couldn't do what Gaga does. They can't do what I do.
+- When I was 13, I asked for a guitar. And that's how I really started explaining my point of view.
+- I'm a woman who likes to be courted - strongly.
+- You look at someone like Beyonce singing 'Single Ladies,' when we all know she's married. Some of it is just for entertainment.
+- You know you're living right when you wake up, brush your hair - and confetti falls out!
+- I just want to make it very clear that I come from very humble beginnings, and I worked for everything!
+- I think people appreciate a songwriter who shows different sides. The whole angst thing is cool, but if that's all you've got, it's just boring. Everything I write, whether it's happy or sad, has a sense of humor to it.
+- I've always been ambitious since I was nine years old and that was never going to change.
+- I love those documentaries where everyone is fabulous and always perfect.
+- When I first started out, I was really attracted to having my own sense of style because I started swing dancing, lindy hop, and jitterbug.
+- I feel really blessed because of where I come from.
+- I never live in the present. I'd do interviews and people will say, 'Isn't this great?' or 'Can you believe?' And I would react, like, 'No, I can't believe it because I'm not living in this moment.'
+- I don't care what people say about my relationship; I don't care what they say about my boobs. People are buying my songs; I have a sold-out tour. I'm getting incredible feedback from my music.
+- Sometimes I can be distracted by the glamour and the fabulousness.
+- I have always been the kid who's asked 'Why?' In my faith, you're just supposed to have faith. But I was always like 'why?'
+- I didn't have a childhood.
+- I think that parents grow up with an idea of what they want their kids to be like - and then their kids grow up to be people of themselves, of their own.
+- I'm not going to be everything to everyone.
+- I pray for humility, honestly, because it's very easy to be caught up in this world.
+- I still want to make a pop record. I want to make a more sonically current pop record. I maybe want to make people move a little bit more.
+- I live a rock-star kind of life where I don't go to bed until 4 A.M. I'm very nocturnal.
+- My singing is really important to me, but when children come along they'll be my main focus. I'd never put my career in front of my babies - it'd be a case of fitting jobs around them.
+- You have to spend a lot to make a lot. It's not like I'm sitting on top of a pile of money.
+- I'm a good girl because I really believe in love, integrity, and respect. I'm a bad girl because I like to tease.
+- I was a hop-around. I hung out with the rockabilly crew, the guys who were trying to be rappers, the funny kids.
+- I have multipersonality disorder - in a very good way, of course - when it comes to my fashion choices.
+- I just like having fun.
+- The records are black boxes for me. Like, if you want to know who I am, my views, my perspective, things I love, things I hate, my convictions, my anthems. I've never let people's opinions affect the way I write.
+- I think that you should definitely listen to what people say, because everyone says it: High school is not the real world.
+- I'm okay with having horrible lower teeth.
+- I was raised in a super-sheltered atmosphere where we didn't watch anything besides Trinity Broadcasting Network - which was called TBN - or the Fox News channel.
+- Honey, I am the chief of my train. If critics want to hop on board, fantastic. There's plenty of room. The KP train is fun.
+- I still believe in love, most definitely. I'm just going to let that take the lead.
+- Touring is always important to me. It's like a big IOU to my fans, because I know they are the reason I exist.
+- People talk about bullying, but you can be your own bully in some ways. You can be the person who is standing in the way of your success, and that was the case for me.
+- I don't want to be above my audience; I want to be one with my audience.
+- I feel like my secret magic trick that separates me from a lot of my peers is the bravery to be vulnerable and truthful and honest.
+- I wasn't going to great schools, because my parents didn't believe in public education. They wanted the education to be influenced by their religion, so I was going to these halfway education-slash-Christian schools that were like pop-up shop-style education.
+- If you are not happy with something, you should change it. So I went to a lot of therapy, and finally, I am able to speak up for myself: You are going to hear me roar!
+- My personality is up and down, sassy and cheeky.
+- I believe in a lot of astrology. I believe in aliens... I look up into the stars and I imagine: 'How self-important are we to think that we are the only life-form?'
+- I'm happy, I'm in a good place, I'm looking forward to my future.
+- I come from a very non-accepting family, but I'm very accepting.
+- I have a lot of ambition.
+- If people want a role model, they can have Miley Cyrus.
+- I think it's great to dress up and play on all the girly features.
+- My parents were strict, but it was the world I lived in. I had no idea there was a world outside.
+- Not to sound overly cheesy but I really appreciate the freedom we have in America - especially as a female.
+- I don't take anything for granted. There are 500 other girls right behind me. And I know that, because I was one of them.
+- I sacrifice in my love life and my social life, but those things will be there in three or four years. This is a really important time in my life. I can't just be the girl who sang 'I Kissed a Girl.' I have to leave a legacy.
+- For a modern woman it is important to be supported and that there is equality in every aspect, and that it's not two halves that make a whole - it's two wholes that make a whole.
+- Ever since I was younger I wanted to be on stage, singing my songs in a glittering costume. And that happened and is still happening. I have to remember that this is what I wished for and be grateful because there are 500 other girls right behind me that are ready to snatch it up.
+- I don't want to completely self-sabotage everything that I've got and alienate everyone. But I definitely want to take some chances as I always have.
+- Sometimes if you want to achieve something great, there will be curveballs. You just have to dodge them every once in a while.
+- I love hearing my song on the radio the first time, but when it comes on again, I change the station. I already have so much of the spotlight on me. I don't need any more.
+- People love the idea of a good girl gone bad, thinking that my parents were so strict and disowned me, but that actually wasn't the case. Even though they don't necessarily agree with some of the things I do, they love me as their daughter. That's always been their perspective.
+- I got this Jesus tattoo on my wrist when I was 18 because I know that it's always going to be a part of me. When I'm playing, it's staring right back at me, saying, 'Remember where you came from.'
+- I can't be the candy queen forever.
+- My mother is very emotional as well, but my dad is more of the guts of the family. He was the main preacher, so he kind of had this little Pentecostal flair, but they are born-again.
+- I'm every woman. It takes a village to make me who I am.
+- I never want to be just one thing - I want to be multidimensional.
+- I'm kind of a good girl - and I'm not. I'm a good girl because I really believe in love, integrity, and respect. I'm a bad girl because I like to tease. I know that I have sex appeal in my deck of cards. But I like to get people thinking. That's what the stories in my music do.
+- When I decide to become a mother I will just be that. That will be really important to me.
+- I'm okay with having bad dance moves.
+- Everyone related to me in my circle was from church: church friends, church school, church activities. All my friends weren't allowed to watch MTV or go to PG-13 movies or listen to the radio, so I didn't really know anything different. That's how I was raised.
+- I love what I do, and when I don't love what I do, I'll make a change.
+- My sister travels with me, and she's the person who keeps me in line, whether I like it or not. I trust her and also have a good, healthy fear of her.
+- I'm not defined by where I came from.
+- It was so draining. Going to parties to rub elbows with so-and-so and act like it's no big deal, when really all I was doing was hoping I'd have the success they had.
+- I'm a good girl because I really believe in love, integrity, and respect.
+- I don't feel like I'm very pop-star lame, but I'm definitely not hipster-cool.
+- Unfortunately, I think a lot of people are affected more by the idea of fame than the actual work ethic involved. A lot of them just want to be reality TV-type people who don't do anything.
+- I think sometimes when children grow up, their parents grow up. Mine grew up with me. We coexist. I don't try to change them anymore, and I don't think they try to change me.
+- Hollywood is so fake and people need to realize that people are just people, and you, too, don't need to be born into something or have money or have whatever product someone is hawking on you.
+- I never took part in the rules and hatred that sometimes go along with religion. But if my parents are happy with what they believe, then I'm happy to stay out of their way. We agree to disagree.
+- I unfortunately still crave chicken McNuggets and bacon, which is the meat candy of the world.
+- I'm on this extraordinary adventure, and if I have no one to talk to at the end of the night, I feel lonely.
+- I am so grateful for all the love and support I've had from people around the world.
+- I write my songs because I've lived them.
+- I came from a different mind-set growing up, and my mind has changed.
+- Fame is, I think, just a disgusting by-product of what I do.
+- I'm okay with having bad dance moves. I'm okay with having horrible lower teeth. That's what makes me me, and for some reason it's worked out all right.
+- I'm not defined by where I came from. I never took part in the rules and hatred that sometimes go along with religion. But if my parents are happy with what they believe, then I'm happy to stay out of their way. We agree to disagree.
+- I think you become more relatable when you're vulnerable.
+- I just feel like I have this gift that I've been given. It's like, 'Someone unwrap it! Here it is!' That drive can't be held down.
+- I really like to look like a history book. I can look 1940s, I can look 1970s hippie-chic, or sometimes I'll pull that '80s Brooklyn hip-hop kid with the door-knocker earrings.
+- People always ask me, 'What is it that you regret?' And I say, 'nothing, because I could not buy what I've learned.' And I apply those things to my life I learn. And hopefully, hopefully it helps me to be a better human in the future and make better choices.
+- My style icons were Gwen Stefani, when she was in No Doubt, and then Shirley Manson in Garbage.
+- My whole thing is to agree to disagree and to have respect because nothing can really be changed and you wouldn't want to ruin their happiness - even if that happiness is ignorance.
+- At my second record label, they told me and other female artists that some of us were going on the chopping block. I was 19... and it was devastating.
+- I don't need the Prince Charming to have my own happy ending.
+- I still want to be as approachable and relatable as possible - when I meet fans and they're crying, I'll say, 'Calm down, there's nothing to cry about.'
+- I get a lot of the ideas when I'm resting - either when I'm meditating or getting some kind of work done on my back, like physical therapy or acupuncture. That's where I get my best ideas, maybe because I'm balancing my body.
+- I have a second chance on life.
+- I'm either going to go completely mental, completely bankrupt, or have the best success of my life.
+- I'd go to the farmers' market in Santa Barbara, and I'd put out my guitar case, and I'd test out these little ditty songs that I would write, and I would get a couple of avocados, a bag of pistachios, and, like, fifteen bucks. That was a lot of money for me.
+- Find out what your gift is and nurture it.
+- There are times I go out and meet people and flirt, but it's not really appropriate to have anything serious.
+- I like a good boy, but sometimes you get bored.
+- My parents are very quirky, eccentric. They have their own world.
+- My parents are Republicans, and I'm not.
+- I can't just be the girl who sang 'I Kissed a Girl.' I have to leave a legacy.
+- I gave myself until I turned 25 to make it. And if it didn't happen, I thought I'd just try to find a nice husband.
+- I grew up in a life where the answer was always there, I guess. But now I'm out on my own and still looking for the answer. Nothing is solved for me.
+- I don't follow trends. I'm just not into what everyone else is wearing. I have my own look, which I call 'Lolita Meets Old Hollywood Glam.'
+- I wanted to be that quirky girl who writes funny songs that still have meaning.
+- The media tried to destroy my parents and has taken things completely out of context, but there's not a whole lot you can do in terms of fighting back. You have to hope that it passes, which it always does. But they have to be careful. They didn't necessarily sign up for this.
+- I'm going to let love lead the way, always. And I was born with this blind - blind ambition, and it's kind of gotten me here to this point. And I think that I'll stick to it.
+- If you like my music, great, and if you don't, whatever. I'm going to keep making it either way.
+- One thing I can't do, and I hope that there are other people out there that feel the same way, is climb a rope. Oh my gosh, it's so hard to climb rope! It's all about grip and arms.
+- There are a lot of things that are personally uncomfortable to show, especially me without makeup and completely bloated or crying. But I've realized that it's time for me to show my audience that you don't have to be perfect to achieve your dreams. Because nobody relates to being perfect.
+- My career is like an artichoke. People might think that the leaves are tasty and buttered up and delicious, and they don't even know that there's something magical hidden at the base of it. There's a whole other side of me that people didn't know existed.
+- I want to sell out arenas and sell millions of records.
+- I fall in love every time. And I don't really fall in love a lot, but when I do, I fall hard.
+- I grew up listening to gospel. That was the only thing that I had reference to because that was what my family was involved with.
+- I'd never devote a whole record to heartbreak.
+- I just have so much love for my record label.
+- I don't believe in a heaven or a hell or an old man sitting on a throne. I believe in a higher power bigger than me because that keeps me accountable.
+- I'm competitive with myself, and that goes hand in hand with how I present myself. I'm not only trying to put one foot in front of the other, I'm trying to put my best foot forward.
+- The first songs I wrote were catchy, but the subject matter was God.
+- I was never really attached to a clique, and I wanted to be in all the different groups; I was never a one-group kind of person. I think that's still part of my personality today.
+- I still have a spiritual base and a spiritual foundation.
+- People don't understand that I have a great relationship with my parents - like, how that can exist. There isn't any judgment. They don't necessarily agree with everything I do, but I don't necessarily agree with everything they do.
+- When I was younger, I used to be a part of the surfing-and-skateboarding community.
+- Even if you actually have the good intent to do something creative or special with your life, it's hard. I mean, look at the number of people who actually get the opportunity.
+- The press is just not your friend when it comes to a marriage. That's why we didn't sell the pictures of our wedding, and we got offered millions of dollars for them, millions.
+- I came from a lot of intolerance and prejudice, which aren't necessarily healthy to evolve as a human.
+- I'm really critical of my posture, it makes a big difference. And I try to suck my belly in. Everyone should do that whether you're on a red carpet or not. Even if you're just going out to dinner with your boyfriend you should try and suck it in.
+- I wanted it to be like Amy Grant, but it didn't pan out that way. My label actually went bankrupt, and I was left without a home.
+- I think we're all blessed with gifts and I was lucky I just found out what mine was early on and have planted that seed and tried to water it every day.
+- Oh, I will always be honest with my music. The records are black boxes for me. Like if you want to know who I am, my views, my perspective, things I love, things I hate, my convictions, my anthems. I've never let people's opinions affect the way I write.
+- I'm still driving along on the pop freeway of life. Thinking even further into the future, I definitely want to make an acoustic record. I want to try lots of different things.
+- Santa Barbara is my hood. I mean, it's not much of a hood, but it is definitely like my hood. I claim Santa Barbara like I claim my family. I'm going to be married and buried there.
+- I've done a lot of bad things. Use your imagination.
+- I grew up not really having anything, so the idea that I can take care of my family and my friends now is a really cool bonus.
+- I'll continue to try and balance like a circus act. And I will just fight to always tell the truth. Even if it's difficult.
+- I've actually always wanted to make something like an acoustic record.

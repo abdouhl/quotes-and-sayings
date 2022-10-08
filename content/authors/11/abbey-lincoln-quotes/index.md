@@ -1,0 +1,14 @@
++++
+author = "Abbey Lincoln"
+title = "Abbey Lincoln Quotes"
+quotes_len = "8"
+description = "the best 8 Abbey Lincoln Quotes"
++++
+- I think that's what really a substantial work is, it's forever. It's the truth now and it was the truth then, and it will be the truth tomorrow.
+- It's a spirit that was given me and the relationships and meeting all these great people, Duke Ellington, Louis Armstrong; through Max I met a lot of people too. My first album was with Benny Carter.
+- There are men and women still on the streets, and that's all they are saying Can you spare a quarter? I come from a crowd of people who were current on the outlook on life, who were social and knew where they were and had some input into how things seemed to be.
+- I was looking for the people who were making the music inside the cabinet. I would look in there and see if I could find somebody who was making all this wonderful music.
+- I remember hearing the song when I was 12 or 14 in - it must have been in Chicago, 'cause we didn't have a radio on the farm, and it was during the second World War. I had three brothers in that war who went overseas.
+- But I've been there and done that. I'm not trying to prove anything to anybody, and if somebody wants me to come, if they can afford what I ask, it's not as much as Madonna makes; not that I want what Madonna makes, but I was saying.
+- I loved Billie Holiday more than any other person other than myself on the stage. Yeah, I do.
+- I don't have to lay on the couch and see a therapist because my therapist is in my paint brushes.

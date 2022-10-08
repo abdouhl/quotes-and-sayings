@@ -1,0 +1,14 @@
++++
+author = "Jim Flaherty"
+title = "Jim Flaherty Quotes"
+quotes_len = "8"
+description = "the best 8 Jim Flaherty Quotes"
++++
+- I still have my teeth. I don't want to lose them at age 61 in some hockey game.
+- I remember being in the Ontario Legislature and the Liberals yelling over at me about the fact that the dollar was rising, and that was bad for business, and didn't I realize that. And I thought, 'What are you talking about?' The value of the currency in part, large part, reflects the world's view of the state of our economy.
+- I am a pretty tough guy. I'm an old hockey player.
+- There are some terrorist organizations, there are some organized crime organizations, that launder money through charities and make donations to charities. That's not the purpose of charitable donations in Canada, so we're becoming increasingly strict on the subject.
+- I'm still a fiscal conservative, and I'm inclined to pay down debt.
+- Everyone wants instant gratification: you have to have everything your parents had right away.
+- It's more frugal to wear ties that are given to you.
+- We're always flexible and pragmatic... It's always important to watch the unemployment rate and to make sure that we can keep most Canadians working. We were successful in that back in 2008-09.

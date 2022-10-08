@@ -1,0 +1,78 @@
++++
+author = "Tyrus"
+title = "Tyrus Quotes"
+quotes_len = "72"
+description = "the best 72 Tyrus Quotes"
++++
+- When I was not a body guard, I was a substitute teacher during the day, I was bounced clubs at night and yeah, I was working.
+- I think no matter who you are or what you do in life, you should set the bar high, that way, when you do obtain those things, you can say, I did this, but if you didn't get it, you can look an see what you needed to do to get there.
+- Wrestling, football, basketball, and baseball were the four things I was obsessed with as a kid.
+- I was discovered by Tommy Dreamer.
+- Rob MacIntyre, who I trained with, was a big reason behind me dropping me a hundred and 50 pounds.
+- The American Dream Dusty Rhodes, rest his soul, he was hard as hell on me. He was tougher on me than anybody.
+- I went to a wrestling school in Canada. That did not work out well, I think I was out there for like a week.
+- I mean I had accomplished a goal I had set at 10 years old, I told my mom at that time that I was going to be a wrestler one day, and I was going to be champion, everyone looked at me like I was crazy.
+- If you look at the history of wrestling, what makes heels great is their ridiculous statements.
+- Probably the biggest thing for me was my Wrestlemania match getting cut; I don't think I ever really mentally recovered from that.
+- There are bad dudes. There are also irresponsible women.
+- If you're good at what you do regardless of what is thrown in front of you, you will make it work.
+- If you're not shooting for the top, then what are you doing?
+- I think if I was like Fred Astaire out there or like break dance fighting and doing crazy splits and stuff like that I think people would be like, 'ehhhh, I'm just going to watch him,' but the fact that they're like, 'I can do that,' it's fun and I think they lose themselves.
+- I used to work for a spot called the 'Saddle Ranch.'
+- If you commit to something, you believe it and you have fun with it, people are going to respect that.
+- It was some great times and some great moments... I'm proud to be a WWE alumni. If it wasn't for my time there, there's no way I'd be excelling at Fox and acting.
+- I'm always teasing and clowning around and laughing and in the locker room I tend to always have something to say.
+- Fans are very aggressive when it comes to Snoop. They just want a piece of him so much. I would probably say more so than any other celebrity because he's so tangible.
+- I'm one of those guys who, when I'm frustrated, do not get vocal.
+- Actually, the original nickname that I was told - it scared me to death - was Heavy G. I think the last thing you want to be known as is Heavy anything. No offense to Heavy D - rest his soul. Worked for him, wasn't really my bag.
+- I'm a huge fan of the Nature Channel programs.
+- I really didn't find myself... I was trying too hard to be too many things so I wasn't really anything.
+- You know, anytime you take one group and you blame them for a problem, there is an issue.
+- John Cena actually showed up to do a song with Snoop in L.A. and he walked in and was like, 'What the hell are you doing here?' I was like, 'You didn't know? I got let go. I'm back bodyguarding now. He was like, 'What? That's crazy!' I was like, 'It's all good. Good to see you. Appreciate it.'
+- I had a very good babyface run, but establishing a monster heel - which I think I would have excelled at - and a poor WrestleMania track record is a hard pill to swallow.
+- The Funkasaurus character was great and it taught me about being humble, about the character, about not being concerned with what people think you should be.
+- Bipartisanship and decency are thrown to the waste side because people want their party to win so badly.
+- Marine biology was something I was into during high school and the beginning of college.
+- The biggest thing about Snoop is, you gotta understand, everybody wants a piece of him. They want to touch him. They want to talk to him.
+- Yeah, no desire to live in New York. Giant buildings and it's cold and I'm a big Patriot, Red Sox's fan. What can I possibly do for fun in New York?
+- I think the climate of wrestling has changed. I think the big guy, The Giant, The Big John Studd's of the world are an endangered species because the business has become smaller.
+- I packed my bags and went back to California and actually put wrestling behind me. I actually thought, well you know what, I thought it was crazy I made it once and to think I'm going to come back or whatever was unrealistic goal. So I went back to bodyguarding and substitute teaching.
+- I'm chomping at the bit for more movie roles as long as it doesn't interfere with my WWE schedule.
+- Vince McMahon said to Triple H, 'Are you sure he's a heel? I don't know. He's funny.' He decided he wanted me to be a babyface and when they came to me they said, 'You can say no, but here's what we're looking at. Funkasaurus is the fastest way to be back on TV.'
+- I can always be ruthless and aggressive in the ring, but I don't think I'll ever have the opportunity to be 'The Funkasaurus' again.
+- WrestleMania's the accumulation of a lot of things. All the shareholders come in for all the meetings with the suits and everything.
+- Anybody that thinks hanging out with Snoop is fun, is cool, you're in for a rude awakening because he is the most down to earth, boring dude ever.
+- We need walls around our schools, we need to protect our schools. Ten-foot rule. You can't get within ten feet unless you're supposed to be there.
+- I got catfished by WWE constantly. You're 26 - 0, and then you run into the Big Show and then you're 0 - 26.
+- Snoop Dogg eats terrible. That's another reason I had to leave him. I would have been dead of a heart attack. He literally eats at 7-11. That's where he does his grocery shopping or it's Roscoe's Chicken & Waffles, or it's Denny's delivery. There's not a piece of salad or vegetable within two miles of this dude.
+- I'm a father. If my son jumped on a boy in a backyard, it would have been the worst mistake he made that day. And he'd have had to apologize to everybody.
+- I knew Funkasaurus wasn't winning the World Championship, but I knew Brodus Clay could have.
+- The situation with the girls - with Cameron and me - it was toxic. It was just so toxic and one night she made a mistake going out to the ring. The pyro went off because she took too long to get to the ring.
+- One of my guilty pleasures is George 'The Animal' Steele. I didn't like him, but I couldn't stop watching him when he did the corner post thing. It was the most awkward thing I ever saw.
+- We need term limits desperately in this country.
+- A big thing to me was to be able to be in a situation where I could speak my mind freely especially when it came to my character. Get the actual right feedback and not have too many chefs in the kitchen and allow me to be me.
+- I set some lofty goals for myself and I think you have to.
+- I've pretty much been a wrestling fan my entire life.
+- There's always a Cena fan that wants to talk to me about it, and it drives me absolutely nuts. They'll come up to me in Cena stuff saying 'Why didn't you wrestle Cena?' Bro, I don't know.
+- I cracked one joke and I was the 'Funkasaurus.'
+- Sasha Banks's success has absolutely nothing to do with me.
+- I was actually doing very well, traveling the world with Snoop. So I was kind of doing that. I would have dreams at night about wrestling and stuff but I kept it very quiet.
+- I guarantee you, there will be wrestling at Donald Trump's inaugural reception. I guaran-damn-tee it.
+- I wanted, if anything else, Brodus Clay to be remembered as somebody who got you out of your seat and I think that'll be remembered so you've got to come 100% with that.
+- Experience wise you've got to give it to the Bella Twins but in terms of just overall effort, athleticism, and just work ethic, the Funkadactyles are there with them.
+- I never imagined as a kid that anybody could beat up 'Mr. Wonderful' Paul Orndorff because Gorilla Monsoon and Bobby Heenan convinced me he was the toughest guy, that Andre The Giant was bigger than life, that Hulk Hogan was amazing and dug down deep.
+- Make America Great Again was a political slogan. It was used before, I believe Ronald Reagan used it before. It was about making America great and rallying America. Unfortunately, I would say 10 percent of the population that voted for President Trump has a different view. They have embraced it as 'Make America White Again.'
+- Well, I wanted to play football and I chased football for a little while.
+- So that's kind of like how I was, even body guarding with guys I was more of a talker and ran my mouth and smiled and stuff and it kept people off, especially if a guy's is fired up and you're laughing at him or smiling or winking at him it just messes with their mind.
+- The Attitude Era had the crazy rock & roll girls and stuff.
+- Good men make good decisions.
+- I loved my time in Deep South Wrestling. We trained so hard and I got a crash course into the world of sports entertainment and pro wrestling.
+- I actually came up with Funkasaurus.
+- Everything changes from week to week in WWE, and that's what's cool about it. All it takes is one minute you're smiling and the next minute you can be a savage.
+- Big Show has a lot of monster tendencies.
+- My mother didn't play being disrespectful to women. I was around grandmas and aunts. You learned pretty quick to be respectful!
+- I carry myself where I speak when spoken to. It's good and bad.
+- Do I think that Trump needs to be better on racism? One hundred percent.
+- It's hard to be mad, it's a lot of energy.
+- Triple H, he's a man's man.
+- Watching 'WrestleMania' growing up, it was like a neighborhood party. It was like the Super Bowl on my block, the only difference was, football was only around for 16 weeks while wrestling was every Saturday.

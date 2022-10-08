@@ -1,0 +1,63 @@
++++
+author = "Jeff Hardy"
+title = "Jeff Hardy Quotes"
+quotes_len = "57"
+description = "the best 57 Jeff Hardy Quotes"
++++
+- I don't want to go back to WWE and burn out within four or five months, and having another run as TNA world champion would feel just as good.
+- I'm good at professional wrestling, and I always will be good, but what's always been different about me is that I can't completely focus on professional wrestling.
+- I take a lot of risks in the ring.
+- I've got my hardcore fans, and I thank them so much for being there for me and not giving up on me.
+- I really hate my hair when it's not braided because it's so big when it dries. When it's wet, it looks cool, but when it dries, it gets all in my mouth during a match, and I hate it.
+- When you commit to a WWE contract, you're committing to some serious time away from home.
+- When I wrestled Randy Orton, that was probably the biggest match of my career at that point, because that was when I had the other shot at the WWE championship.
+- I compliment people when I see something I really like and tell them, 'That was good. Keep doing what you're doing.' That's as much as advice as you will get out of me.
+- I'm still a fan at heart.
+- The Undertaker's beaten me down pretty bad quite a few times.
+- People ask me how I am so fearless on a ladder and how I have no fear in the ring. And the answer to that question is a bit complicated. I used to have no fear, but that is no longer true. With a wife and two girls at home, I'm more afraid now than ever.
+- Thank God for TNA: we've had the creative freedom to do what we want to do.
+- I'm not really a popular fan of the whole Hall of Fame thing. I've had a lot of ups and downs, and I don't feel deserving a lot of times.
+- If Meekmahan ever came to the Hardy compound, I would tell Meekmahan, face-to-face, 'You'll fade away and classify yourself as obsolete! Obsolete!'
+- Overall, I think I'm just lucky, and I hope I continue to be lucky.
+- When I was a kid, I wrestled my high school amateur wrestling in junior year.
+- Once I established myself doing crazy things and being extreme, people want to see it all the time.
+- It's good to establish moves that fans are always going to recognize and scream for.
+- My first match was against Razor Ramon. I lost. Come to think about it, I lost a lot back in those days.
+- I find inspiration for my works of art in my studio and in the squared circle from all sorts of places.
+- We may never be as big as WWE, but the cool thing about TNA is that we are the alternative. So people who get tired and bored with the WWE - I've been there, I understand - there's an alternative and something else to watch.
+- For special wrestlers, there's somewhere else to go - as long as you're not brainwashed by that WWE mentality. There's other worlds out there; it's OK to switch around.
+- I was obsessed with it, and then I learned more about professional wrestling and how the beauty that does exist in it is truly an art form.
+- Sting was one of my first and biggest influences. One night in North Carolina, when I reached out and touched his shoulder, he had the face paint on, and I didn't know why, but I loved it. I wanted to be just like him, and I was only 11 years old.
+- I'm not a big practice guy at all.
+- Being myself is what got me to where I am.
+- Edge is such a great guy.
+- Luckily, I'm only aware of about two or three concussions that I have had, but there's really no way of telling how many overall.
+- When I broke my leg on the dirt bike, fear got the best of me that day. I hesitated. I didn't hit it as fast as I could have, and I came up short. It was the first time in my life I couldn't get back up.
+- You can't go wrong with reading the fans and letting them tell you who they like. I think that's really paid off for me in the long run - being down to earth and just really cool with each and every fan that I meet - and they've really supported me through thick and thin.
+- I would love to get into acting. I really enjoy acting - portraying other personalities and approaching different levels and whatnot - that would be awesome.
+- I remember 'Wrestlemania 6' with The Ultimate Warrior against Hulk Hogan. It was so cool to see those guys go in there and the fans getting into the match so much.
+- Shawn Michaels was the guy to study and watch.
+- The roots that weave up my right arm and onto my neck are my way of connecting with the earth: the earth's roots carry water like a human's veins carry blood.
+- I look at tattoos as a commitment to life.
+- Ric Flair, The Freebirds, and The Rockers were great influences in my decision to become a wrestler.
+- I never view myself as a leader.
+- I'm looking forward to having one of those moments that will be immortal.
+- Whether I ever become WWE champion in my career, I'm proud of what I've done.
+- I've learned that I can still be loved if I perform well, and I learned that from the broken brilliance of Matt Hardy.
+- TNA is great about going out of their way to interact with the fans.
+- I got the dragon on my leg when I was still living with my dad. He's not a fan of tattoos, so I had to get it behind his back; he kind of freaked out when he saw it.
+- I can't wrestle a match without getting my ankles taped because they feel like they'll shatter on me.
+- I would love to end my career as World Champion.
+- I'll do anything. That has proven problematic - you may remember my broken leg in a dirt bike accident - but that is also the ingredient that has allowed me to elevate myself in pro wrestling.
+- I've rung my bells so many times, especially back in the day when chair shots to the head were legal. My goodness, I took so many of those.
+- To me, wrestling is just as cool as it ever was.
+- Any time it's a Swanton, I'm confident. But if I feel I can't do it, I won't do it.
+- I just want to go out there and have the best matches I possibly can.
+- The Great Khali always serves up a good beatdown if you can't get out from under that heavy hand.
+- My brother Matt and I, we have a great relationship.
+- I started wrestling professionally, I did my first television match at 16, but I was wrestling at country fairs and national armories when I was 14.
+- Just spending time with fans and acting normal and talking to them just like I was one of their boys, that's what it's all about.
+- Early, when I first started wrestling, I wanted to be a combination of Sting and the Ultimate Warrior: The Ultimate Warrior's craziness and weird personality and Sting's coolness and the way he carried himself to the ring. But then later on, when it came to physicality and athleticism, Shawn Michaels topped the cake.
+- I've always dreamt of somewhere down the line getting one match out of Hogan, just because that was always a dream.
+- That's really important to me - creating moments that last forever.
+- I still look forward to doing things I've never done before. But the fear beforehand is always worse than the actual moment. Leading up to it, especially before the match, is when the butterflies are at their worst. But in the match, the creatures - my fans - fuel me. They're a huge superpower for me and my survival.

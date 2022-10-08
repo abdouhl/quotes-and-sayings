@@ -1,0 +1,13 @@
++++
+author = "Nate Mendel"
+title = "Nate Mendel Quotes"
+quotes_len = "7"
+description = "the best 7 Nate Mendel Quotes"
++++
+- How is AIDS research to progress when the premise of science is questioning but the premise of questioning HIV is considered so dangerous that even venturing into the facts is too great a risk?
+- When a person tests positive for HIV, it is not a test for the virus itself but for antibodies to the virus, and the test is not able to distinguish between HIV antibodies and a multitude of other antibodies. Many conditions can lead to a false positive result, including flu shots, hepatitis, and pregnancy.
+- I have full confidence in the ability of Foo Fighters' audiences to distinguish between questioning HIV and the obvious value of safe-sex practices.
+- Popular ideas about AIDS are based on a hypothesis that does not stand up to scientific scrutiny.
+- If I could, I would have my son on tour the whole time. But he has school, summer camp, and he has to see his mother.
+- Reiterating the belief that HIV is the cause of AIDS is an easy thing to do. Understanding the science and politics of the situation is much more complicated and requires study with a critical and open mind.
+- How do you be a 45-year-old man in a rock band, do it well, keep your dignity and not become a parody of yourself? I don't think it will be simple.

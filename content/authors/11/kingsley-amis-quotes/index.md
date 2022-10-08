@@ -1,0 +1,20 @@
++++
+author = "Kingsley Amis"
+title = "Kingsley Amis Quotes"
+quotes_len = "14"
+description = "the best 14 Kingsley Amis Quotes"
++++
+- He resolved, having done it once, never to move his eyeballs again.
+- Self criticism must be my guide to action, and the first rule for its employment is that in itself it is not a virtue, only a procedure.
+- Sex is a momentary itch, love never lets you go.
+- He was of the faith chiefly in the sense that the church he currently did not attend was Catholic.
+- It was no wonder that people were so horrible when they started life as children.
+- One of the great benefits of organised religion is that you can be forgiven your sins, which must be a wonderful thing. I mean, I carry my sins around with me, there's nobody there to forgive them.
+- No wonder people are so horrible when they start life as children.
+- Outside every fat man there was an even fatter man trying to close in.
+- If you can't annoy somebody, there's little point in writing.
+- Laziness has become the chief characteristic of journalism, displacing incompetence.
+- His mouth had been used as a latrine by some small creature of the night, and then as its mausoleum.
+- I sometimes feel that more lousy dishes are presented under the banner of pate than any other.
+- It is no wonder that people are so horrible when they start their life as children.
+- There was no end to the ways in which nice things are nicer than nasty ones.

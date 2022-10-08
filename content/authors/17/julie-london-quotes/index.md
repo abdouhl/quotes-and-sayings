@@ -1,0 +1,26 @@
++++
+author = "Julie London"
+title = "Julie London Quotes"
+quotes_len = "20"
+description = "the best 20 Julie London Quotes"
++++
+- I think any entertainer just sort of goes along with whatever comes along.
+- If it's an excellent script, I enjoy it tremendously, the acting part of it.
+- We've performed in South America and in Japan.
+- I'm sure any vocal teacher that listens to me would rather cut my throat than do anything - I do everything all wrong - but I think for me that's the best - because I don't think I have a voice so I think what I project would be style - if I learned to sing I'd lose my style.
+- In this business it's difficult to make plans. I think the plans follow you and find you.
+- It's really impossible to project ahead even six months in this business.
+- I prefer the things around town. I'm not one for going out of town too much.
+- Bobby had faith in my ability as a singer.
+- I'd retired for about six or seven years. Coming back to the business, I found that I was sort of not quite a has-been, and it wasn't a new career, it was just kind of difficult to crack the nut, so to speak.
+- Sometimes you kind of lose yourself in someone else's personality.
+- I do everything all wrong, but I think for me that's the best, because I don't think I have a voice.
+- It's very complicated because I cannot wear the same thing too often.
+- I think that's one of the most difficult things in any marriage - in order to build anything, you must be together. You can't build anything over the telephone.
+- The acting was first. As a teenager I was an actress; and then I came back as a singer.
+- I think the first album cover was considered most provocative. I think that contributed a great deal.
+- I think homes should reflect the individuals and their individual taste rather than someone else's.
+- Bobby Troup and I have been working together for about a year in clubs. We work in the same club.
+- If it's a terrible script, it's a terrible bore.
+- The one appearance that I made for President Kennedy, he, as I understand, had his choice or was asked to make a list of the people he would like to have perform, and I was fortunate enough to be one of them.
+- Bobby was one of the few people I had ever known who really wanted to do something for me.

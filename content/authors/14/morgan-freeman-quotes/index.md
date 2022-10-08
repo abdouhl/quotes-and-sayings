@@ -1,0 +1,65 @@
++++
+author = "Morgan Freeman"
+title = "Morgan Freeman Quotes"
+quotes_len = "59"
+description = "the best 59 Morgan Freeman Quotes"
++++
+- I find it difficult to watch myself... I find it boring.
+- And some places you been before are so great that you don't ever mind going back. Some places you been before you don't ever want to go back, you know, like Montreal in the Winter.
+- I'm not one for blaspheming, but that one made me laugh.
+- It's what I learn from the great actors that I work with. Stillness. That's all and that's the hardest thing.
+- People need to start to think about the messages that they send in the movies.
+- Acting means living, it's all I do and all I'm good at. If I weren't getting paid well, I would still be acting in a small troupe somewhere.
+- Learning how to be still, to really be still and let life happen - that stillness becomes a radiance.
+- Give me something interesting to play and I'm happy.
+- I've been living with myself all of my life, so I know all of me. So when I watch me, all I see is me. It's boring.
+- Not only do I have to live, right, I have to get some cash for my troubles - it's a scary thing, and people need to start to think about the messages that they send in the movies.
+- If you're playing somebody who is not you, then you can imagine that you are that person. You can feel like he feels, move like he moves, look like he looks - in your own mind.
+- When I was doing theater, I was very successful at believing that I was great, God's gift to the theater.
+- When I was a teenager, I began to settle into school because I'd discovered the extracurricular activities that interested me: music and theater.
+- People say it's a movie about boxing, but... I don't agree at all. I don't think it's a movie about boxing. Boxing is like a platform. It's just a stage where this is played out.
+- I like the blues a lot. I grew up on it.
+- There's no mystery to it. Nothing more complicated than learning lines and putting on a costume.
+- My approach to acting is that I am totally intuitive. I read the script and I get it. If I don't get it, I can't do it.
+- The reason actors, artists, writers have agents is because we'll do it for nothing. That's a basic fact - you gotta do it.
+- I do know there are a lot of people who seem to be in my corner, and that's, of course, wonderful. I'm really more interested in the nomination than in the award, because I think the nomination just puts you within a group of outstanding actors.
+- I can only be so long without work before I start getting antsy.
+- My parents were working in a hospital in Memphis. But I didn't live there for any length of time that I remember. The first thing I remember is the town in Mississippi that I live in now, Charleston.
+- I don't want a Black History Month. Black history is American history.
+- It can have an enormous effect because big budget movies can have big budget perks, and small budget movies have no perks, but what is the driving force, of course, is the script, and your part in it.
+- Once you've gotten the job, there's nothing to it. If you're an actor, you're an actor. Doing it is not the hard part. The hard part is getting to do it.
+- Most of the time it's the role. Sometimes it's the story and sometimes it just the paycheck. It's the little movies that come out as stories or the fact that I have work to go out, you know what I'm saying, you can only be out so long without work, you start getting antsy.
+- I like the character roles. Somewhere back there I really came to the conclusion in my mind that the difference between acting and stardom was major. And that if you become a star, people are going to go to see you. If you remain an actor, they're going to go and see the story you're in.
+- Is there a movie I think I should have won the Oscar for? Yeah. All of them.
+- Just that working with Clint again is like coming home.
+- As you grow in this business, you learn how to do more with less.
+- I'm not intimidated by lead roles. I'm better in them. I don't feel pressure. I feel released at times like that. That's what I'm born to do.
+- I always tell my kids if you lay down, people will step over you. But if you keep scrambling, if you keep going, someone will always, always give you a hand. Always. But you gotta keep dancing, you gotta keep your feet moving.
+- But I can say that life is good to me. Has been and is good. So I think my task is to be good to it. So how do you be good to life? You live it.
+- Black history is American history.
+- I don't know what my favorite film of mine is... But I think the most important film I was in was 'Glory'.
+- Martin Luther King Jr. is remembered as our prince of peace, of civil rights. We owe him something major that will keep his memory alive.
+- Was I always going to be here? No I was not. I was going to be homeless at one time, a taxi driver, truck driver, or any kind of job that would get me a crust of bread. You never know what's going to happen.
+- I joined the air force. I took to it immediately when I arrived there. I did three years, eight months, and ten days in all, but it took me a year and a half to get disabused of my romantic notions about it.
+- I want to thank everybody and anybody who ever had anything to do with the making of this picture.
+- It's sort of well-known that anytime any catastrophe happens anywhere in the world, they can count on the United States for help.
+- Still, it can be more effective to accomplish what you need to accomplish with the minimum effort. Watch Anthony Hopkins. He doesn't appear to be doing anything. He is so still that you can't see him working, but you are drawn into his character through his very stillness.
+- And finding the hat, I always like to find the hat. And then props just dress the set. It's all fabulous.
+- Dr. Martin Luther King is not a black hero. He is an American hero.
+- One of the things you can always depend on - this is one of the truths of the universe, and you heard it first from here - whatever we decide we want to do is what we do.
+- People hear that and say I'm being modest, but I am not a modest person, but I have to be truthful about what I'm doing and what I'm doing is channeling.
+- All my life, all my life that I can, as far back as I can remember, I saw my first movie when I was six years old. And since then I wanted to do that. I wanted to be a part of that.
+- The best way to guarantee a loss is to quit.
+- The accident was a horrible thing - but that horrible thing made Chris, at the end of his life, Superman. It's a happy irony if there is such a thing. I'm proud to have known him.
+- I am going to stop calling you a white man and I'm going to ask you to stop calling me a black man.
+- And that if you become a star, people are going to go to see you. If you remain an actor, they're going to go and see the story you're in.
+- I don't get off on romantic parts. But I often think if I had had my dental work done early on, well, maybe.
+- I feel fine, I don't care who the director is. All you have to do is know what your doing - all of us - everybody in the business - that's all you ask anyone - you know your job, I know mine, let's go do it.
+- This kid came up with Napster, and before that, none of us thought of content protection.
+- You're going to relegate my history to a month.
+- Let me be the first to tell you, drinking alcohol is the worst thing to do in cold weather. Hot soup is the best because the process of digesting food helps to warm you up.
+- I gravitate towards gravitas.
+- Life doesn't offer you promises whatsoever so it's very easy to become, 'Whatever happened to... ?' It's great to be wanted. I spent a few years not being wanted and this is better.
+- If you live a life of make-believe, your life isn't worth anything until you do something that does challenge your reality. And to me, sailing the open ocean is a real challenge, because it's life or death.
+- Let me tell you about being executive producer. It is not a job, it's a title. Don't go around asking executive producers what they do because they don't do anything, alright?
+- I knew at an early age I wanted to act. Acting was always easy for me. I don't believe in predestination, but I do believe that once you get where ever it is you are going, that is where you were going to be.

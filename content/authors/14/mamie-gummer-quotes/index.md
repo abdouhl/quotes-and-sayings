@@ -1,0 +1,30 @@
++++
+author = "Mamie Gummer"
+title = "Mamie Gummer Quotes"
+quotes_len = "24"
+description = "the best 24 Mamie Gummer Quotes"
++++
+- I know girlfriends of mine who, when they were approaching pregnancy and starting a family, consistently went through a period right beforehand that was a last gasp kind of thing where they just wreak havoc. They fall apart, in a profound way, because there's some awareness that that's the last time they can do that for awhile.
+- I watched a lot of old television growing up - a lot of Nick at Nite. I watched 'Rhoda', 'Mary Tyler Moore', and 'I Love Lucy.' Growing up, I loved 'My So Called Life' and was devastated when that went off the air.
+- All I really want to do is plays - and that's a New York thing.
+- My eyes are too small, and they're too close together, and I have a pointy nose. But who cares? Who cares?!
+- I feel like I've been the star of my own show for a while now. I was always putting on shows as a kid, and obviously, my household was really creative.
+- I'd like to learn how to cook. I've hauled around this big, old, heavy Martha Stewart cookbook in my suitcase to Cape Cod, L.A., Paris. I don't know what possessed me.
+- I like the Dodgers because my dad does - wait, no, not the Dodgers. Strike me down! The Yankees. I like the Yankees.
+- I play-acted and started performing, which just logically led to doing it in school, which led to studying it in college, which led to auditioning to the showcase in New York. And then I had an agent, and I was an actress.
+- Our parents have, by far, the greatest influence on shaping who we are and how we deal with the world.
+- All the women that are first born daughters in my family are named Mary, but we've all been given nicknames. I don't know how or why that started, but I'm nicknamed after my great-grandmother, who was Mamie. No one ever calls me Mary, except only if my husband is very serious about something.
+- I love the energy of an independent film set. No one is there for the money. Everyone is there 'cause they really want to be there. It makes all the difference in the world. It's without ego and agenda, other than just wanting to fulfill a creative dream.
+- L.A. is... I always feel sort of abducted when I'm there, like I've stepped onto another planet where everyone looks the same.
+- I don't think I'm ever really going to run the risk of disappearing into a Marvel franchise. I just don't know how I would fit into a catsuit.
+- I went through so many phases because I moved schools a lot. I grew up primarily in Connecticut, but also here in L.A. for five years.
+- My favorite charity is the Women's Refugee Commission and the Nomi network.
+- If I do have kids, I can't wait because I'm excited to go back to school to help them with their homework and remember how to do simple math. I think it's about staying curious and not losing the sense of wonder.
+- I've kind of blocked it out, but a good friend affectionately reminded me that yes, I was a dork. I was not a cool kid in high school.
+- I have roles in plays that I hope that I'll be able to do one day. I might be doing them at, like, the East Wilton Playhouse in wherever. But I think that Edie Falco... to get something even resembling her type of roles, that would be amazing.
+- A lot of the scripts I read and the characters I get are 'the girl' in romantic films, and I don't know how comfortable I am, or the world is, with me being that.
+- I like how steady the work in television is. Films, they're hard to come by. They're elusive. I've done a couple, independently financed. You do them, and maybe a few people will see them.
+- My first day on the set of 'John Adams', I was just supposed to fly to Virginia for a costume fitting. But the director figured, why not shoot it, too? So they threw me into a dress that didn't fit, gave me lines I hadn't seen, in a dialect I didn't know, and two screaming, arching infants.
+- I was an optimistic person, really bossy, gregarious and outspoken.
+- I feel like I'm a secondary artist, a kind of a conduit for the writer, and if it's a good writer, then I have a great road map.
+- I was a theater major at Northwestern University and won a role in a play called 'Mr. Marmalade' after I graduated.

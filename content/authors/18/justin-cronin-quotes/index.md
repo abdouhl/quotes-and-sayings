@@ -1,0 +1,45 @@
++++
+author = "Justin Cronin"
+title = "Justin Cronin Quotes"
+quotes_len = "39"
+description = "the best 39 Justin Cronin Quotes"
++++
+- One of the things I constantly think about as a writer is the way in which people are full of contradictions - there's all this contradictory information inside a human personality.
+- I've never written a movie, I'm not in the movie business. I go out to L.A. and I'm like everyone else wandering around in a daze hoping I see movie stars. I write the novels that the movies are based on, and that feels like enough of a job for me.
+- I'm an ecumenical reader, grew up with all sorts of fiction, teach writing, went to the Iowa Writers' Workshop, so my tastes and interests are broad.
+- One of the great themes in American literature is the individual's confrontation with the vast open spaces of the continent.
+- Choosing writing as a career, just by itself, is a measure of not being a calculating person.
+- One thing that worried me was how writers get categorized and so they end up having to write the same kind of book again and again. That is fine if it is what you want to do, but I would rather be locked in the trunk of my car with a weasel than write the same book every three years until I die.
+- When you write, you take the ball and you hold it up to the light and you turn it slowly, and let people draw their own conclusions. And try to bring empathy to all sides of the equation.
+- There's an outline for each of the books that I adhere to pretty closely, but I'm not averse to taking it in a new direction, as long as I can get it back to where I need it to go.
+- One of the traps or the pitfalls of writing a trilogy - or a triptych, or whatever term you want to use - is that the second book can be a long second act to get you from book one to book three, which borrows all of its energy from the first book.
+- One of the things you get to do as a writer is that you get to learn new stuff all the time, and I hope that I'm a better writer when I'm 70 than I was when I was 30. That's one of the great things about a literary career.
+- I grew up during the Cold War, when everything seemed very tenuous. For many years, right up until the fall of the Berlin Wall, I had vivid nightmares of nuclear apocalypse.
+- You learn to write by reading, and my experiences and tastes as a reader are pretty wide.
+- If you write a good action sequence well in a novel, you're already writing it for film, because the only way to do it well is to use some of the same tricks. They're rhetorical, not visual, but it's the same move.
+- Writers who pretend that everything they're doing is completely new are full of it.
+- I'm still an English professor at Rice University here in Houston. They've been very generous in letting me on a very long leash to just work on 'The Passage' and its sequels.
+- I think many years ago I got on a bus in L.A. and drove around to see the stars' homes, but that's the extent of my direct experience in Hollywood.
+- Every book has got its challenges. You run into a plot point that you can't figure out, or a scene that you struggle to write and have to write 50 times.
+- I like to break left when people think I'm going to go right.
+- I have any number of completely dark obsessions and fascinations, and none of this was present in my profile or my growing profile as a writer.
+- If you try to write 1,000 words a day, as I do, after 100 days you'll look up and have a book. It may be a mess, and you may have to revise it 50 times, but you can't revise it if you haven't written it.
+- My theory of characterization is basically this: Put some dirt on a hero, and put some sunshine on the villain, one brush stroke of beauty on the villain.
+- And indeed, I am a warmhearted and thoroughly domestic man who gets up and makes pancakes for his children and kisses them on the head when he sends them off to their day.
+- The future that I will not live to see is the one my children will live in. That's my immortality. And I shouldn't try to mortgage theirs for my benefit.
+- Writing is a job: you must show up.
+- I was very much a child of the Cold War.
+- And I had always liked vampire stories because they are great material that can be refashioned in lots of ways.
+- And I grew up on a steady diet of science fiction, especially apocalyptic and postapocalyptic fiction.
+- So, whenever I'm writing, I'm writing in the presence of all the other books I've read and I think we all are.
+- My inventing time is all done under the influence of aerobic exercise. Basically, I do all my thinking while I run.
+- I'm a workmanlike writer. I show up every day and treat it like a job. The old rule that writing is like any other job, the first rule is that you must show up. I'm at the keyboard from 9 to 4 every day.
+- My rule has always been, write the next part of the book that you seem to know well. So I won't necessarily write chapter two after chapter one.
+- If you are writing any book about the end of the world, what you are really writing about is what's worth saving about it.
+- I like creating villains.
+- That literary-popular distinction is, in my view, vastly overstated. At the far poles there are clearly books that are purely commercial and purely literary, written for audiences that want to see the same thing enacted over and over and over again. But the middle is where most people read and most people write.
+- I came to Houston for a job, the reason most people move halfway across the country with a first grader and a five-week-old. I came here to teach at Rice.
+- Vampires have always been hot. They are one of our most durable monsters. It's one of those stories that galvanizes us early and it's always going on.
+- I was a 'Planet of the Apes'-obsessed kid.
+- I tend to start at 9 o'clock in the morning and write until 3. Those are my best hours. They fit the other rhythms of the world. So I write for six hours, pretty much without any breaks.
+- Behind every writer stands a very large bookshelf.

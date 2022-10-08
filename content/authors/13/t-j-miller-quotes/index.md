@@ -1,0 +1,126 @@
++++
+author = "T. J. Miller"
+title = "T. J. Miller Quotes"
+quotes_len = "120"
+description = "the best 120 T. J. Miller Quotes"
++++
+- Unfortunately, in the race to the most douchebaggery, Silicon Valley is fast in gaining on Hollywood. That race is neck and neck.
+- I sound like a chain-smoking drag queen after a hard night of singing 'Tie a Yellow Ribbon'.
+- Slowly but surely, I went through different phases of fame, and each rises you further into isolation and alienation.
+- There's sketch, improv, writing, acting, music, and badminton. Those are the seven forms of comedy. But I do like the idea of being an auteur in the sense of writing and being in your own stuff.
+- To be honest, I would never have imagined myself acting on a sitcom that I didn't write.
+- I don't know that I would host the Golden Globes or the Emmys because I don't think they have the appreciation for irreverence that the Critics Choice does.
+- Comedy gives you a shot of euphoria that distracts you from everything that's awful.
+- My father really told me, seriously, if you want something, you can have it, but you may have to work harder than anyone else around you.
+- I love writing but not crazy meticulous/prepared enough to be a director. I'd work as a gaffer on something.
+- I consider everybody who takes themselves seriously to be a little bit off. And Silicon Valley seems to be the most effusive about how important their contributions are to society.
+- It's always fun to agree to be in a movie when you have no idea what it's actually going to be!
+- Funny is as funny does, and funny puts on a walrus mask and slowly gyrates in a mall food court. I laugh at absurdity hardest, then stories, then observations, then bearded men on roller skates.
+- It is good to connect to someone who reminds you that you have some real authenticity.
+- I love Denver.
+- Mucinex were like, 'Would you like to be the Mucinex man? You sound like you're sick right now'. In each spot, they give me a little bit of room to do something strange. And in a world of fractured mediums, where there is no zeitgeist, and you get your comedy from your phone, it's all content.
+- I told the Mucinex people, 'You picked me because I always sound sick'. They were like, 'Well, it doesn't hurt'.
+- I was in 'Goodwin Games,' which was canceled, and a few other things, so I kind of swore off television unless I was writing or producing it.
+- 'Guardians of the Galaxy' is tongue-in-cheek and has a sense of humor about itself. But it's nothing like 'Deadpool.' 'Deadpool' is this super-bizarre thing. The best thing about it is that it's R-rated.
+- I wouldn't want to be Superman. Batman would be cool. But the one I've always wanted to play is the Joker. There is a maniacal and dangerous side to me.
+- Everybody asks me what it was like to be in my underwear for my network television debut.
+- Stuff that I write isn't as similar to the stuff that I'm in, but I don't really care. I just do comedy.
+- I acted in high school and studied at the British American Drama Academy in Oxford for one summer. I minored in theater, and I was always acting growing up and stuff, but really, I was just more interested in the comedy of it all. So for me, it's always comedy, and then acting is just one medium of comedy.
+- Stand-up and sketch and improv - that's the most direct contact you can have with somebody, making them laugh. I like that. I like the intimacy.
+- I don't know how much the economy has changed since Jonathan Swift's 'A Modest Proposal.'
+- To become the best comedian, I must be well-rounded.
+- I was the Head Boy of East High School in 1999. I represent 303 - the area code, not the band - Mile High, until I die. I'm 31, a comedian; I juggle, but I don't glove it. I think waxed mustaches run a very thin line between hipster and 1800s barkeep.
+- Russell Brand is lovely, even though he's a weirdo.
+- If you're a psychologist, you can instrumentally change peoples lives for the better. But you can only do that for about 300 people to maybe a thousand people - if you're really prolific and you're working really hard.
+- Always farm fresh eggs, never store bought.
+- Mike Judge usually receives underwhelming acclaim for his movies when they come out; it takes a while for people to catch up.
+- I don't sit and write stand-up material; I come up with an idea onstage.
+- I feel like I've forcefully been thrust into the tech world, and I've enjoyed every minute of it.
+- I love mispronunciations. I love when people mispronounce things.
+- I care less about selling tickets and getting Twitter followers than I do about making as many people laugh as I can. I'd rather make people laugh than make them know who T.J. Miller is.
+- I'll invent a lie. Ricky Gervais has done anything interesting since 'The Office'. There's a lie right there.
+- I like when people don't know what to expect.
+- I like hip-hop, but I don't like concerts. There's, like, sweat on people's backs.
+- Steve Martin's comedy albums are so ridiculous.
+- I consider myself a fairly ethical individual while I do have a lot of dichotomies within me. We're all victims of our own hypocrisy at times.
+- It's okay to take yourself too seriously if you're a serious actor and you've got the scrubs on. And then with me, it's kind of like, well, I'm a comedian, I'm making fun of everybody and everything. And I'm making fun of myself. I'm having fun making fun of and for other people.
+- I don't believe in alcohol. It's a sort of a medicinal necessity for the human condition, none of that stuff. I'm not a gambling man.
+- I don't really know how to act that much. I'm quite good at comedy, but it's mostly acting naturally.
+- Some people in Silicon Valley are as bad as the 'Koch Brothers', you know? Don't be mistaken. For every some of those, though, you get people who come up with something like 'Leafly', which does what 'Yelp' has done, but in a much more specific way, and it's important because it's the dawn of this new era.
+- Gentrification always makes me laugh. People complain about traffic. Live in Atlanta! You can't have it both ways; you can't live in an incredible city and not expect it to get congested.
+- I think the physical comedy in action sequences is fantastic. Like, '21 Jump Street' did a great job with that.
+- I would say that awards are for children. Because children need a tangible representation of their achievement. And as adults, you have to settle for the respect and admiration of your peers.
+- Is it possible to have negative self-awareness?
+- People dream their whole lives of their Oscar speech; I dreamt my whole life of hosting the Oscars.
+- Every time I could possibly be doing stand up, I am.
+- If you're a comedian, you can change peoples lives for the better in much smaller increments - not their entire life, but for 15 minutes or a half hour.
+- I'm always so amazed by which performances work really, really well and which ones don't. But I think it's just mostly, 'She's Out Of My League,' so many people saw that movie on DVD and on the plane. Just millions of people saw that movie. That's the reason I'm somewhat famous.
+- I'm not, like, an action-hero guy.
+- I'm so absolutely pro-Denver. I wrote a fake hip-hop song about Denver. I've been claiming Denver. Part of the joke of the song is nobody was really claiming Denver - no rappers, no comedians.
+- I don't get along much with myself.
+- 'Extract' was kind of a grown up 'Office Space' in the sense of talking about the ennui of being a successful person in America if you don't have some real passion in your life for something to care about.
+- I do comedy to give people an ephemeral escape from the tragedy that permeates everyday life.
+- My face is oblong. But the best grooming is confidence.
+- I think by now if people hire me, they know I'm going to improvise. I'm an improviser by trade.
+- I feel a strong affinity to Ke$ha and Katy Perry and a lot of these women who are really pushing the girl power femme fatale thing. It's fun, and it's unapologetic, and they tell women they can do whatever they want, and that's true, and that's a message that I want to carry, to tell girls they can do whatever they want.
+- I do believe that in the future there will be a movie called 'Deadpool vs. Wolverine'.
+- Keep your elbows soft. Keep your elbows looking fine.
+- Fame is very isolating. It changes your reality.
+- It's the comedy that guides me. The acting and all that stuff comes second. It's equally important, but I just try to do that as best as I can.
+- When you get into a car, and there's trash, or it's dirty, or one of the hubcaps is off, you're like, 'Come on, dude.' Every woman likes the confidence and self-respect that says, 'I get oil changes. I look after my vehicle.' That's what I recommend: Act like you don't care, but take care of your body.
+- Hosting is a thankless job.
+- I'm interested in morality and mortality, and 'Deadpool' kind of has all of these themes.
+- By the very nature of satire or parody, you have to love and respect your target and respect it enough to understand every aspect of it, so you can more effectively make fun of it.
+- Life is hard. Not great. Kind of tragic.
+- J. P. Morgan. He was kind of a douche.
+- Mike Judge is very specific about how people look in his projects, and I think it's because he's an animator.
+- I've stated that it's possible the only reason I'm in show business is that I have such a strange, particular head of hair. That, and I can grow a red beard.
+- 'Silicon Valley' is a great show. It might be the best comedy on television. And if the Academy feels I have stood out to the point of deserving an award, I won't pawn it.
+- I always like to have a buffer between me and journalism in general. Not just a reporter, but journalism.
+- I actually prefer Twitter as a medium, and I also got into Periscope for a second, but I'm still trying to figure out what to do with it. I can't figure out if the only important thing about it is the live broadcast, or if it's an interesting kind of way to log what you do.
+- It's much better to wreak havoc on a show and be a maniac than promote myself. Plugs and anecdotes aren't really in line with my beliefs. Besides, if someone sees me on a morning show and thinks, 'That's not funny; this guy is crazy,' then I don't want them to come to the show anyway.
+- Sometimes, things need to be so understated on film that I don't even see them as funny, which isn't my favorite style, comedically. When I watch film comedy, I like people that are a little bit more alive on the screen and wound up. I like volatility and unpredictability and other long words like those.
+- If there is one thing that makes me unique, it's that I riff a lot.
+- My father always said I have a face for radio, and 'Cloverfield' was one of my finest pieces of work.
+- There's sketch, improv, writing, acting, music, and badminton. Those are the seven forms of comedy.
+- I find Denver's hipster scene to be fully unique.
+- I know that, as a comedian, I've made great strides because I've worked as hard as a person can work at being at least wildly amusing.
+- There is no place for a person like me in a world that only takes itself seriously. Satire is so necessary but fairly ineffective.
+- It doesn't matter to me if I'm in love with my performance, so I watch all of my performances to understand and learn from them and figure out what's working and what's not. And I see the movies that I'm in in the theater a lot.
+- I laugh at absurdity hardest, then stories, then observations, then bearded men on roller skates.
+- A mother will come up to me and say, 'Will you meet my son? He loves you. He watched 'How to Train Your Dragon' a thousand times.'
+- We try and reflect that there's a lot of optimism, there's a lot of positive things that are happening in 'Silicon Valley'.
+- There's nothing I would love more than to host an awards show where I'm nominated for an award - that is so funny to me.
+- When you spend such a large portion of your life working - and it's not fun, and you're worried about getting sued or fired for saying the wrong thing or for acting crazy at a work party - then what has work done to America? That's the impetus to have a huge office Christmas party.
+- I try to be an ethical, moral person and a nice person, and I like to have that reflected in my comedy. I'm not a mean comedian, and I don't think that my comedy is mean. I think that for the most part, it's more focused on the diversity that we all handle and try to provide a distraction from the disaster of modern living.
+- The moment in which you make somebody laugh, you're only doing it to make them laugh and be happy. Then afterward you can be like, 'Oh, I just want the attention. I feel so good that everybody's listening to me and I got the approval that I need.'
+- One of the exciting things about an entanglement puzzle is there's no end to it. Once you solve how to take it apart, you have to solve how to put it back together.
+- I have perfectly symmetrical ankles.
+- My father is very dry and very quick-witted, and my mother is very silly. It was the perfect combination because I got an education in physical and verbal comedy.
+- I'm a stand-up. I'm never worried about getting my next role. That's never distressing to me.
+- Mike Judge is my Jonathan Swift, and I say that because I don't know any other satirists. But the problem with satire is that it's so easily misinterpreted.
+- I'm a student of comedy in general, so I've always loved Billy Crystal. But I'm a different type of showman. I'm a clown and a jester.
+- Effective satire has to be almost identical to the subject that it is skewering.
+- I'm the easiest person to make fun of.
+- I don't prepare for anything very well. I am not a good actor. I don't read scripts.
+- Listen to my voice - I sound like I'm permanently congested.
+- Most things I get hired on, I get hired because I improvise something funny, or they just think I look weird.
+- Always remember: My general theme is 'There is no message.' There never has been. Stop trying to find the message or the meaning in everything. That's. My. Theme.
+- We're not a nation divided: we're a nation broken, and anything broken can be fixed.
+- 'Yogi Bear' changed my life in ways that I can't explain because it's not a full feature on me. 'Yogi Bear' - there's everything before 'Yogi Bear,' and there's everything after 'Yogi Bear.' Like a major car accident, or the birth of Christ.
+- I'm a Nietzschean scholar. I've read an immense amount about nihilism and existentialism.
+- I drink a fair amount of ramen noodles.
+- Artists want to be congratulated because they should be.
+- Hollywood is the only thing more ridiculous than Silicon Valley. There's nowhere else where it's stranger.
+- I acted in high school and studied at the British American Drama Academy in Oxford for one summer. I minored in theater, and I was always acting growing up, but really, I was just more interested in the comedy of it all.
+- Probably the only way Woody Allen and I are similar is that he has a lot to say about Nietzsche.
+- I do like the idea of being an auteur in the sense of writing and being in your own stuff.
+- I think I'm just a comedian who's a pretty good con man, and I don't see that changing any time soon.
+- I think it is very important to be a method actor.
+- When I was in high school, I was doing all the plays. My drama teacher, Melody Duggan, was the one one who first made me do stand-up. She's the origin of the whole thing; it's all her. In high school in Denver, that was kind of the beginning of it all.
+- I know about the tech industry in that I follow what apps are hot and software development. I know my way around different browsers. I know how to restart a computer.
+- You just put yourself into your work, and you can do anything you want, depending on how hard you want to work for it.
+- I listen to 'deep dish house'.
+- I am trying to do comedy on every single medium. I consider myself a public servant.
+- I have a tough time with stand-up because I am an improviser. I can riff; I can do crowd work, so I don't prepare.
+- I can't stand Snapchat, but that will be extinct before it is relevant.

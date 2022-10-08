@@ -1,0 +1,43 @@
++++
+author = "Alexandra Adornetto"
+title = "Alexandra Adornetto Quotes"
+quotes_len = "37"
+description = "the best 37 Alexandra Adornetto Quotes"
++++
+- When I wrote 'The Shadow Thief,' I had an obsession with Peter Pan. I get focused on things. In fact, I was an absolute horror to live with at that stage. I had a big fight with my mum because I wanted her to change the windows so Peter Pan could visit me.
+- Because characters are your creations, you are the one who ultimately gets to decide their fate.
+- The subject of angels and demons really grabbed me. There is a huge mass of information, and the Bible is one of the most amazing reference points.
+- Gen Y is depicted as self-centred and apathetic when it comes to politics, but it doesn't help that we are largely overlooked. There have been policies to woo parents, pensioners and the sick, but the young do not appear to rank high on any political agenda.
+- Life is challenging enough without politicians to confuse us.
+- I was the kind of kid who was always making up stories and adventures.
+- As the final weeks of my schooling draw to a close and exams loom, I find myself reflecting on the past six years of my secondary education only to realise that many questions are still unanswered. How have I been shaped by my learning experiences? What skills have I developed that are valuable and transferable in the workplace?
+- I never thought about writing a novel until I was 13, and that happened by chance. I was on school holidays, and I was bored, and I thought I just wanted to do something to occupy myself instead of asking, 'What can I do, mum? Entertain me.' I started, and it really just took over, and I realised, 'Wow, this is an amazing experience.'
+- I'd love to study in the U.S. I visited Vanderbilt in Nashville, and I've been told to check out Ole Miss. There are so many schools that I don't really know where to start. But I do love the U.S. and have met so many supportive and enthusiastic people here while I've been on tour. I could definitely live here!
+- My first book was signed up when I was 13, and I've been writing ever since. But penning the 'Halo' series has been so much more rewarding than I ever expected. For three years, from the age of 16 to 19, I poured my life, my experiences, and a love for the supernatural that dates back to childhood into these books.
+- I remember once seeing a guy in the grocery store who looked so much like my character the Archangel Gabriel, I wanted to go up to him and say, 'Hey, put that Red Bull down. You've already got wings.' My friend had to sternly remind me that he was a stranger and I did not, in fact, create him.
+- I'd read a lot of books where the girls are in awe of the supernatural male, so I thought it was time to write about an awesome and super-powerful female who is also quite vulnerable and naive about life on earth.
+- We teenage girls are faced with a quandary: we know what we want but are forced to wait for our male counterparts to grow up. We are ready for intense and meaningful relationships, but research indicates that males will not reach maturity until their mid-20s.
+- I have never had other kids in the house... I had a huge collection of marbles, and they all had names, which I think concerned my parents. I used to go and sweep outside and talk to myself, and my mum's friends would be over and say, 'Do you realise she is talking to herself?'
+- The young people I know judge leaders by their deeds and abhor hypocrisy. Inconsistency and point-scoring do not win respect. It's not easy to be engaged in political debate when it is reduced to performers trying to outdo each other. Actions from leaders must mirror the values they claim to espouse.
+- Imagination makes us aware of limitless possibilities. How many of us haven't pondered the concept of infinity or imagined the possibility of time travel? In one of her poems, Emily Bronte likens imagination to a constant companion, but I prefer to think of it as a built-in entertainment system.
+- VCE exams do not showcase students' abilities. By this, I mean that the system fails to recognise the diversity of skills, and most subjects do not allow students to demonstrate skills in a form other than a written exam.
+- Here is just the beginning of a list of skills that exam results cannot possibly hope to reflect: interpersonal skills, the ability to entertain, how articulate we are as speakers, our ability to work as part of a team, the ability to deal with challenges and invention.
+- We have a host of English teachers in the family. My mum is an English teacher, and so are my dad, my aunt and my uncle. I have grown up with family writing competitions, and I can't remember a birthday or Christmas present that didn't include books.
+- Apart from a small minority, teenage boys fall into three distinct categories: macho, metro, or just plain muddled.
+- I have a word quota I try to fulfill every day, and I try to do that in the morning and into the afternoon and then go out with friends at night. I love singing and have lessons and enjoy drama, and so I am involved in that.
+- Imagination and invention go hand in hand. Remember how lack of resources was never a problem in childhood games? Shift a few pieces of furniture around the living room, and you have yourself a fort.
+- Literature has been part of my life for as long as I can remember. I can't think back before a time that I didn't love writing and reading. When I was really young, my mother would read poems to me. I loved Edgar Allan Poe - I am sure I didn't understand it, but I loved it.
+- While my seemingly compulsive school-hopping has raised some eyebrows among my peers and caused my parents understandable consternation, I do not regret it.
+- At one school I visited, everyone had read 'Halo,' and they were all dressed up as angels - with halos!
+- My school is very good and quite understanding and know I have to take time off for interviews or writers' festivals.
+- Always, as a child, I would go around the house, and if I found a word that I didn't know the meaning of, I would write it down and ask my parents to define it and try to memorise it.
+- The South is full of memories and ghosts of the past. For me, it is the most inspiring place to write, from William Faulkner's haunted antebellum home to the banks of the Mississippi to the wind that whispers through the cotton fields.
+- Teenagers have a natural curiosity and are keen to clock up experiences. What they need to be wary of is that some experiences may erode their sense of self and lead to a fragmentation of morals.
+- I've had a few embarrassing moments in restaurants. I tried to order a quesadilla, and I totally mispronounced the word. And another time, I asked for some toast with Marmite, and they had no idea what I was asking for!
+- Childhood is just this amazing place, and in my books, I was trying to express my concern about childhood being eroded. You have kids' TV programs being interrupted by terrorist attacks, and kids are exposed to so much these days.
+- When I first told people I was writing a book, some would say that was interesting, but others thought it was some holiday project and I would lose interest. I think my parents thought the same thing, and they were surprised when I kept going. I'm not sure I thought I would keep going, but then it became a big part of my life.
+- Although technology has enhanced our lives in many ways, it has also ensured the erosion of imagination.
+- I hate the idea of any kid missing out on the magic of reading.
+- As young Australians, the value of teamwork has been instilled in us throughout our schooling.
+- I know kids who say they have nothing to do and then go plop themselves down in front of the television to watch a movie or play Nintendo or Xbox. I think there is nothing better for killing creativity and imagination.
+- Writing was something I have always been interested in. I've grown up in a household full of books, with both my parents English teachers and very booky.

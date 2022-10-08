@@ -1,0 +1,77 @@
++++
+author = "Tim Berners-Lee"
+title = "Tim Berners-Lee Quotes"
+quotes_len = "71"
+description = "the best 71 Tim Berners-Lee Quotes"
++++
+- I hope we will use the Net to cross barriers and connect cultures.
+- The Semantic Web isn't inherently complex. The Semantic Web language, at its heart, is very, very simple. It's just about the relationships between things.
+- One of the things I like about the computer that I use is that I can write a program on it or I can download a program on to it and run it. That's kind of important to me, and that's also kind of important to the whole future of the internet... obviously a closed platform is a serious brake on innovation.
+- The Domain Name Server (DNS) is the Achilles heel of the Web. The important thing is that it's managed responsibly.
+- One of the issues of social networking silos is that they have the data and I don't.
+- Anyone who has lost track of time when using a computer knows the propensity to dream, the urge to make dreams come true and the tendency to miss lunch.
+- It's interesting that people throughout the existence of the web have been concerned about monopolies.
+- I think IT projects are about supporting social systems - about communications between people and machines. They tend to fail due to cultural issues.
+- I'm not a fan of giving a website a simple number like an IQ rating because like people they can vary in all kinds of different ways. So I'd be interested in different organisations labelling websites in different ways.
+- I have built a moat around myself, along with ways over that moat so that people can ask questions.
+- We need diversity of thought in the world to face the new challenges.
+- On the web the thinking of cults can spread very rapidly and suddenly a cult which was 12 people who had some deep personal issues suddenly find a formula which is very believable.
+- When you go onto the internet, if you really rummage around randomly then how do you hope to find something of any of value?
+- Any enterprise CEO really ought to be able to ask a question that involves connecting data across the organization, be able to run a company effectively, and especially to be able to respond to unexpected events. Most organizations are missing this ability to connect all the data together.
+- The most important thing that was new was the idea of URI-or URL, that any piece of information anywhere should have an identifier, which will allow you to get hold of it.
+- When it comes to professionalism, it makes sense to talk about being professional in IT. Standards are vital so that IT professionals can provide systems that last.
+- Everybody who runs a Web site knows we're not assured of compatibility, and we could end up with a split.
+- The Web is now philosophical engineering. Physics and the Web are both about the relationship between the small and the large.
+- Most larger companies now see that for the market to grow, Web infrastructure must be royalty-free.
+- Physicists analyze systems. Web scientists, however, can create the systems.
+- It was really hard explaining the Web before people just got used to it because they didn't even have words like click and jump and page.
+- Web users ultimately want to get at data quickly and easily. They don't care as much about attractive sites and pretty design.
+- Compared even to the development of the phone or TV, the Web developed very quickly.
+- Innovation is serendipity, so you don't know what people will make.
+- Celebrity damages private life.
+- I should be able to pick which applications I use for managing my life, I should be able to pick which content I look at, and I should be able to pick which device I use, which company I use for supplying my internet, and I'd like those to be independent choices.
+- The original idea of the web was that it should be a collaborative space where you can communicate through sharing information.
+- Customers need to be given control of their own data-not being tied into a certain manufacturer so that when there are problems they are always obliged to go back to them.
+- In many ways, people growing up with the Web and now the Semantic Web take the power at their fingertips for granted.
+- Sites need to be able to interact in one single, universal space.
+- In '93 to '94, every browser had its own flavor of HTML. So it was very difficult to know what you could put in a Web page and reliably have most of your readership see it.
+- We could say we want the Web to reflect a vision of the world where everything is done democratically. To do that, we get computers to talk with each other in such a way as to promote that ideal.
+- I suppose it's amazing when you think how many things people get involved in that don't work.
+- I want to know if I look up a whole lot of books about some form of cancer that that's not going to get to my insurance company and I'm going to find my insurance premium is going to go up by 5% because they've figured I'm looking at those books.
+- I think when you have a lot of jumbled up ideas they come together slowly over a period of several years.
+- IT professionals have a responsibility to understand the use of standards and the importance of making Web applications that work with any kind of device.
+- The people who designed the tools that make the Net run had their own ideas for the future.
+- There was a time when people felt the internet was another world, but now people realise it's a tool that we use in this world.
+- If you are not on the web, you will have problems accessing services.
+- It's amazing how quickly people on the internet can pick something up, but it's also amazing how quickly they can drop it.
+- Intellectual property is an important legal and cultural issue. Society as a whole has complex issues to face here: private ownership vs. open source, and so on.
+- You affect the world by what you browse.
+- The Google algorithm was a significant development. I've had thank-you emails from people whose lives have been saved by information on a medical website or who have found the love of their life on a dating website.
+- The challenge is to manage the Web in an open way-not too much bureaucracy, not subject to political or commercial pressures. The U.S. should demonstrate that it is prepared to share control with the world.
+- I'm an optimist about humanity in general, I suppose.
+- I basically wrote the code and the specs and documentation for how the client and server talked to each other.
+- The Mobile Web Initiative is important - information must be made seamlessly available on any device.
+- Whatever the device you use for getting your information out, it should be the same information.
+- My own personal preference is that the consumer, the individual person should be protected because individual people and the difference between individual people and the diversity we have between people on the planet is so important.
+- I myself feel that it is very important that my ISP supplies internet to my house like the water company supplies water to my house. It supplies connectivity with no strings attached.
+- I'm very aware there are lots of other people who are just bright and working just as hard, with just the same dedication to make the world a good place.
+- Web pages are designed for people. For the Semantic Web, we need to look at existing databases.
+- Things can change so fast on the internet.
+- The Semantic Web is not a separate Web but an extension of the current one, in which information is given well-defined meaning, better enabling computers and people to work in cooperation.
+- One way to think about the magnitude of the changes to come is to think about how you went about your business before powerful Web search engines. You probably wouldn't have imagined that a world of answers would be available to you in under a second. The next set of advances will have an different effect, but similar in magnitude.
+- What is a Web year now, about three months? And when people can browse around, discover new things, and download them fast, when we all have agents - then Web years could slip by before human beings can notice.
+- The important thing is the diversity available on the Web.
+- The amount of control you have over somebody if you can monitor internet activity is amazing.
+- We shouldn't build a technology to colour, or grey out, what people say. The media in general is balanced, although there are a lot of issues to be addressed that the media rightly pick up on.
+- Imagine that everything you are typing is being read by the person you are applying to for your first job. Imagine that it's all going to be seen by your parents and your grandparents and your grandchildren as well.
+- I don't know whether machine translation will eventually get good enough to allow us to browse people's websites in different languages so you can see how they live in different countries.
+- The Web as I envisaged it, we have not seen it yet. The future is still so much bigger than the past.
+- Any good software engineer will tell you that a compiler and an interpreter are interchangeable.
+- What I do has to be a function of what I can do, not a function of what people ask me to do.
+- We can't blame the technology when we make mistakes.
+- It's difficult to imagine the power that you're going to have when so many different sorts of data are available.
+- I don't mind being, in the public context, referred to as the inventor of the World Wide Web. What I like is that image to be separate from private life, because celebrity damages private life.
+- That idea of URL was the basic clue to the universality of the Web. That was the only thing I insisted upon.
+- When something is such a creative medium as the web, the limits to it are our imagination.
+- The world's urban poor and the illiterate are going to be increasingly disadvantaged and are in danger of being left behind. The web has added a new dimension to the gap between the first world and the developing world. We have to start talking about a human right to connect.
+- Data is a precious thing and will last longer than the systems themselves.

@@ -1,0 +1,60 @@
++++
+author = "Neri Oxman"
+title = "Neri Oxman Quotes"
+quotes_len = "54"
+description = "the best 54 Neri Oxman Quotes"
++++
+- I don't think I would have made for a good doctor. It was not meant to be, and it took me a long time to realize that.
+- Our facial skins are thin with large pores; our back skins are thicker with small pores. One acts mainly as filter, the other mainly as barrier. And yet, it's the same skin, no parts, no assemblies. It's a system that gradually varies its functionality by varying elasticity.
+- We need to treat the planet as a system, and up until now, we've operated more as if the world were made of separate parts - this part is environment, this part is economy. But everything is connected. You can't fix global warming with a Ph.D. in thermodynamics!
+- A great dream of mine would be to run a design studio full of scientists who think about science as creatively as if they were doing art.
+- For the same reason we have the Brad Pitts and the George Clooneys, it's just part of human nature to idolize stereotypes.
+- I often ask myself, 'What would design be like if objects were made of a single part? Would we return to a better state of creation?'
+- The most beautiful products or the most elegant or seductive products, in my mind, are those that tell a story of a process.
+- Craft meets the machine in rapid fabrication. We can generate craft with the help of technology.
+- The world of design has been subjugated by the rigors of manufacturing and mass production.
+- In traditional 3D printing, the gantry size poses an obvious limitation for the designer who wishes to print in larger scales and achieve structural and material complexity.
+- We've managed to motion-track the silkworm's movement as it is building its cocoon. Our aim was to translate the motion-capture data into a 3D printer connected to a robotic arm in order to study the biological structure in larger scales.
+- I loathe categorization. I cherish my independence, and I treasure chivalry. I live just fine with ambiguity, and I welcome a good quarrel about all things designed or grown - except for when men misnomer 'confident' with 'poised' and 'passionate' with 'feisty.' I work hard.
+- I grew up in a modernist house, in a modernist culture. There was a love for modernism everywhere - the furniture, the books, the food, even the cutlery. So I learned very early to appreciate the value of design and the value of architecture.
+- At least since the Industrial Revolution, the world of design has been dominated by the rigors of manufacturing and mass production. Assembly lines have dictated a world made of parts, framing the imagination of designers and architects who have been trained to think about their objects as assemblies of discrete parts with distinct functions.
+- Because glass is at once structural and transparent, it is relatively easy to consider the integration of structural and environmental building performance within a single integrated skin.
+- Prior to the Industrial Revolution, hand-production methods were abundant. Craft defined everything. The craftsman had an almost phenomenological knowledge of materials and intuited how to vary their properties according to their structural and environmental characteristics.
+- When I came to MIT, there were four rubrics: science, art, design, and technology. And as you entered your degree, whether it was a master's or a Ph.D., if you were a citizen in one domain, you were a traveler in the other.
+- It is only through hard work and awareness that we can truly own our identity.
+- I'm not a mother of children, but I'm a different type of mother where my approach to design is more in line with nature. It's less about dictating and more about editing and listening and allowing something to grow. So I nourish and let the material express what it wants to be.
+- Could we design an all-glass building with internal channels and networks for airflow and water circulation? Can we surpass the great modern tradition of discrete formal and functional partitions and generate an all-in-one building skin?
+- Although I often find that the feminist rhetoric - not feminism - can come across as simple-minded, self-regarding, nuance-averse and reductive - biology to physiology, history to psychology, procreation to gynecology, and so on - I have come to realize that we should all be feminists.
+- In the end, it's clear that the incorporation of synthetic biology in product and architectural design will enable the transition from designs that are inspired by nature to designs made with and by nature to, possibly, designing nature herself.
+- Look at spiders. They use about eight different properties of silk for different functions. The spider is like a multimaterial 3D printer.
+- All great cinema has the sense of the dynamic, the transitional, mixed with the mythical and the sense of ritual.
+- I am inspired by alchemy and all things continuous, uninterrupted, and effortlessly fused into wholes.
+- There is a very beautiful expression in the Hebrew language that's borrowed from spoken Torah... 'All is predicted, and permission is given at any point to change anything.' I think I live by this idiom in the sense that there is always a goal; there is always something to look forward to in life and my creative search, and that goal is there.
+- Unlike a pressed or blown-glass part, which traditionally has smooth internal surface features, a printed part can have complex surface features on the inside as well as the outside.
+- If you believe in Cinderella, and if you can suspend your disbelief at midnight, then you can believe in the interdisciplinary midnight, the 'in-betweens,' and become fortunately entangled, moving from art to science.
+- I appreciate good tailoring as much as good details of construction.
+- I like to mostly wear very simple clothes.
+- I believe in the balance between dreaming and building.
+- In nature, there is no separation between design, engineering, and fabrication; the bone does it all.
+- Forms in nature are a byproduct of a reciprocal action between a given material and the conditions of the environment. But in architecture, the process is the direct opposite: First you decide on the form, and then you think how to build it in reality.
+- I approach the world as a whole by taking an integrative approach, not a world of parts, and I like to bring different fields and disciplines together. The same is true with my preoccupation with cultural expression.
+- I like to think of synthetic biology as liquid alchemy, only instead of transmuting precious metals, you're synthesizing new biological functionality inside very small channels. It's called microfluidics.
+- Gender is more of a continuum than we are willing to admit when we hit the restroom.
+- If you think about it, the printing press allowed everyone to print books - it democratised the printing of information. For the first time, we could all print.
+- The 3D-printing technology has been developing at a very rapid pace.
+- In the United States alone, 450 billion square feet of glass facade is produced every year. What if we could take this chance to use the glass to harness solar energy and allow the architecture to respond to the light and heat of the sun, to create photosynthesis and generate solar energy?
+- Nature is a brilliant engineer and builder. It knows how to create seashells that are twice as strong as the most resistant ceramics human beings can manufacture, and it produces silk fibers five times stronger than steel. Nature also knows how to create multipurpose forms.
+- Binaries aside, we are the products of our relationships with our identities - cities we have built, bodies we have embraced, kindred souls we've cherished, our memories, our dreams, the fears we hide, the pain we hold - identities that cannot be reduced to a collection of labels.
+- The second-most abundant biopolymer on the planet is called chitin, and some 100 million tons of it are produced every year by organisms such as shrimps, crabs, scorpions, and butterflies. We thought if we could tune its properties, we could generate structures that are multifunctional out of a single part.
+- I don't think of fashion as fashion or biology as biology.
+- One cannot separate the spider web's form from the way in which it originated.
+- I don't separate architecture, design, or culture. What's more important is a language of creativity that carries meaning.
+- I object to the hegemony of form in contemporary architecture. We have very advanced technological tools, but ultimately, we create buildings exactly like we used to before: We send the drawings to an engineer and let him struggle with figuring out how to build it.
+- The future of design is a future where anything material in the environment - whether it's wearables, cars, buildings - can be designed with this variation of properties and relationship with the environment that can take part in the natural ecology.
+- In many ways, I think I'm still forming my ideas about my own identity in this world.
+- How can we reinterpret 3-D printing in a way that suggests a new design language?
+- I am equally fascinated and awed by visiting an Alexander McQueen show as I am looking under a microscope.
+- When you celebrate a new idea, it immediately comes through the way you hold yourself and the clothes you wear.
+- Choice is a form of compromise, no? So why choose if you can have both?
+- To wear a beautiful new garment is like wearing a new idea, and I see them as the same thing. Opening my closet is a form of meditation. I pick whatever I feel is right for the day.
+- Rarely do we see immediate use of innovative technologies. I believe that the future is built by small pieces that add up.

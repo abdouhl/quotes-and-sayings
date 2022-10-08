@@ -1,0 +1,65 @@
++++
+author = "Amanda Lepore"
+title = "Amanda Lepore Quotes"
+quotes_len = "59"
+description = "the best 59 Amanda Lepore Quotes"
++++
+- The club scene was really like a... they really weren't sure if I was a girl or a transsexual. When they found out, it was celebrated instead of 'Ssshh! Don't tell anyone!' That felt really liberating.
+- Even though I know it's not always the case, I associate dressing up with mental stability.
+- I feel most glamorous in tight-fitting dresses that hug my curves, and the highest heels.
+- If I'm dressed down, I'm sad. If I'm really done up, I feel happy and mentally well.
+- I love the process of dressing up, and people that dress up, and serving looks and drag queens and club freaks and all of that.
+- When I first came to New York I did nails, and I really didn't get a lot of money.
+- I knew I wasn't gay: I liked boys, but not as a boy. I had a woman's mind.
+- I've worked in the gay clubs in Moscow, and the big cities. They're much more tolerant. It's the small cities where you get the prejudice. Kind of like America. Here in New York City, or San Francisco, it's great. But, like, in Tennessee or down South, it gets harder. It's that situation. But it was really bad in Russia because of law enforcing.
+- I don't like 'transgender.' It got so politically correct. I like transsexual - it sounds like a 1950s scandal magazine.
+- At my funeral, someone had better touch up my lips and foundation before they close the casket. That's not a beauty tip. It's a formal request.
+- We need to protect other transsexuals.
+- I was always Amanda, even when I went by a different name.
+- I had the bottom rib broken and pushed in and it took an inch or two off. It really hurt when I lay down but if I was standing up or sitting it was OK. It wasn't horrifying.
+- I'm on Tinder. I work mostly in gay clubs and I would have really bad relationships because I would meet aspiring models or bartenders or go-go dancers... not always the best choices! So I got on Tinder because one of my friends was on it. It's amazing. I can get more of what I like. I love it.
+- I based my lips on Jessica Rabbit.
+- After having the sex change, it was about getting married and fitting in and blending into society, so to speak. When I had jobs, people would say, 'Don't talk about that.' It really made people uncomfortable.
+- I worked on perfect beauty for a lifetime.
+- I don't have relationships for a very long time. I'm famous so that gets in the way. They either really like the spotlight and having a trophy girlfriend or they will not really be crazy for it.
+- Well, my dresses are very tight and mostly all made for me - couture, baby.
+- Kids made fun of me and harassed me.
+- When I was a kid, my mother was hospitalized, she was schizophrenic.
+- A girl can never have enough shoes!
+- I always loved watching old movies and I loved Marilyn Monroe and all those blondes; that hyper feminine 1950s glamour and the exaggeration of it. Then Jessica Rabbit came along and it was an exaggeration of that look and so I wanted to be even more exaggerated than that.
+- I always felt like a girl. My parents in New Jersey weren't exactly encouraging, but my grandmother was very open-minded. She had lots of costume jewelry and a big chest of purses and things, and she would let me play with all of it - even her makeup and perfume. She just didn't care.
+- I'm well-traveled. I've had to get a few passports because I ran out of pages.
+- The bio girls are what kind of inspired me to get into the club scene. I related to them more - like, Dianne Brill was a huge inspiration for me.
+- There is a reason I am labeled 'The Most Expensive Body On Earth.'
+- I was always very body-conscious. Especially when I was transitioning, taking hormones and things. I noticed that I would gain weight quicker. So I would exercise and diet, so everything was how I'd like to look.
+- I like women who transform themselves. It's what I do.
+- I am particular about my look. I always do my hair and makeup by myself.
+- Always be your true self, and surround yourself with positive and supportive people.
+- I really associate glamor with being happy. If you put on high heels and lipstick or get a new outfit, you feel great.
+- Oh, I never read anything. Mostly, I look at pictures.
+- I think Instagram is great, especially for kids, because you can be anything and still find a role model.
+- Okay, so if I'm going out late in the day, I'll use an SPF 30, but during the day, I'll use the SPF 55.
+- I do yoga, go to the gym. I do a lot of weights, a little cardio, lots of squats, lower body stuff. I've had a trainer over the years, that helped get a routine.
+- I eat healthy.
+- Camp was something I'd never heard of until I started working with Susanne Bartsch - then I heard it all the time.
+- The club kids want to come out, show off their unique style, have fun and be themselves. I think that's the way it has always been.
+- Trump is wack and his wife has terrible wigs.
+- I sometimes think about doing getting more stuff done to my body, but not really.
+- Diamonds are a girl's best friend!
+- I'll eat fish, but only once in a while.
+- It's illegal in the U.S., but I had it done in Mexico. They break the floating rib in the back and push it in, so there's no scar.
+- Plastic surgery is for when you don't like things... Everything I've got already looks so good.
+- If you let people walk all over you, they'll just keep doing it.
+- My mother is always on my mind.
+- I had to complete high school at home.
+- Rather than emulate the girls I grew up with who made fun of me, I decided I wanted to look like a movie star. It was like an escape.
+- I love and appreciate my fans so much. They truly are the best gift a girl can ask for!
+- I enjoy meeting my fans, talking to them, taking photos with them. My fans are the best!
+- In school, I was Armand. In boys' clothes. But so small and girlie, I thought I was a girl.
+- I really got into Chanel No. 5 (both the fragrance and the body cream) because Marilyn Monroe was famously a fan, so of course, I had to be.
+- In New York City nightlife in the '90s, everything was camp!
+- I'll use this Midnight Recovery Oil on my face under makeup to get this really dewy look, and then on my body, I like really rich moisturizers. The one I use is Kiehl's Creme de Corps just because it's so thick and lasts.
+- I work and perform in clubs all of the time, so naturally it's an influence for me.
+- With 'RuPaul's Drag Race' getting popular, you see more and more people dressing up and going out.
+- If it were up to me, I'd be using the SPF 100, but I read somewhere that it only protects you up to SPF 50 anyway, and anything higher than that and you're just putting bad stuff onto your skin. So I've always been about staying inside and wearing sunscreen. That's why my skin is like a baby's. Or a 14-year-old girl's.
+- I just do my own thing. I don't really follow fashion.

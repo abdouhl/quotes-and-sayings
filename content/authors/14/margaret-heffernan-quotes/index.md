@@ -1,0 +1,60 @@
++++
+author = "Margaret Heffernan"
+title = "Margaret Heffernan Quotes"
+quotes_len = "54"
+description = "the best 54 Margaret Heffernan Quotes"
++++
+- A great advantage of a large corporation is supposed to be the large pool of talent in which its leaders can find and groom high achievers and successors.
+- When you use words loosely, without care and consideration, you erode trust in yourself and in what you're saying. When you squander words, you diminish your power.
+- In our house, Mother's Day is every day. Father's Day, too. In our house, parents count. They do important work and that work matters. One day just doesn't cut for us.
+- Very few entrepreneurs start their business on the back of market research. Instead, they have tremendous zeitgeist, honed by paying attention to where they are.
+- As a mother, I work hard every day and I expect that work to be recognized and appreciated. Because I work for and with human beings, sometimes they're grateful and sometimes they aren't.
+- Customers who have to come back and spend, or customers who just don't want the hassle of leaving - those are the ones who are most worth attracting.
+- Everyone I know feels harassed by email which has invaded their waking and sleeping hours.
+- The truth won't set us free - until we develop the skills and the habit and the talent and the moral courage to use it.
+- Britain is famous for being great at inventing and poor at commercializing.
+- What do you want your business to do? Make money, of course. To pay for people and supplies, to be able to grow.
+- The vast literature concerning whistleblowers shows that, far from weird extremists, they are really quite ordinary people: male and female, young and old, junior and senior, no more nerdy or obsessive than most hard workers.
+- Speaking is what most people work on. They forget the thinking and the breathing and instead try to occupy space with sound.
+- If the company depends entirely on you - your creativity, ingenuity, inspiration, salesmanship or charisma - nobody will want to buy it. The risk and the dependency are too great.
+- On overnight flights, I have trained myself to get to sleep almost instantly after takeoff. I always listen to the same audiobook on my iPod so my brain knows, regardless of time zone, that that voice means it's time for bed.
+- Many CEOs and leaders think that silence is indeed golden, that consensus is bliss. It is - sometimes. But more often what it signifies is that there are no respected processes for surfacing concerns and dissent.
+- I don't mind if the couple next to me is tense or the kids are whiny. I'd even be happy to hear an honest argument, evidence of thinking. I'd like to know these teeth-perfect families don't just buy each other stuff but just occasionally can talk to one another.
+- All businesses and jobs depend on a vast number of people, often unnoticed and unthanked, without which nothing really gets done. They are all human and deserve respect and gratitude.
+- A great deal of creativity is about pattern recognition, and what you need to discern patterns is tons of data. Your mind collects that data by taking note of random details and anomalies easily seen every day: quirks and changes that, eventually, add up to insights.
+- If we aren't going to be afraid of conflict, we have to see it as thinking.
+- Clearing your head of distractions in order to notice and understand the people you are with can feel inefficient - there are so many other people and issues to think about. But being present makes you effective.
+- If I have to spend a lot of time on planes, I try to think of this as time off. In certain ways, it's more restful than home: no Internet, no phones, no interruptions.
+- Huge open source organizations like Red Hat and Mozilla manage the collaboration of hundreds of people who don't know one another and have spent no time hanging around the water cooler.
+- The medical profession is - and knows itself to be - endemically conservative and conformist.
+- Those in powerless positions aren't about to complain about bullying bosses, abusive supervisors or corrupt co-workers. There is no safe way to do so and no process that promises redress.
+- Once you have power, you are inevitably surrounded by people who have their own agendas and will tell you whatever advances them.
+- I'm all for ambition and stretch goals. I set them for myself. But leadership isn't the same as cheerleading. Believing in something is a necessary but absolutely insufficient condition for making it come true.
+- Making a company fit to sell may be the only way to ensure you never need a buyer.
+- Most executives I know are so action-oriented, or action-addicted, that time for reflection is the first casualty of their success.
+- One of the sad truths about leadership is that, the higher up the ladder you travel, the less you know.
+- In business, staying focused requires that you turn most opportunities down.
+- Phones and soundtracks and Muzak and fountains replace genuine and unpredictable human contact with a seamless soundtrack from a bad movie and a cliche that makes us believe we must all be happy.
+- I don't think a true company - one that builds sustainable value - can ever only exist online or remotely.
+- The healthiest companies are always characterized by organic talent development.
+- Making those around you feel invisible is the opposite of leadership.
+- Building businesses takes tremendous stamina, and success isn't achieved without it.
+- British innovation in design, in the creative arts, in engineering and manufacturing is world class.
+- Words are how people think. When you misuse words, you diminish your ability to think clearly and truthfully.
+- The cell phone has become the adult's transitional object, replacing the toddler's teddy bear for comfort and a sense of belonging.
+- The best remote companies I've seen do almost everything online, via email and telephone. But they also get together face to face on a regular basis.
+- It is nobody's right to be waited on and nobody's fate to do the waiting.
+- The biggest catastrophes that we've witnessed rarely come from information that is secret or hidden. It comes from information that is freely available and out there, but that we are willfully blind to.
+- Every organization has issues and concerns which are known about by many people who choose to remain silent.
+- The single hardest part of leading any organization is knowing what is going on. There's too much noise in the system, too much complexity: you absolutely depend on people speaking up and raising concerns.
+- Companies are bought for their revenue, customer base, technology, or people. A few great companies offer all of these, but any valuable business offers one.
+- I haven't always hated McDonald's. When my kids were little and I lived in the U.S., they were as susceptible as anyone to Happy Meals and tatty toys that subsequently littered our sitting room.
+- I regularly take my entrepreneurship students out walking because I want to get them in the habit of noticing and thinking about what they notice. They have to leave their phones behind to learn the basic lesson: Be where you are.
+- For good ideas and true innovation, you need human interaction, conflict, argument, debate.
+- Research shows that when we read words on paper, it reduces our stress levels by nearly 70 percent. We also read more carefully than on tablets or laptops.
+- I hate people walking down the street listening to the soundtrack of their lives which responds to them but not their setting. I hate the overspill of sound which metro and subway riders are oblivious to because they notice no one and nothing around them.
+- Everywhere I look, there are ads marking Mother's Day. Mostly they conform to stereotype: flowers, jewelry, perfume. Not a lot of books. Not many computers. Few tools. Little that's useful.
+- Most people have their best ideas when they take their minds away from problems they're trying to solve.
+- Noise is a buffer, more effective than cubicles or booth walls.
+- Business is not a science; it is not susceptible to experiments that can be controlled and replicated. Everything in business is too unpredictable for that - every business, employee, product, market is different and keeps changing.
+- How can any company know if its processes, products, people are safe? Only if everyone is watching and telling the truth. The first part can be assumed; the second cannot.

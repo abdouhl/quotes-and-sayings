@@ -1,0 +1,100 @@
++++
+author = "Kate Bush"
+title = "Kate Bush Quotes"
+quotes_len = "94"
+description = "the best 94 Kate Bush Quotes"
++++
+- If I could make albums quicker, I'd be on a roll wouldn't I? Everything just seems to take so much time. I don't know why. Time... evaporates.
+- I don't aim for perfection. But I do want to try and come up with something interesting.
+- People ask what I really did in the three years between 'The Dreaming' and 'Hounds of Love.' I spent it with my family, living a normal home life.
+- When your mother dies, you're not a little girl any more.
+- We have such little mystery in our lives generally because of how we live now. I mean, of course, mystery is all around us, but the way we live our lives now, we're too busy to be bothered with it.
+- I think it's almost a law of nature that there are only certain things that hit an emotive space, and that's what was always special for me about music: it made me feel something.
+- My friends sometimes used to ignore me completely, and that would really upset me badly.
+- One of the main reasons for wanting to perform live again was to have contact with that audience.
+- Thanks to everyone who's encouraged and supported my work over the years.
+- The music industry is in such poor shape; it's in a really bad way, and a lot of people in the industry are very depressed.
+- In your teens, you get the physical puberty, and between 28 and 32, mental puberty. It does make you feel differently.
+- I don't listen to my old stuff very often at all.
+- It's so fascinating to think about how each snowflake is completely individual - there are millions and millions of them, but each one is so unique.
+- I have to say I find it totally astounding that my albums do as well as they do. It's quite extraordinary, and it's actually very touching for me for the albums to be received with such warmth.
+- I was writing from the age of 10, and I was never really into going to discos and dances and stuff. I never told anyone at school that I did that because I feared it would alienate me even more.
+- I think it's important that things are flawed.
+- I love being a mother. I think it's the best thing I've ever done, and I personally feel that it's had a very positive effect on my work. I think it's an encouraging force for creativity, it feeds creativity - it did for me, certainly.
+- Albums are like diaries. You go through phases, technically and emotionally, and they reflect the state that you're in at the time.
+- It's not my ambition to be a big star.
+- Sometimes when I'm going to the supermarket to get the coffee and cat litter, I get freaked out and see all these people staring, and you turn around and there's, like, 40 people all looking at you... and when you go around the corner, they're all following you! You start freaking out like a trapped animal.
+- I'll always be tough on myself.
+- I am just a quiet reclusive person who has managed to hang around for a while.
+- I suppose I do think I go out of my way to be a very normal person, and I just find it frustrating that people think that I'm some kind of weirdo reclusive that never comes out into the world.
+- I'm a very strong person, and I think that's why, actually, I find it really infuriating when I read, 'She had a nervous breakdown' or 'She's not very mentally stable, just a weak, frail little creature.'
+- There's always ideas buzzing around, but it's whether they actually end up materialising into a song.
+- Gene Wilder is so funny.
+- I had friends but I was spending a great deal of my time alone and for me that was vital because there's an awful lot you learn about yourself when you're alone.
+- I listen to very little music, particularly contemporary. If I listen to it, it's going to be my own music, some arrangement or something. I spend so much time listening that the way I relax is by watching things, a comedy; that's my way to wind down.
+- For me, having a child is a really great responsibility because you've got something there that is depending on you for information and love until a certain age when it goes to school.
+- When I was signed, that was before the punk thing even happened.
+- I think we all feel geeky at times, don't we? Isn't that all a part of the wonderful tapestry of life?
+- My music can be a little obscure. It does worry me that the music might be too complicated for people to take in - that they have to work too hard at it.
+- I'm the shyest megalomaniac you're ever likely to meet.
+- My first Top of the Pops I didn't want to do. I was terrified. I'd never done television before. Seeing the video afterwards was like watching myself die.
+- I don't get out to parties often.
+- My father was always playing the piano. He played all kinds of music - Gershwin, all kinds of stuff.
+- I think snow is so evocative and has such a powerful atmosphere.
+- I didn't really feel that there were any filler tracks on 'The Red Shoes,' but if I were to do that album now, I wouldn't make it so long.
+- Quite understandably, people think that if there's a six-year gap or whatever, that it's taken me six years to make the album. It's not really like that at all.
+- As we become this one global culture, in some ways it's things like the weather and nature that still hold our culture as unique to where we are.
+- My parents weren't keen on the giving up of school at the beginning to go into singing and dancing, but once they saw I was serious about it, they gave support. I was quite stubborn about my decision, and in the end, they realised it was for the best.
+- In a popular medium, you're going to get loads of stuff that is trite, but there'll also be some really special moments.
+- I've read a couple of things that I was sort of close to having a nervous breakdown. But I don't think I was. I was very, very tired. It was a really difficult time.
+- I guess what all artists want is for their work to touch someone or for it to be thought provoking.
+- I suppose the worst case scenario is that people will get to the point where they can't actually afford to make what they want to make creatively. The industry is collapsing.
+- I definitely don't think of myself as being an influence.
+- But I don't have a very good track record with royalty. My dress fell off in front of Prince Charles at the Prince's Trust, so I'm just living up to my reputation.
+- Since I was 17, I had been just making records and promoting them.
+- The freedom you feel when you're actually in control of your own music is fantastic.
+- Obviously I try to make the best music that I can, but after about two years of making an album, you start to worry: 'Is it going to come out all right? Is it all going to sound churned out?'
+- I think I was just lucky to be brought up in a very musical family. My two older brothers were, and still are, very musical and very creative, and music was a big part of my life from a very young age, so it is quite natural for me to become involved in music in the way that I did.
+- People said I couldn't gig, and I proved them wrong.
+- I hear odd tracks from my albums every now and again on the radio, or maybe a friend plays me something.
+- I think probably the only thing that is around in these songs is that I was really lonely when I wrote a lot of them. But it was really by my own choosing because I was devoting myself to songwriting and dancing and I wasn't really going out and seeing people.
+- I'm not sure there are a lot of things I'd want a manager for. I suppose I feel that at least the decisions I make are coming from me, and I'm not put into a situation that I wouldn't want to be in.
+- I have a little boy, and I wanted to spend a lot of time with him.
+- I understand that people want to just listen to a track and put it on their iPod, and that's fine, there's nothing wrong with that, but why can't that exist hand in hand with an album? They're such different experiences.
+- When I started music, I think it was responsible for keeping me sane, because training as a dancer really kept me in good spirits amid all the crazy stuff that happened when I first became popular.
+- I don't read newspapers, and I've said I don't watch the news. I love books, but I don't read much. What I do is I get people to read to me, and I put the stories in my head.
+- The more I got into presenting things to the world, the further it was taking me away from what I was, which was someone who just used to sit quietly at a piano and sing and play. It became very important to me not to lose sight of that.
+- It's so important to me to do the washing, do the Hoovering. I don't ever want to lose contact with that.
+- I used to enjoy bad television, like really bad quiz programmes or sitcoms.
+- If you believe in what you do and you really want to be in music, just stick at it. It's always a learning process. Enjoy it because I think making music is a privilege, really. In an ideal world, it should also always be fun. As much as possible, make it fun.
+- There is a figure that is adored, but I'd question very strongly that it's me.
+- Whenever I see the news, it's always the same depressing things.
+- I could find faults with all my albums because that's just a part of being an artist - it's hard being a human being, isn't it?
+- I had an incredibly full life with my imagination: I used to have all sorts of trolls and things; I had a wonderful world around my toys and invented people. I don't mean I had imaginary friends; I just had this big imagination thing going on. I didn't need any imaginary friends, because I had so much other stuff going on.
+- I think quotes are very dangerous things.
+- I was aware of a lot of my friends being into things I wasn't into. Like sarcasm. It had never been a part of my family - they still don't use sarcasm.
+- Writing, film, sculpture, music: it's all make-believe, really.
+- It's not important to me that people understand me.
+- I want to be in a position where I can function as a human being.
+- People weren't even aware that I wrote my own songs. The media just promoted me as a female body. It's like I've had to prove that I'm an artist.
+- I think that there's always room for humour in music. It's something that always takes itself so seriously, which I think is a bit of a shame.
+- I wasn't an easy, happy-go-lucky girl because I used to think about everything so much, and I think I probably still do.
+- I have a theory that there are still parts of our mental worlds that are still based around the age of between five and eight, and we just kind of pretend to be grown-up.
+- I do have the odd dream where I'm on stage and I've completely forgotten what I'm meant to be performing - so they are more nightmares than dreams.
+- Clothes are such a strong part of who a human being is.
+- I have this desire in the back of my mind now of making music and film at the same time - putting the two together.
+- That's what all art's about - a sense of moving away from boundaries that you can't in real life. Like a dancer is always trying to fly, really - to do something that's just not possible. But you try to do as much as you can within those physical boundaries.
+- I don't know about hiding away, but I really only like to present myself when I'm working on something - it's more my work I like to present to the world rather than myself.
+- I love being with my friends, relaxing and talking.
+- School was a very cruel environment, and I was a loner. But I learnt to get hurt, and I learnt to cope with it.
+- My life and my work are very interlocked. That's partly why I like to keep my private life private.
+- I don't really see myself as a celebrity, but more as a sort of mitre.
+- Originally, when I wrote the song 'The Sensual World' I had used text from the end of 'Ulysses.' When I asked for permission to use the text, I was refused, which was disappointing.
+- For the last 12 years, I've felt really privileged to be living such a normal life. It's so a part of who I am.
+- It's not that I don't like American pop; I'm a huge admirer of it, but I think my roots came from a very English and Irish base. Is it all sort of totally non-American sounding, do you think?
+- Touring is an incredibly isolated situation. I don't know how people tour for years on end. You find a lot of people who can't stop touring, and it's because they don't know how to come back into life. It's sort of unreal.
+- What I've tended to do is to use my own experiences to get into someone else's mind, like in Wuthering Heights.
+- I really love Hitchcock; I think he was a complete genius, to me one of the best directors. Such a sense of how to put things together.
+- I work in a very contained environment, usually.
+- I am just trying to be a good, protective mother. I want to give Bertie as normal a childhood as possible while preserving his privacy.
+- The great thing about vinyl is that if you wanted to get a decent-sounding cut, you could really only have 20 minutes max on each side.

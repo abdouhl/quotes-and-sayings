@@ -1,0 +1,34 @@
++++
+author = "Mel B"
+title = "Mel B Quotes"
+quotes_len = "28"
+description = "the best 28 Mel B Quotes"
++++
+- I work out two or three times a week, whether it be a run or a workout class, a hike... I really try and mix it up a little bit so that it keeps me interested. I have a gym in my house, so if all else fails, I'll get on the running machine and book a movie or some crappy reality TV and just zone out.
+- Half the struggle is just getting yourself to the gym or getting yourself in your workout gear and ready for action.
+- I know I'm not everybody's cup of tea. I'm just me.
+- I would love to have twins. I think there's something nice about having two babies, and they're there for each other their whole entire life.
+- If my senses don't feel right then I don't do it.
+- Hopefully, next year if we can get everything sorted out and together.
+- Running strips you and works your core, mixing it up with different exercises so your body doesn't get used to one thing, so you can really get intense with your workout. I never like to stick to one thing; otherwise, you don't really see that many results.
+- Love me or hate me, Scary Spice is back.
+- Sometimes I can be tactful and sometimes not. It all depends on the mood I'm in.
+- I've always said that kids should enhance your life, not hinder your life, so I just try to make the most out of being with my kids. You have to have a life for yourself somewhere in the mix of being a wife and mum.
+- I didn't want my daughter to grow up in that intense attention - wherever we went, we'd get paparazzi. There are bigger, better superstars in America, so I thought, 'I'll go there for a quick holiday, and relax.' And my holiday just turned into me loving it and wanting to stay there longer and longer.
+- I live my life on self-belief and I live it partly on going with the flow.
+- I'm overly excited to finally announce this amazing global partnership deal back home with EMI Music. I know I have mentioned doing music in the past but for legal reasons I was not in a position to release any new music.
+- My mum enrolled me in this free dance class because I had so much energy in the night-time, and she just wanted me to go to sleep. I ended up falling in love with dancing, singing, acting, the whole entertainment world. Then, my mum ended up taking on an extra job so she could fund me to take singing lessons or go to drama classes.
+- I know about investment. It's really obvious - you buy property, let it sit for a couple of years and then sell it and reinvest.
+- Look, everything that you experience as a kid is the foundation of how you are today. I was brought up in a working class family in Leeds and when it comes to money both my parents worked hard and instilled the same attitude into me.
+- I collect art. I just recently bought two gorgeous photographs of Marilyn Monroe by international photographer Eve Arnold and I know it sounds horrible but when she dies all her pictures are going to be worth triple. But I won't tell you how much I got them for - let's just say it was a lot.
+- When somebody says something as a joke, the British press take things and twist them.
+- I'm just me. I'm just very opinionated. I react to whatever I see. If it's good, it's good. If it's bad, it's bad. I don't mince my words.
+- I'm always down for a Spice Girls reunion. I love the Scary hair and platforms. Any time of day or night I'll be there.
+- A question is a question at the end of the day. It's up to me if I want to answer them.
+- I live on my gut instinct.
+- I've always been pretty independent, no matter what situation: good, bad, ugly, happy, sad. I dig deep, and I get over it.
+- I think everybody can be as fit as they can be for their particular body if they work out and eat healthily.
+- We always knew Victoria was going into fashion, Mel C was going into music, Emma went into radio, and I wanted to do a bit of everything.
+- The way that I live my life is on spontaneity.
+- I'm well-travelled so I can see places coming up. I went to St. Croix in the West Indies at Christmas and it had been hit by a really bad tornado. Values there have gone down but I guarantee they will be up again in eight years. So I'll get in now while it's cheap as chips.
+- Whether I was dancing around the house with headphones on or on stage with the Spice Girls... I learned firsthand that dancing was the key to shedding off the pounds and keeping them off.

@@ -1,0 +1,19 @@
++++
+author = "Alexis Denisof"
+title = "Alexis Denisof Quotes"
+quotes_len = "13"
+description = "the best 13 Alexis Denisof Quotes"
++++
+- Anybody who believes and experiences their life and doesn't have shades of gray in it doesn't live where I live and is simply not in touch with the reality of the human condition.
+- I think with the smaller-scale projects, the burden for success falls more squarely on the shoulders of the actors and the director and the script.
+- I was dishwasher, then promoted to chef in a local kitchen in a restaurant in Seattle, and I was working on a building site as well, putting in insulation and painting houses, and then doing some classes at a community college nearby.
+- I think we're all fascinated and a little mystified by how the brain works. One of the most mysterious of the physical sciences is neurological science.
+- By the time I had finished my studies at St. Paul's School, I knew I wanted to be an actor.
+- The inherent corruption of man can often bring down the best system.
+- The American story is a story of great moments and dreadful moments.
+- I've got nothing against big-budget values. I mean, I was very proud of 'The Avengers,' the part that I played in it, albeit a small one. It was thrilling to be part of it. But it's so huge that you can never really wrap your mind around it.
+- I moved to Seattle when I was two or three years old. Had my early education there, and would spend summers on the farm in Maryland. Then I went to boarding school in New Hampshire, to St. Paul's School. From there, I moved to London.
+- That's an important lesson for me, to not qualify my experience against somebody else's. My experience is the experience that I wanted to have, and have created for myself, but it doesn't make me any more deserving than anybody else - or less.
+- I think most people in the developed world would admit to carrying some sort of handheld device, whether it's a laptop or a cell phone, at all times.
+- You learn a lot about a person when you work together.
+- My grandfather was from outside of Moscow, and my grandmother, although some of her family were French, was from Odessa. They met as immigrants in New York in the early '20s. My mother's family came over from Ireland generations ago.

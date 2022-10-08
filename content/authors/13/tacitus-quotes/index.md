@@ -1,0 +1,43 @@
++++
+author = "Tacitus"
+title = "Tacitus Quotes"
+quotes_len = "37"
+description = "the best 37 Tacitus Quotes"
++++
+- Prosperity is the measure or touchstone of virtue, for it is less difficult to bear misfortune than to remain uncorrupted by pleasure.
+- Reason and judgment are the qualities of a leader.
+- It is less difficult to bear misfortunes than to remain uncorrupted by pleasure.
+- Noble character is best appreciated in those ages in which it can most readily develop.
+- The desire for safety stands against every great and noble enterprise.
+- It is human nature to hate the man whom you have hurt.
+- Things forbidden have a secret charm.
+- Custom adapts itself to expediency.
+- Greater things are believed of those who are absent.
+- A bad peace is even worse than war.
+- The more corrupt the state, the more numerous the laws.
+- Truth is confirmed by inspection and delay; falsehood by haste and uncertainty.
+- Many who seem to be struggling with adversity are happy; many, amid great affluence, are utterly miserable.
+- Fear is not in the habit of speaking truth; when perfect sincerity is expected, perfect freedom must be allowed; nor has anyone who is apt to be angry when he hears the truth any cause to wonder that he does not hear it.
+- To plunder, to slaughter, to steal, these things they misname empire; and where they make a wilderness, they call it peace.
+- It is always easier to requite an injury than a service: gratitude is a burden, but revenge is found to pay.
+- To show resentment at a reproach is to acknowledge that one may have deserved it.
+- It belongs to human nature to hate those you have injured.
+- A desire to resist oppression is implanted in the nature of man.
+- He that fights and runs away, May turn and fight another day; But he that is in battle slain, Will never rise to fight again.
+- Valor is of no service, chance rules all, and the bravest often fall by the hands of cowards.
+- When men are full of envy they disparage everything, whether it be good or bad.
+- Abuse if you slight it, will gradually die away; but if you show yourself irritated, you will be thought to have deserved it.
+- Those in supreme power always suspect and hate their next heir.
+- All enterprises that are entered into with indiscreet zeal may be pursued with great vigor at first, but are sure to collapse in the end.
+- Old things are always in good repute, present things in disfavor.
+- Candor and generosity, unless tempered by due moderation, leads to ruin.
+- A shocking crime was committed on the unscrupulous initiative of few individuals, with the blessing of more, and amid the passive acquiescence of all.
+- We see many who are struggling against adversity who are happy, and more although abounding in wealth, who are wretched.
+- Be assured those will be thy worst enemies, not to whom thou hast done evil, but who have done evil to thee. And those will be thy best friends, not to whom thou hast done good, but who have done good to thee.
+- In a state where corruption abounds, laws must be very numerous.
+- No one would have doubted his ability to reign had he never been emperor.
+- Love of fame is the last thing even learned men can bear to be parted from.
+- Victor and vanquished never unite in substantial agreement.
+- When the state is most corrupt, then the laws are most multiplied.
+- When a woman has lost her chastity she will shrink from nothing.
+- All things atrocious and shameless flock from all parts to Rome.

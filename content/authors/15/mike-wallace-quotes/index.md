@@ -1,0 +1,56 @@
++++
+author = "Mike Wallace"
+title = "Mike Wallace Quotes"
+quotes_len = "50"
+description = "the best 50 Mike Wallace Quotes"
++++
+- I'm nearing the end of the road and still learning.
+- I did what I felt that I wanted to do. Fairly selfishly. I didn't know my kids as well as I should have.
+- In making the jump from a local program to the showcase of a coast-to-coast broadcast, Ted Yates and I were determined to maintain the candid, sometimes combative style we'd introduced on 'Night Beat.' But that proved easier said than done.
+- In the best of all possible worlds, everybody would be honorable, but that's not the way the world works. Reputations for reporters are made by discovering things underneath that rock.
+- There's not a better job in journalism than the one we have, seriously on '60 Minutes' - not a better job.
+- We were the first people who did investigative stuff, who asked occasionally abrasive, occasionally confrontational questions.
+- I even asked Eleanor Roosevelt difficult questions and she loved it.
+- Even a liberal reporter is a patriot, wants the best for this country. And people, your fair and balanced friends at Fox, don't fully understand that.
+- I never was the story. The story was the story. Period.
+- I cared enough to read and look at and worry about the questions.
+- What's an ambush interview? You walk up to a fellow who you want to talk to, and he hasn't been - he hadn't been willing to talk to you before. You've sent him letters, and you've tried to talk to him on the phone. So you walk up to him on the street and ask him a question - that's an ambush?
+- The problem became this: We became a caricature of ourselves. We were after light, and it began to look as though we were after heat, not to reveal some information or not to find out the story.
+- Jack Kennedy was one year older than I was, and we attended the same neighborhood school.
+- When I came to CBS it was the mother church. I mean that was - everybody wanted to go to work for CBS News.
+- My parents came from Russia and suddenly they wound up in Boston, Massachusetts, Brookline, Massachusetts and they felt the sun rose and set on Franklin Delano Roosevelt's backside because he meant so much to them. This was freedom. This was something totally different from the Russia they had left.
+- When I went to Ann Arbor, University of Michigan, what I really wanted to be was a radio announcer.
+- To go around the world, to talk to almost anybody you want to talk to, to have enough time on the air, so that you could really tell a full story. What a voyage of discovery it was.
+- I don't think I have the face - may have the voice but not the demeanor for an anchor. And I defied it.
+- As I approach my 88th birthday, it's become apparent to me that my eyes and ears, among other appurtenances, aren't quite what they used to be. The prospect of long flights to wherever in search of whatever are not quite as appealing.
+- You know, you become crazy. I had done a story for '60 Minutes' on depression previously, but I had no idea that I was now experiencing it. Finally, I collapsed and just went to bed.
+- I'm just not that comfortable writing so much about myself.
+- Yeah, I was a pretty good kid, you know, I was - I was- I was an overachiever and I worked very hard, played a hell of a fiddle.
+- I love the urgency of what we do. I like the battles that take place, the jousting.
+- I read rip-and-read news, but I wasn't a reporter. I was reading the wire, and the other thing was, I was reading commercials - and I could do a hell of a commercial.
+- You're not a nutcase if you want to go see a psychiatrist.
+- Rooney, of course, he believes that he is the reason that people stick around all the way through the show. They'll put up with anything, you know, in order to get to Rooney, and that's why we're at number 16 or 14 or whatever.
+- I'm a reporter; you can't subpoena people to talk to you. If you write to them and try to call them on the phone and they don't answer or so forth, then take them unawares.
+- I used to have acne when I was a kid growing up. You can imagine how serious that was in making you feel bad. And I had skinny bow legs. I mean, as a kid growing up, I was an insecure fella.
+- I feel fulfilled when we've revealed a person.
+- Covering Richard Nixon's triumphant run in 1968 turned out to be my last major assignment as a general correspondent for CBS News. In September of that year, '60 Minutes' made its debut and I began the best, the most fulfilling job a reporter could imagine.
+- But I was never, you know, when I see some kids today who are close to their parents, close to their friends... I think it's simply wonderful. I was not a happy kid. Back in those days, I remember the sick, gray days were better. Because when it was sunny I'd feel worse.
+- You want to put a man at ease.
+- I met all these important people and did all these stories, but I always had such excellent producers and assistants. I could show up to interview a world leader or a criminal and they would have things so well prepared anyone could have done it. It wasn't about 'me,' it was about 'us.'
+- All I'm armed with is research.
+- I was so low that I wanted to exit. And I took a bunch of pills, and they were sleeping pills. And at least they would put me to sleep, and maybe I wouldn't wake up, and that was fine.
+- I did game shows, I did interview shows, I did talk shows, I did commercials, I did acting. But all of that was a million years ago.
+- I have no doubt that what we started has become a plague. Because - and that's a million years ago but we got caught up in the drama more than we caught up in going after the facts.
+- I went to work when I was a young fellow and I loved what I did. And I just kept working. And when I decided that maybe the time had come for me to quit, I got depressed. What could I do if I didn't work?
+- Retiring is one thing. Being retired is something else altogether.
+- I was copeless. Not just hopeless, but copeless. I tried to keep on working because I was ashamed of acknowledging the fact that I was depressed. You don't use that word.
+- It's astonishing what you learn and feel and see along the way. That's why a reporter's job, as you know, is such a joy.
+- I cannot improve on those spoken for many years by a true legend who preceded me at CBS News. He would say, simply, 'good night, and good luck.'
+- I was always nosy and can you imagine a better 60 years, 40 of which or 37 of which traveling any place in the world.
+- There's nothing, repeat, nothing to be ashamed of when you're going through a depression. If you get help, the chances of your licking it are really good. But, you have to get yourself onto a safe path.
+- Can you imagine the most trusted man in America? Cronkite deserved it too.
+- I had my hearing aid fixed today so that I could properly hear you. I can't see as well. I now have - this has stopped me from smoking - a pacemaker, have for about the last 15 years. No, I don't like getting old.
+- Even though Jack Kennedy and I were about the same age and lived in the same neighborhood and attended the same elementary school, our paths seldom crossed during the years he lived in Brookline. I'm sure that in time, I would have gotten to know him better if he hadn't moved away.
+- We used to sit around and chortle, 'Look what this guy said five years ago, and today look what he's doing. Let's stick it to him!' It's as simple as that, I swear.
+- Let the answer hang there for two or three or four seconds.
+- If there's anything that's important to a reporter, it is integrity. It is credibility.

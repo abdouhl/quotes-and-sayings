@@ -1,0 +1,38 @@
++++
+author = "Adrian Grenier"
+title = "Adrian Grenier Quotes"
+quotes_len = "32"
+description = "the best 32 Adrian Grenier Quotes"
++++
+- Because when you go out, and you have fun, basically you're performing for these tabloid outlets and the paparazzi. And when you perform and create this story, they're chuffed - they get excited, they capture it, and they put it out.
+- Not to say that you shouldn't strive for success, but don't forget why you're doing it. It's not just for adoration.
+- I don't shop. I haven't shopped in about four years.
+- You can't scale if you do it alone, you really need to work with others.
+- I have always chosen roles that I believed in - not ones that I thought might further my career.
+- I want to show people that environmentalism can be fun!
+- I think we need to recognize that learning is a lifelong goal, a lifelong experience.
+- Once you get into the habit of work, you can be more productive in the things you want to do.
+- We are on parallel paths with the planet. The wants and needs of marine wildlife are our own: we want connection, companionship, a healthy clean environment.
+- Tabloids can be fun. I see stuff sometimes and have a good laugh.
+- I think winter wear is communal. You get some gloves and a scarf from a lost-and-found box, wash them, wear them for a while until you lose them. Then somebody else does the same thing.
+- I think, in a lot of ways, celebrities represent the American dream. They have financial fluidity and options at their disposal.
+- You ask any actor - they'll tell you they'd rather shoot on location because you don't have to invent the energy, the energy is there.
+- Secondly, love and relationships are complicated. No one could ever get it right in a four-line sentence.
+- Celebrities become divas because they get pampered so much, babied so much - then they get used to it.
+- What is important is family, friends, giving back to your community and finding meaning in life.
+- I think anybody who's famous has to deal with their fame in their own way, and I dealt with it by making a film about a kid who's looking out into the world of celebrity obsession.
+- Success is knowing that your contribution is what helps the collective.
+- We have a lot to learn from everyone.
+- Being performers, that's what we do: We put on shows and want people to watch.
+- I don't need success, I just need to be constantly evolving.
+- We learn from each other. We learn from others' mistakes, from their experience, their wisdom. It makes it easier for us to come to better decisions in our own lives.
+- I was rebellious.
+- My family is mostly a chosen one. I've managed to invite some really amazing people into my life and they become family. Brothers, sisters, siblings, mentors, role models. And I like to live that way, where your family bleeds out into the larger community.
+- It's enough to indulge and to be selfish but true happiness is really when you start giving back.
+- Certainly, if it had been anything other than an HBO show I'd probably still be in Mexico now with a Mexican wife and kids.
+- I can't tell you what your purpose is, that's got to come from you.
+- My only ambition when I came to Hollywood was to pay my rent.
+- I'm one with New York, and New York is one with me. I grew up there; there's no escaping it. We're like Siamese twins, if you separate us, I'll die.
+- Well, obviously I'm not Mark Wahlberg - I have much better abs and I look much better in a pair of Calvin Kleins but when I saw Mark Wahlberg interacting with the world, I realised that his stardom was sort of a result of the movies he had done and the publicity that he had got and the work that he did.
+- It's really important to find a humble approach to your own creative work, your own business work. To recognize that you can't do everything yourself.
+- I have a bunch of concepts and ideas that I want to do but I have also been growing my production company in general and looking to branch out of projects that I am directing and producing.

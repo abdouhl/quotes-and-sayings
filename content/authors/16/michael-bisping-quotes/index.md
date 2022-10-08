@@ -1,0 +1,104 @@
++++
+author = "Michael Bisping"
+title = "Michael Bisping Quotes"
+quotes_len = "98"
+description = "the best 98 Michael Bisping Quotes"
++++
+- UFC has done a fantastic job of establishing the biggest leading brand in mixed martial arts. Years ago, many people didn't know what MMA was nor understand the sport.
+- I'm not going to please everyone; not everyone's going to like me. I accepted that a long time ago, and if I had to shed a tear every time I got a hate email, believe me, I'd be severely dehydrated.
+- I always wanted to be the champion, and I had belief in myself that I could achieve it. But along the way, of course, you've also got to be a realist. You lose a couple of fights here and there, and you think maybe it's not going to happen.
+- I fought Dan Henderson in 2009, and I lost, and that was at UFC 100 - UFC 100 was the biggest pay-per-view the company's ever done. 1.6 million pay-per-view buys, watched all over the world, and of course, I get knocked out cold after talking lots of smack leading up to the fight. So I got my just desserts in that one.
+- I'm not homophobic in the slightest. I have lots of gay friends.
+- I want to be world champion, and that's why I've worked for an entire lifetime to get here.
+- As a fighter, you know when you connect with a really good shot because you feel the impact on your fist.
+- You can push my buttons all you want and say whatever you want about me, and that's fine... fighters do that.
+- The mind controls everything; it really does.
+- One of my proudest moments is definitely UFC 105 in Manchester when I stopped Denis Kang in the second round.
+- Big respect to Dan Henderson.
+- Due to the UFC educating people on MMA as a sport, people give us the respect as athletes, opening doors to opportunities which wasn't available in the past. It has been amazing to be part of the UFC journey.
+- I used to do traditional weapons training, and I wasn't bad with a sword.
+- It seems like every problem you can have with an eye, I had.
+- I can wrestle a little bit, but I'm not Chael Sonnen.
+- I'm generally an optimist, but of course, when you've been with the UFC for a decade and still not had a title shot, there is a little part of you that wonders if it will ever happen.
+- I haven't seen any of the Cung Le movies, but I have seen the Cung Le Q&A that he did in San Jose, and I've got to say that was pretty hard to watch. That was pretty cringeworthy. Listen: stick to kicking; sticking to kicking eggs and setting Guinness World Records, because entertaining a crowd certainly isn't your thing.
+- Once I started fighting in UFC, things took a big U-turn. After my second fight, I came home and paid my mortgage off.
+- I used to be weak - as did all British fighters - with wrestling, because we don't have high school wrestling or college wrestling here.
+- Obviously, every fighter wants to be the world champion, and that's what I want to achieve.
+- I want to be the first British person to lift a UFC World Title.
+- You've got to sell fights; you've got to be entertaining.
+- I think it's just in human nature: if you've got two guys fighting, and you don't really know them, you're going to root for the guy who comes from your country.
+- I swear to God, I don't even know who Demi Lovato is. My son has a crush on her. Apparently, he was sat next to her when I knocked Luke Rockhold out, so Demi Lovato knows who I am, that's for sure.
+- A long time ago, I had a bird that annoyed me, and the bird had to go. The bird's neck was snapped. I would also snap Conor McGregor's neck in a similar fashion.
+- Best move is probably the flying knee I used in the Ultimate Fighter semi-final v Ross Pointon in 2006.
+- I went to college and did advanced electronical engineering, not really knowing what I wanted to do. It bored me to death, so I dropped out.
+- I'm a fighter through and through, and I've got more heart and more determination than anybody.
+- There's no shortage of fighting talent in the UFC; that's what makes it such a great organisation, and that's why I'm so proud to be a part of it.
+- I often put my foot in it a little bit sometimes.
+- I beat Anderson Silva and then Luke Rockhold, who was, pound-for-pound, one of the best. Now I get to do Dan Henderson, who is a legend in the sport.
+- The underdog status suits me just fine.
+- I just like doing normal things, going to the shops in Manchester, getting a meal with my girlfriend and kids, going to the cinema. I love Las Vegas and there places, but I couldn't live there.
+- I'm an emotional fighter; that's no secret. But it can be detrimental.
+- Anderson Silva kind of took the best part of Rich Franklin out of his soul, and he was never the same again.
+- In MMA, I found my calling.
+- I've beaten a lot of great fighters, but people say the big ones, I've lost them all. I don't want to go down as a guy who loses his big fights.
+- For so many years, people have used the expression 'poster boy of British MMA,' but I've never seen myself as that; I certainly never described myself as that.
+- Fighting is different than other sports because you're not competing as regularly.
+- Back then in the early '90s, people weren't calling it MMA - we called it Knockdown Sport Budo.
+- Of course it's an honour to be fighting at UFC 100, but I don't sit back and think about that. For me, it is only ever about winning.
+- The more in shape you are, the harder you can push yourself.
+- I have nothing against America; I love spending time there. I fell in love with the country the very first time I went out there, and I have a lot of fans in the U.S.
+- Stefan Struve's an amazing talent.
+- I love the way of life out in California, and I've made a lot of friends out there. The food is amazing.
+- I've been on both sides of the boos.
+- Financially, I've done very well doing what I do. I've got plenty of money in the bank. I've got gigs with FOX doing analyst work, media work. The UFC has been very kind to me. Ultimately, however, I want to be world champion. I have to achieve that to validate my entire career.
+- If a football player has a bad game, he's allowed to do that because he plays once or twice a week. With fighting, it's once every few months.
+- I'm in a sport where, on their day, anyone can beat anyone else if they are at the top of their own game.
+- I've had ups and downs in my career, and if you look at it as a bookmaker, the odds of me becoming a world champion were never in my favour, but I never stopped believing in myself and never stopped trying.
+- A lot of Americans say the food in England sucks. I don't think the food in England sucks - the food is great - but I've got to say, the Americans have got the dining out experience nailed down.
+- '300' is a bit cheesy but enjoyable.
+- I hate it when people call me a cage fighter. I'm a mixed martial artist. But people take one look at what we do, and they just start making assumptions.
+- I am very, very hungry to compete.
+- It's going to take more than one loss for me to hang up my gloves; that's for sure.
+- Ultimately, when two professionals meet, I don't really see the location as being a defining factor. If you're a psychologically weak fighter, maybe it would be. But if you're a seasoned pro, it doesn't really come into it.
+- I have been involved in this sport since I was eight years old, so, hopefully, I can train and coach athletes down the line.
+- All I do is fight, consistently, the best guys in the world, and sure, I've lost a couple here and there, but I've certainly won the majority of my fights. There are those who pick and choose opponents and try to pad their record along the way, but I've never done that.
+- I hate the expression, 'I'm not fake.'
+- Fighting in England, for me, is the height of my career. It really is.
+- I'm a proud Brit and a proud Englishman.
+- I don't need others to push me. I push myself.
+- I was a big fan of martial arts movies - Bruce Lee in particular, as cringeworthy as it is. Jean-Claude van Damme was a big inspiration as well - it's a little embarrassing.
+- Maybe when I'm done fighting, I'll open a gym and manage fighters and train fighters.
+- A lot of people get up to the top of the pile, maybe get one No. 1 contender match-up, and if they lose, they drift into obscurity. I lost, and I went back a bit. But I built myself back up. Three times.
+- I can't understand how some guys get tired after one round. If you can't go the distance, why are you even in the fight?
+- I always support British athletes of all sports, including Tyson Fury. I think he's a great boxer. However, if he's calling out UFC Heavyweight Champion Cain Velasquez, then quite frankly, he's living in a fantasy world and needs to come back to reality.
+- My best weapon is probably my speed. I am faster than most middleweights, and I know how to use it.
+- Let's be honest: I don't want to walk out to boos. I always want to be cheered, like anyone, and I've been very lucky over the years to have a lot of support. Coming to America, I'm always the away guy, and so people thought their guy had to take me out, and they boo.
+- In my teenage years, I started kickboxing, then did a little boxing. When the UFC and MMA exploded in the early 2000s in the U.S.A. and Japan, I saw a way to make money and a career.
+- I worked in factories, slaughterhouses, as an upholsterer. I did demolition work, was a postman, was a tiler, a plasterer. I even sold double-glazing door-to-door. But I always dreamed of being a world champion, first of all as a boxer.
+- I don't need their love. If they want to boo, let them boo.
+- I hit as hard and as fast in the first week of camp as I do in the last week of camp. So it doesn't matter if it's two weeks' notice or 10 weeks' notice.
+- I've already been KO'd, embarrassed. Nothing is going to be worse than that, so what's to be scared of?
+- People say sometimes that I'm distracted. I'm not distracted. I'm being smart. I'm capitalizing while the iron is hot. That's why I'm trying to do movies. I do the podcast. I do a radio show. I work on FOX. I have a gym; I have a lot of things going on. That's because when I'm done, I want to be set up.
+- 'The Ultimate Fighter' has found lots of great talent.
+- The Liverpool lad Darren Till looked unbelievable in his UFC debut, and he seems like quite a character.
+- Some people are born for a certain thing. And for me, unfortunately, I wish it was something a bit more artistic or whatever, but I was a born fighter. That's what kept me coming back. It makes me feel alive. And, I just know, there is nothing I do better in this world than fight.
+- Patrick Cote, that would be one way traffic. I'd destroy the guy.
+- It seems, whenever there are two Brits fighting in the UFC, we always seem to put on a good fight.
+- When I'm in the gym, different training partners tell me that I've got great conditioning, and I tell them, 'Really? Because, I'm dying here.' I think that I'm just as tired as anyone; I just push myself mentally.
+- People write me off, and yet then, when I fight people, my opponents have a completely different opinion of me afterwards.
+- I am proud to be the first British champion, and headlining MSG is a testament to all the hard work.
+- What matters - the only thing that matters - is winning. It's nice to entertain the fans and to gain new ones, especially from the States, but on the night... that's all that matters.
+- If you want to boo, that's your right. Boo. Go ahead. Boo me all day long.
+- Omelettes, I'd say, are my secret weapon in terms of diet: I love them, they're nice and easy to make, they're very nutritious, and they're low in carbs.
+- People give me advice all the time, and I don't take a blind bit of notice.
+- I had held titles in all the major U.K. organisations, but we were struggling to make ends meet. There were times you don't have a fight lined up, and the bills are stacking up.
+- Without wishing to sound arrogant, when I was younger, I used to win every single martial arts tournament I ever entered. I used to enter the under 14s and under 16s, win both gold medals in those, and then go in the men's tournament just for experience, and end up getting a silver medal.
+- When everybody fought Anderson Silva in the past, they were terrified of him. Absolutely terrified. That's part of the reason why he was so successful.
+- I want to be liked; I just haven't lost sleep over it.
+- I'm terrified of having to go back to a day job. And that's why I'm training like a man possessed. Because I want to keep winning.
+- I started learning jiujitsu when I was eight years old. I had a lot of success and won ever competition I even entered.
+- I'm very happy with my wrestling.
+- There will always be a place for 'The Ultimate Fighter.'
+- For me, 'The Ultimate Fighter' has been massive. I think it is a fantastic vehicle to find the new talent of tomorrow.
+- Fighting at home does bring pressure - of course it does. But I've always thrived on that.
+- As the UFC was getting bigger and bigger, I realized it was a potential career there, and that's what I did.

@@ -1,0 +1,63 @@
++++
+author = "Julia Cameron"
+title = "Julia Cameron Quotes"
+quotes_len = "57"
+description = "the best 57 Julia Cameron Quotes"
++++
+- When we put the pen to paper, we articulate things in our life that we may have felt vague about. Before you write about something, somebody says, 'How do you feel?' and you say, 'Oh, I feel okay.' Then you write about it, and you discover you don't feel okay.
+- So much of our mythology around money centers on the illusion that if we had 'more,' we would be more comfortable and more able to access our creativity. But creativity and prosperity are spiritual matters, not fiscal ones.
+- It's important always to have a sense of wonder.
+- In my experience, divorce takes you out for about 10 years, but you hear people talk about it lightly. The same with depression. You only have to have one good breakdown before you realize you need help. It's pretty frightening.
+- I think we have a great deal of mythology around writing. We believe that only a few people can really do it. I wrote a book called 'The Right to Write.' In it, I argued that all of us have the capacity to write. That it's as normal to write as it is to speak.
+- My life is at least as intricate as my readers' lives. People say that 'The Artist's Way' changed their lives, but when they talk about 'Floor Sample,' they tell me, 'I was with you all the way.'
+- I have learned, as a rule of thumb, never to ask whether you can do something. Say, instead, that you are doing it. Then fasten your seat belt. The most remarkable things follow.
+- We go into parenting, and we discover that we don't have the answers. We are at a loss.
+- I started writing morning pages just to keep my hand in, you know, just because I was a writer and I didn't know what else to do but write. And then one day as I was writing, a character came sort of strolling in and I realized, Oh my God, I don't have to be just a screenwriter. I can write novels.
+- Don't try to 'fix' the child's boredom - rather, let the child find his or her inner resources.
+- When I went in, my editor said, 'I hope you don't think you're a writer.' And I said, 'I hope you don't think I'm a journalist.' And, uh, turned out we were both right.
+- When I was first approached about doing an autobiography, I said, 'absolutely not.' But when I sat down, memories came pouring out. It wrote very quickly - I think there was an emotional impulse, because once I started in, the story itself carried me along. It was a very intense writing period and took a year and change to finish.
+- When it was suggested that I write a memoir I said, 'I'm not old enough. I'm not distinguished enough.' But I went home and sat down to write, and the material for the book just came flooding into my hands.
+- Creativity is always a leap of faith. You're faced with a blank page, blank easel, or an empty stage.
+- Technology teaches passivity. Absorbed in our devices - at any age - we are absorbed in someone else's perspective.
+- In limits, there is freedom. Creativity thrives within structure. Creating safe havens where our children are allowed to dream, play, make a mess and, yes, clean it up, we teach them respect for themselves and others.
+- Buy tabloids. Celebrity gossip is engrossing. Celebrity cellulite can make you forget turbulence.
+- When I ask for help with my creativity, I get it.
+- My new house has a deck that wraps around my writing room; my writing room has many windows, and outside the windows I've hung bird feeders... for enticing different species. So I imagine I will be writing about that.
+- I think everybody encounters difficulty. It's just more pitched in some people.
+- The tools of 'The Prosperous Heart' help people to embrace the life that they actually have, where they often find that they already have 'enough.'
+- Nothing dies harder than a bad idea.
+- Art used to be made in the name of faith. We made cathedrals, we made stained-glass windows, we made murals.
+- I believe that when we ask to be led, we are led, and there's nothing too small or esoteric for spiritual help.
+- When we clear the physical clutter from our lives, we literally make way for inspiration and 'good, orderly direction' to enter.
+- My work unblocks people, and then I look at the work that they do, and I think, 'My God, how could they not have known they were talented? How could they not have known?'
+- I believe that the 'dark night of the soul' is a common spiritual experience. I believe, too, that the answer is continued seeking and perseverance. It helps to know that others have endured a loss of faith.
+- Growth is an erratic forward movement: two steps forward, one step back. Remember that and be very gentle with yourself.
+- I grew up in what you might call a relentlessly creative household. We were given art supplies, music supplies... Our mother knew enough to get us started and then stand back and not meddle. My parents never said to us, 'Don't you think you'll need something to fall back on?' They acted as though creativity was completely normal.
+- Perfectionism is not a quest for the best. It is a pursuit of the worst in ourselves, the part that tells us that nothing we do will ever be good enough - that we should try again.
+- I think that 'Floor Sample' is a story of resiliency, a lifelong spiritual search, and a lifelong sense of spiritual companionship that is most often expressed as creativity. My desire in writing the book was to step from behind the icon of 'Julia the teacher' and introduce 'Julia the artist.'
+- Each of us has an inner dream that we can unfold if we will just have the courage to admit what it is. And the faith to trust our own admission. The admitting is often very difficult.
+- The original 'Artist's Way' focused on the nurturing of the self. The 'Artist's Way for Parents' focuses both on nurturing the self and nurturing the children in our care.
+- You have to muster a certain amount of belief that you're not making a mistake and you're not a fool. And this means you have to have faith.
+- I believe that I am very lucky to have close friends who are faithful. From my friends, I have learned the importance of perseverance.
+- Art is not about thinking something up. It is the opposite - getting something down.
+- Mystery is at the heart of creativity. That, and surprise.
+- Creativity - like human life itself - begins in darkness.
+- My mother set us to an activity and let us be.
+- It's OK to stand back. But it's also good to demonstrate that it's fun to be involved. As long as you are willing to say, 'This looks fun. I'd like to try this, too,' your child will mimic your example of openness, playfulness and optimism.
+- 'Faith and Will' sprang from my personal experience with passing through a dark spiritual time.
+- We can believe we are being self-reliant and independent, and yet there is still clearly an overarching destiny, a Great Maker. So when we say we have faith in ourselves, we cannot really separate the small self from the large self.
+- The creative process is a process of surrender, not control.
+- I have a personal prosperity plan. I know where my money goes, and how I can spend it more fruitfully. A prosperity plan is something fluid that may alter month to month.
+- For most people, creativity is a serious business. They forget the telling phrase 'the play of ideas' and think that they need to knuckle down and work more. Often, the reverse is true. They need to play.
+- Spirituality can release blocks, lead you to ideas, and make your life artful. Sometimes when we pray for guidance, we're guided in unexpected directions. We may want a lofty answer and we get the intuition to clean our bedroom. It can seem so humble and picky and that you don't necessarily think of it spiritual guidance.
+- Because if you're trying to write and you have unlimited time, you can procrastinate an unlimited account, but if you have limited time, you rush to the page trying to get something down in the little bit of fragment of time that you have, and you may write a great deal that way.
+- Writing is a spiritual practice in that people that have no spiritual path can undertake it and, as they write, they begin to wake up to a larger connection. After a while, people tend to find that there is some muse that they are connecting to.
+- Love is the substance of all life. Everything is connected in love, absolutely everything.
+- We have a lot of pressures on children very young. We have ambition. We over-schedule our children. We want them to have soccer lessons and violin lessons... I think children need to have at least an hour of fun a day.
+- People get so focused on the big dream that they forget about the process.
+- I always start everything with the weather, because the weather is the first thing that I notice when I wake up in the morning.
+- 'Faith and Will' is aimed at the same readership as 'The Artist's Way.' The book is for spiritual seekers in all walks of life.
+- A God Jar is anything you wish it to be, in which you can put your wishes, dreams, problems, prayers. You may want to think of it as a spiritual mailbox.
+- There's this mythology that parents are supposed to be parents 24/7 and are supposed to be completely fulfilled by their kids. That's not the case. We need to make our own passions a priority.
+- What we really want to do is what we are really meant to do. When we do what we are meant to do, money comes to us, doors open for us, we feel useful, and the work we do feels like play to us.
+- Faith is almost the bottom line of creativity; it requires a leap of faith any time we undertake a creative endeavor, whether this is going to the easel, or the page, or onto the stage - or for that matter, in a homelier way, picking out the right fabric for the kitchen curtains, which is also a creative act.

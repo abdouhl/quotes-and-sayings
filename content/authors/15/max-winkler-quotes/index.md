@@ -1,0 +1,22 @@
++++
+author = "Max Winkler"
+title = "Max Winkler Quotes"
+quotes_len = "16"
+description = "the best 16 Max Winkler Quotes"
++++
+- It seems like a really fun way to make a living, but I'm truly terrible at acting.
+- I feel totally lucky and happy. I think a lot of young directors feel this way but you sort of, like, have a biological clock that starts ticking and you like feel like you aren't anything until you direct a movie and you need to find yourself and this is how you do it.
+- I despise writing in general, but yeah, I love writing the stuff that I direct.
+- I think Woody Allen calls it 'anxiety of influence.' When you're in your formative years and you watch a movie that makes you want to make movies... For Wes Anderson, it's Truffaut. I'm sure for P.T. Anderson it was Scorsese and Jonathan Demme.
+- If anything I was probably loved and praised too much as a child. I think that's why I can't accept any compliments.
+- I acted in a couple friends's short films and thought I was gonna be really good and mysterious and sexy. And I was just terrible and self-aware.
+- I love my dad so much. I don't have that cool thing where I have dad issues.
+- I'm sort of a delusional in the sense of, I was just gonna graduate from school and just, like, prance onto a film set and have a movie crew waiting for me to make my '8½' or something, which is completely insane.
+- Johnny Knoxville has such an incredible humanity to him when you meet him. He's so warm and so funny, and he can sort of get into trouble and you sort of forgive him immediately.
+- I've always been sort of influenced by my male relationships and that period of my life when you start to cringe and be like, 'I can't believe I wore this or that.'
+- I don't read reviews, good or bad, just for my own sanity.
+- My first girlfriend broke up with me on a yellow legal pad. After she picked me up from the airport one day, she took out a letter that her therapist wrote, and she read it to me. She and her therapists wrote a letter breaking up with me together.
+- I keep saying this, but the most important part of directing is casting, and the rest of it is pretty easy.
+- I start with the music before I start writing the movie. It's such an important part for me, emotionally, to set up the tone for the movie.
+- I feel like there's a witch hunt by some film sites and people that immediately disregard something if it shows any sort of influence.
+- I don't mind talking about my dad because he's such a good dude.

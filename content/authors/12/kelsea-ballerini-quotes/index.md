@@ -1,0 +1,133 @@
++++
+author = "Kelsea Ballerini"
+title = "Kelsea Ballerini Quotes"
+quotes_len = "127"
+description = "the best 127 Kelsea Ballerini Quotes"
++++
+- It's really cool when, in every genre of music, you can listen to a song and know what era it was from.
+- I've always been drawn to the message of 'Be yourself. Love yourself.' I need to be reminded of that all time.
+- 'Peter Pan,' I think, was a game-changer. That was the first song that really had some heartbeat to it... I think that's the song that got people's attention.
+- The thing that's been most important to me is being interactive with people that are listening to my music.
+- I danced for 10 years. I was on a competitive hip-hop team, but then I, like, grew seven inches in one year - not really, but I grew tall and really lanky, and I lost all my coordination.
+- Songwriting was a gift that came to me when I needed it the most.
+- My biggest dream is to headline an arena tour.
+- I think that I've just kind of found my niche, if that makes sense. I still write the same, but I feel like I've found what separates me, and I always try to stay in that when I write. It took me a long time to discover that, so I try to be protective.
+- I've always been a big, bold thinker and a dreamer.
+- It took a while to learn to eat healthy on road. It's really hard. Really, really hard. But on the bus, I can use the stovetop in the morning to make a veggie scramble. And have lots and lots and lots of coffee. I try to have protein for dinner so I have energy for the show.
+- We had three cows and a goat. People from New York and L.A. are like, 'Oh my gosh, that's a farm!' But people in Tennessee are like, 'That's not a farm.' I've never milked a cow or anything like that.
+- I love getting facials. I've even started doing microdermabrasion to keep all the makeup and dirt out of my pores. And when I'm traveling, I'll always grab a moisturizing face mask.
+- I grew up performing in glee club at my school; I was the ostrich in 'Peter Pan,' and then I was super-involved in church choir and worship leading at my church. So I always loved music and was involved with it, but never really thought it was what I wanted to do until I started writing.
+- I have a huge appreciation for music in general, but my roots are country.
+- The Grammys to me, well, that's my peers. That's the industry thinking what I do is good.
+- I started writing songs by myself. That always came from whatever I was feeling and being honest about that because I never had any intention of anyone ever hearing them.
+- In my opinion, it's all about the song and the performance, not the gender.
+- I like making people feel pretty.
+- There are certain days I will get home, and something will pop up on my Twitter, and I will just cry about it. I get so overwhelmed that I get to do what I do.
+- 'The First Time' is a song that I wrote by myself on my front porch, in real-time, as that situation was happening to me.
+- Always wash your face before you go to bed - skin care is key.
+- My favorite songwriting trick is writing something like 'XO.' In my brain, I thought, 'This is probably going to be a love song. How can I change that and find ways to twist that.' As a songwriter, it's your job for the song to take twists and turns that people don't expect.
+- When I was 15, my mom and I packed everything up and moved to Nashville so I could pursue my dream in music.
+- I remember telling myself when I got to start having artist opportunities, 'Let yourself be a fan, because you are. The minute that you walk in a room with Carrie Underwood, and you're too cool to freak out, you need to check yourself.' I just let myself be a fan.
+- I also grew up on a farm in east Tennessee, so my roots are just naturally super southern, so I've always had that southern country lifestyle.
+- I am a fan before I am an artist. I was that twelve year old girl that looked up to Taylor Swift. I get what that role is as a fan. I think that because I know that, I'm really careful and intentional about what I say and what I put out. I want to be that role for anyone who wants me to be that.
+- I am such a girly girl, and I love not playing it safe. I'm so new to this world, so it's fun to establish myself as a fashionista.
+- I did ballet, jazz, and all that, but I think hip-hop is really where I learned rhythm and groove, which has helped me in music.
+- I try to exercise when I'm on road - I really do try - but I also try not to push myself too hard. I just try to move.
+- I went to my first CMA Music Fest when I was 14 and waited in line for two hours to meet two people: Taylor Swift and Hillary Scott from Lady Antebellum. It's very ironic but not accidental that those two people refer to me as their 'little sister' now.
+- My life is truly pop country.
+- I share so much of my life on social media, and I love the honest connection with the people that follow me.
+- My favorite thing ever is walking into a room and there's like, shoes and dresses and sparkles in the room. It's a good time.
+- I was this little blond girl with a guitar case bigger than me - it was pink and sparkly at the time. But I always took myself seriously, and I think that people took that seriously. I would tell them about my goal list, and they listened. I was like, 'I want to be the one that swings the pendulum.'
+- I grew up on a farm in eastern Tennessee with a very southern lifestyle, so my roots are super country and southern, but my first concert was Britney Spears. I think that you can hear both of those influences in my music.
+- I've always been drawn to strong women in every genre, people who push the boundaries because they're just epic.
+- I was a huge Jonas Brothers fan, unapologetically, when I was 12 or 13.
+- Even though there are incredible songs floating around Nashville, it's important for me to have my voice heard.
+- It's really humbling to be acknowledged by such established names like CMT and Billboard.
+- I feel like it's been so crazy to get to open for people like Rascal Flatts, Lady A, Billy Currington.
+- I wouldn't be an artist if I didn't have Shania Twain, Faith Hill, Taylor Swift to look up to.
+- I wanted to be the girl that talks about getting a guy. I felt like that was a different approach to writing.
+- When I was 13, I started writing songs, and it fell into my lap all of a sudden. I wrote poems and journals, but that's when it switched for me to songwriting. That's when I wanted to do everything. It was like a fire all of a sudden. I started coming to Nashville and moved here when I was 15.
+- I starting writing when I was about 13 or 14 years old.
+- I love when an artist can stand by themselves and play their guitar and hold a crowd, but I also love bells and whistles.
+- I was writing country songs, but I wasn't listening to country yet. I grew up on a farm in East Tennessee, so my roots are country, you know? But I didn't know where those songs came from or where they fit.
+- Sometimes, if I really just need to unwind and kind of watch something that isn't gonna stress me out or have drama in it, I watch 'Spongebob.'
+- The Grammys are just the pinnacle of music.
+- I love that on country radio, you can hear a George Strait song, and the next is Sam Hunt. I love that there's such a variety.
+- I've studied live shows and artists for so long. I got the tour documentaries and all that and watched them. I love a show. I love an artist that can do all of it.
+- I was raised on a farm in East Tennessee, and my first concert was Britney Spears. It's my job as a country music artist to be honest about that.
+- I was living in Knoxville, Tennessee, and I didn't really know how you would become a singer. I didn't even think that I could do it. I didn't even dream about it. But when I was 12, it was that year where I got tall, boys got cute, everything was weird. Then my parents split up on top of that, so it was a big year of change for me.
+- When I was 12, I was going through an awkward time. Writing music helped me find my voice and express the things I was feeling.
+- I'm a huge fan of the Chainsmokers - like, huge. Like, I would love to collaborate with them.
+- I love pop music. I've tried to always be honest about that.
+- Being a songwriter is really the base of being an artist, for me.
+- I grew up loving music and being super involved in church choir and school musicals and such, but when I started writing is when I fell in love with the idea of doing it for the rest of my life.
+- I feel like if you just walk with a purpose, people will think you're supposed to be there. That's my life theory.
+- You really do have to be different. You really do have to set yourself apart.
+- I'm a talker.
+- I love having that conversation with someone I've never met before who's enjoying something that I wrote and being able to connect and share that.
+- I have a picture of me with Lady Antebellum, when they released their first single and I was at CMA Fest as a fan. I'm in flower-power shorts and a headband - so not cute - and I'm fan-girling next to Hillary. I couldn't believe I was standing next to her.
+- It wasn't supposed to work - being a new artist, a female artist, an artist on an independent. That's what made it so much sweeter when we hit No. 1.
+- I love Taylor Swift, and I've always been such a fan of her.
+- I wanted to be a vet. I really thought that's what I wanted to do.
+- I want to stay where I am. I'm stoked to be a country artist.
+- I get to remind myself and other people to be yourself, to rock you who you are, and don't worry about if it fits.
+- I'm so weird and quirky, and painfully awkward sometimes.
+- I used to walk around trying to do the Britney Spears growl: 'Oh, baby, baby.'
+- As a young girl, there are pressures that come with any career, but I decided when I got into this I didn't want to be perfect.
+- I just want to be real and who I am. That's something I'd feel comfortable with any little girl looking up to, so that's who I try to be.
+- I would love to do a duet with Gavin Degraw. Or Ed Sheeran.
+- For a long time, because I'm pretty tall, I was scared to wear heels, but now I wear them all the time. I feel like I'm still discovering my stage style, but I love - well, I'm not a huge color person onstage, but I am in real life. I like short stuff, big heels, fringe, lots of fringe, sometimes sparkle, yeah!
+- I've never been scared, but I'm very naive.
+- With Rascal Flatts, I'm such a fan of them, and I feel like they've been so gracefully relevant through decades of country music.
+- I try to be as honest as I can in writing. That's what ends up translating and relating to people.
+- I always thought it was a goat that kicked me over the fence. My mama told me the other day it was a cow. Now I'm sort of scared of both.
+- I really like food. Honestly, anytime I have time off, I binge-watch Netflix and eat chicken tenders. That's my guilty pleasure. Separate or together!
+- As a young woman, I just think there's something really confident and empowering about being able to flirt back.
+- There's value in being a normal person.
+- I just want to make the best music I can make.
+- My songs are my stories... good, bad, ugly, beautiful.
+- Honestly, I'm such a shoe girl. I like to save money, and I like to spend money on shoes.
+- The whole heartbeat of the first record is young, which I think is what made it relatable to young girls.
+- I've always wanted to dye my hair a bright color.
+- It's so fun to make up stories, but I find that the songs that I'm most proud of came from a real thing in my life - 'Peter Pan' being one of those.
+- Music videos, to me, are like an extension of a song.
+- People send me songs all the time that are literally no-brainer hits... but for me, I'm an artist because I'm a writer.
+- Blake Lively is my style icon, and she always has rocking clothes and shoes. She keeps it really simple with hair and makeup, and I try to do the same thing. Onstage, I do a little smokier, a little more contouring, but I still always want to be an approachable and real artist, so I never try to go overboard.
+- Getting to do shows with Lady Antebellum, Keith Urban, and Sam Hunt is just awesome. It's so inspiring because I grew up such fans of Lady A and Keith, and to be able to sing my songs on the same stage as them and then stand side stage and watch them is just a really special thing.
+- I see little girls at my meet-and-greets who are like, 'Kelsea! It's my first concert and I came to see you.' And I'm thinking, 'I don't want to post anything online that your mom would be mad at me for, because you're important to me.'
+- It's been really cool to me to watch someone like Sam Hunt, whose lyrics and roots are in country but you can hear that he listens to Drake and Justin Timberlake - and that's OK. It allows songwriters to be more honest because it's like, 'This is who I'm listening to.'
+- My first artist bus was Jason Aldean's old bus, with deer antlers over the lights and cowhide on the back of the couches. It was such an absolute dude bus.
+- I grew up loving music, like, loving it. I was involved in church choir, leading worship and all the choirs in my school - even glee club.
+- Honestly, I was a fan before I got the opportunity to be an artist. I was the kind of fan who would stand in line or post a cover video.
+- Hillary Scott from Lady Antebellum is like my big sister.
+- I write everything. It's my favorite part of what I do. And lyrics are my favorite thing.
+- Before I really knew country music, I listened to pop, and I still do.
+- No matter how exhausted I am after a show, I always take my makeup off. Even if it's just with a remover wipe.
+- There's this misconception out there that at any level of celebrity, you have someone to do hair and makeup when you're out touring, but no, it is just not the case. I do it all myself.
+- There's a YouTube video of these two kittens that just fall over and pass out. My blood sugar's crazy, so I would pass out sometimes, like the fainting kittens.
+- I feel a loyalty to my favorite artists, and to have my fans feel that, for me, is a special bond because I've been there for so long.
+- I'm in this wave with Maddie & Tae and RaeLynn and Mickey Guyton and Cam. We're all kind of finding our niches and becoming successful. I think that it's just been really fun to be with them and do this all together.
+- On stage, you can get away with more, so I definitely use that to my advantage and go bolder with fashion, hair, and makeup. I love a smoky eye and long lashes.
+- I think that every time a country artist steps outside of the country boundary, it just brings more ears to us.
+- I try to be a good person. I love Jesus.
+- I get travel-sized versions of all of my essentials. That way, I can stay on the same routine whether I'm home or on the road.
+- The fun thing about song writing is that it's just creative. It can be whatever you want it to be. For me, I'm really protective of that. I'm not going to write something because I feel like it fits here or it fits there - I just want to write music that feels good to me, you know?
+- I want to be a good person first and a good artist second.
+- As a fan, I connect with realness. Whether it's strong or vulnerable, if it's real, I can connect with it.
+- I'm basically always writing. Why wouldn't I? I love it.
+- I listen to everything. I sing country music, but I listen to different stuff.
+- I love pop music. I listen to it; I think you can hear it in my songwriting and my album. I'd definitely say it's country-pop music, but it's country first.
+- Women in country music have always been a staple and always been important.
+- The artists that I relate to and love the most are the ones where I can listen to the record, and I can know them better, and for me, that's writing it.
+- Me and my mom made a deal that if something would happen to help me get my start in music, I could get out of college.
+- The first album is an introduction, and when people listen to it top to bottom, I want them to know me.
+- The greatest gift I've been given is being naive, because I don't know what I can't do. And when you don't know what you can't do, you think you can do everything.
+- My theory is the root of a country artist is truth and honesty. For me, I look at Sam Hunt. The truth and the honest thing is we have southern roots, we were raised in a southern way, but we listen to Drake and other stuff, too.
+- Growing up in east Tennessee gave me my country roots, my twang, and a lot of my stories.
+- Growing up, I remember thinking country music was all honky-tonks and beer and trucks - Britney Spears was my first concert.
+- When Florida Georgia Line and Nelly put out the 'Cruise' remix, it brought so many more people to country music.
+- I really want people to know I'm a songwriter.
+- My favorite festival beauty look is definitely braids and hats: a messy fishtail braid and a cute outfit, and I'm ready!
+- I think that, as artists, all we can do is be who we are. I think that if we do that, then we're automatically not anyone else.
+- I'm not super traditional at all.
+- I've gotten to be part of a lot of incredible tours and have learned so much from the people I've had the opportunity to open for.

@@ -1,0 +1,50 @@
++++
+author = "Miguel"
+title = "Miguel Quotes"
+quotes_len = "44"
+description = "the best 44 Miguel Quotes"
++++
+- I can write hundreds of songs on simple power chords.
+- I want everyone to express themselves in a unique way.
+- Man, I grew up like everybody else. Middle-low income family. My parents got divorced like most of the rest of the country.
+- I'm a nice guy, but I like to get into trouble.
+- I don't think I live the lifestyle that's expected of a quote unquote R&B artist. I'm just not that dude.
+- I think at any point, as an artist, whatever the medium - just having an audience means the world.
+- I think the illest thing about Wiz Khalifa is how true to himself he's always been, and I miss that from artists. Nothing about what he does ever felt like he was reaching to be something that he wasn't.
+- I feel like when you are really appreciative, it makes it easier to have a better outlook and perspective of life in general.
+- I've honestly never worked with Beyonce. It would be awesome, though; I would love that.
+- I have this propensity to just come out and say things. That's how I am in real life.
+- To its credit, hip-hop is my favorite genre, to this day, and it's hard not to be influenced by the culture and by the movement of it and by the soul of it.
+- For me, the creative process for me always starts in a personal place. I step away from my iPod or any records or CDs.
+- I think that the best part of music is when it comes from a real place and has an ability to kind of connect on a much larger scale. It no longer is a personal thing, it becomes everyone else's thing as well.
+- If you're interested in any artist, go see them live. I always say that you should go see an artist live. That's an experience that only you and the people in the room can say that they have.
+- You know, people aren't always the most open-minded.
+- I think your conversations are indicative of your tastes - even your diction.
+- I associate creativity with independent music.
+- It was important for me to remind people that there's no formula... there's no boundary to R&B music.
+- I could speak Spanish fluently growing up, but I'm so out of practice, and I have such a tremendous respect for songwriting in the Spanish language.
+- I just think that Jack White is the consummate artist - an artist's artist. I'm a huge fan.
+- The extremes of who I'd love to be onstage are David Bowie, Prince, and, I don't know, Bjork.
+- I mean, there's plenty of artists who are making R&B music, but because of their ethnicity, it's considered something else.
+- 'SNL' is probably one of the premiere outlets that a musician can perform on that isn't obviously a music outlet.
+- Some of us are only going to show our emotions while we're actually vulnerable. But that's what makes us human.
+- I think it's natural for an artist to explore as they evolve.
+- When I'm a part of someone else's creative process, it's all about facilitating their ideas and hopefully bringing their perspective and making it a part of a song.
+- I grew up in Los Angeles when the racial tensions between blacks and Mexicans were very high. Gang violence was very prevalent.
+- I feel that as artists - whatever your medium is - I feel that we're watching what goes on around us and we take what we don't see, or we don't hear, or we don't feel and we do something that speaks of it; more about it, for it, or against it - whatever our perspective is - that's what our job is.
+- Interestingly, I matured as a musician and as an artist before I matured as a man. What I mean by that is, I was ready to be completely vulnerable and honest with myself and unapologetic when it comes to how I express myself in my medium. But I wasn't as secure in doing that when it came to just being myself.
+- At the end of the day, as a grown man, I don't really care what the sexuality of the next man is.
+- I believe dreams represent the purest form of fantasy we unleash through our subconscious. They represent the truest freedom we can experience. Totally unrepressed and totally creative.
+- Travel aesthetics should be just as comfortable and practical as they are fashionable.
+- Twitter is definitely not the place to handle business per se.
+- I always had a fascination with music.
+- Historically, black music has influenced other cultures and other genres and created other genres.
+- I'm really excited to put music out that is a clear projection of my lifestyle.
+- One of the most telling things about a person is how they say hello, handshakes.
+- I feel like R&B as a genre has become a caricature of itself.
+- I think there's always been progressive R&B music.
+- My sound is definitely what I like to call 'e-clectric.'
+- I fell in love with funk music through my father - Funkadelic - as well as soul and classical early on.
+- A lot of people forget that R&B put hip-hop on, R&B put rock on.
+- I think my style as far as vocal delivery and even down to the pronunciation of certain words is so deliberate.
+- Art is based on emotion, but being macho is based on ego; the wall protecting that emotion.

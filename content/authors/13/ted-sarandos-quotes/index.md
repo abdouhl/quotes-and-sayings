@@ -1,0 +1,75 @@
++++
+author = "Ted Sarandos"
+title = "Ted Sarandos Quotes"
+quotes_len = "69"
+description = "the best 69 Ted Sarandos Quotes"
++++
+- We try to guide with a light touch. Sometimes we can be helpful, and my goal with my team, both on the series side and on the film side, is that the collaboration should always be invited. In other words, we're not looking to impose our view on the filmmaker; we hire a storyteller because we love the story, and we love their ability to tell it.
+- I really loved the 'Sopranos' but didn't have HBO. So someone would send me tapes of the show with three or four episodes. I would watch one episode and go: 'Oh my God, I've got to watch one more.' I'd watch the whole tape and champ at the bit for the next one.
+- I don't think, by the way, that any network would have given us their show to release all 13 episodes once ahead of them, and the same way, I don't think any studio will give us their movies to release the same day they are in the theaters - not yet, not yet.
+- The tax incentives in place for 'House of Cards' in Maryland have resulted in hundreds and hundreds of jobs and not just for actors, but for carpenters and waitresses and hotel workers. The amount of hotel nights and meals that the production of a television series brings to a state is staggering.
+- 'Orange Is the New Black' and 'Sense8' have enjoyed great success all over the world.
+- 'Walking Dead' has done great on Netflix, but to pay for the full output deal just to get 'Walking Dead' didn't make sense.
+- I have a deep respect for the fundamentals of television, the traditions of it, even, but I don't have any reverence for it.
+- The longer people watch Netflix and the longer they stay members - they're the criteria of success for us.
+- A lot of our animation projects are co-productions with French production companies.
+- What I didn't want to do is get into a ratings race with television because really, for them, it matters. For me, it doesn't.
+- I always love that phrase, 'Oh, this is a good idea, but it's execution dependent.' As if anything in life is not execution dependent. Breathing is execution-dependent.
+- Theater owners are exerting a lot of power over the studios to withhold access to content that people want to see. That's bad for consumers, that's bad for studios, and ultimately, I think it will be bad for theaters.
+- I don't want to kill windowing; I want to restore choice and options.
+- I don't think on-demand brings anything extra to sports.
+- The Disney deal for us, we are very excited to be their Pay 1 partner, where we are a big licensing partner of Disney all over the world in all different windows.
+- The U.K. has been very progressive about on-demand, and the iPlayer has been a great invention. It has trained a generation of viewers to expect on-demand - unfortunately, it trains them to expect free!
+- I think what's going to happen with linear television is it's going to become more linear. It's going to become more about events and more about award shows, live sports - all those things that, really, you can't replicate.
+- Within the U.S., you could have argued that most people who watch 'Mad Men' would watch 'House of Cards.' But the viewing is much more on par with the large-scale mainstream things like 'The Walking Dead.' It was much younger than we thought.
+- The real great news is, in the piracy capitals of the world, Netflix is winning. We are pushing down piracy in those markets by getting the access.
+- Netflix has always had this interesting ability to get non-mainstream content to be watched by the mainstream.
+- Typically on a TV series, the writers on a show are writing for their life almost every episode. When someone sits down to write a Netflix show, they know there's going to be a 13th hour.
+- Our feature film, 'Crouching Tiger, Hidden Dragon Two,' has a built-in fan base from the original film.
+- What we are going to do is continue to grow our content spend on original programming, both in absolute numbers and as a percentage of our total spending, because it's been working. It's been helping grow the brand; and more importantly, it's been driving viewing hours relative to how else we would spend the money.
+- If you want to go out and see a movie and sit in a dark room with strangers, it's not an experience you can replicate at home.
+- Adam Sandler is a remarkable movie brand.
+- It's a massive consumer frustration around the world about how long they have to wait after the U.S. to see television shows and movies. In the U.S., there's the frustration of having to wait a year to watch a movie in the format that you choose.
+- The future of how the networks and studios deal with Netflix and Hulu and Amazon Prime Instant Video is certainly going to determine their future.
+- 'Marco Polo' had some negative reactions in the press. Viewers have loved it, and the volume of viewing has been phenomenal.
+- Movies are becoming more global, which is making them less intimate. If you make a movie for the world, you don't make it for any country.
+- You need to get in studio; we're excited about the Pay 1 opportunity with Disney because those movies are not just movies. They're amazing family content that get flexed over and over again, forms great loyalty with our subscribers, and it's a real trust brand for parents as well.
+- When we say a show is successful, it's because, relative to the investment, it's successful, relative to how else we would have spent that money on licensing something else, does this creation - did it attract the audience that it was built for.
+- The best way to really make the VPN issue a completely nonissue is through global licensing that we are continuing to pursue with our partners.
+- There are films like 'Interstellar' where you cannot replicate the experience of seeing it in IMAX - it's an amazing film presented in a spectacular way. It really is an experience, like going to Disneyland, and you can't replicate that by watching home videos of going to Disneyland.
+- We're one of the largest employers in Canada for animation executives, and there is - I think something on the magnitude of $140 million a year be important to the Canadian economy producing animation for Netflix.
+- I think that we've got a huge head start on things that are not easy to do: progressive streaming, to be able to stream in very high quality, even in an environment of highly variable bit rate, and to work on a big variety of devices seamlessly.
+- The two things that got everyone's attention about the 'House of Cards' deal was the two-season commitment and David Fincher. After David Fincher directs a series for Netflix, no one else can say, 'Well, I'm not going to direct a series for the Internet.'
+- I don't know that on-demand sports is remarkably better than live sports.
+- Netflix is distributed in 50 countries around the world. It's an incredibly affordable, well-distributed product that gives anyone with access to the Internet and a screen access to content in a very affordable way.
+- Being able to compete for consumers' attention and dollars over the preciousness of access is a thing of the past. Everyone is using the Internet to globally market a product.
+- To me, cinema is not a movie or a TV screen, and it's not a seat in a building versus one in your living room. It's the art of motion pictures.
+- More and more what we're licensing, we're licensing on a global basis - even though the studios aren't orchestrated to sell that way yet, my bet is that they will.
+- Why not premiere movies on Netflix the same day they're opening in theaters? Listen to the consumer; give the consumer what they want.
+- On Friday night, if you want to go out on a date with your wife or your girlfriend, nothing on Netflix competes with that, right? Because you're getting out; that's what you're doing. If you don't want to put your shoes on, nothing in the cinema competes with the worst thing on Netflix.
+- I think we can launch - successfully, high quality - around 20 original scripted shows a year, which means every 2 1/2 to three weeks you're launching a new season or a new show on Netflix meant to be for really diverse tastes all around the world.
+- The star of 'Narcos' and the director and creator of 'Narcos' are both Brazilian superstars. So Brazil has received 'Narcos' particularly well as it's been well-received around the world.
+- We expect 'Narcos' will be an enormous success throughout everywhere in the world and maybe out-index in Latin America, given the Brazilian star and Brazilian director and heavy Latin American cast and that we shot the show entirely on location in Colombia.
+- 'Orange Is the New Black' was by far the most watched show in both France and Germany and, in fact, all of the markets that we launched.
+- David Fincher's work has all been incredibly well-received on Netflix, and Kevin Spacey's films have all worked on Netflix.
+- When we set out our original program from the beginning, obviously our markets were pretty limited, and we were thinking about them mostly as U.S. shows, and they would travel like other U.S. shows have.
+- When we started looking at the bigger television ecosystem, you see that there's not that many serialized TV shows being made for TV. The economics are lousy: They don't sell into syndication well; they're expensive to produce.
+- When we show you all these various pieces of content on the site, how frequently do you take the one that we present? And of the one you took, how frequently do you completely watch the whole series? And do you rate it, one to five stars? So if we presented it to you, and you watched it, and you rated it, that's a big win.
+- Typically, if you buy a studio with a library, their library is pretty well licensed out many years in advance, so you are not really gaining access to the programming in that way.
+- Networks can typically invest tens of millions of dollars in the development of a pilot. And if they put the show on the air and it fails, that's all lost money. There's no monetization of a broken series.
+- I love, personally, the experience of going to the theater, going to the cinema.
+- There's not a lot of really great, deep, serialized television, and we can see from the data that that's what people want.
+- 'Crouching Tiger, Hidden Dragon' is not a direct-to-video, low-budget sequel: it's a big film. And it'd be fantastic to have the opportunity to see it on the IMAX screens at the same time, and IMAX has made arrangements with us for that to happen.
+- We're closer to HBO than we are to the entire grid of cable on demand.
+- The typical output deal from a studio is 10 to 14 movies a year.
+- I feel like if we can use the combination of basically data-driven hunches and bet on really first-class talent to deliver the shows, that I think we could do as well as the networks do, who basically have a 75 to 80 percent failure rate for new shows anyway - even after all that development and pilot work.
+- I think when you see 'Ridiculous Six,' the show speaks for itself in terms of its treatment of American Indians.
+- The current distribution model for movies, in the U.S. particularly, but also around the world, is pretty antiquated relative to the on-demand generation that we're trying to serve.
+- The television business is based on managed dissatisfaction. You're watching a great television show you're really wrapped up in? You might get 50 minutes of watching a week and then 18,000 minutes of waiting until the next episode comes along.
+- In the first week of release, 'Beasts Of No Nation' was the most watched movie on Netflix, in every country we operate in.
+- I think being a partner with the studios and networks and, more importantly, being a great source for consumers to watch that programming is always going to be a part of our programming mix.
+- There's no such thing as 'too much TV,' unless we're all spending more and not watching more.
+- We are anxious and open to all forms of doing business in China.
+- What if you could radically alter the way stories get told? What if the way people wanted to consume content actually changed what you could make?
+- Our value proposition to consumers is so much more about completeness than freshness. Having the complete season is so much more valuable, in our business model, than having last night's episode.
+- The major international appeal for 'House of Cards' was kind of a surprise because it's a very American show. What we learned is that American politics is very American, but greed and corruption and all of that is very global.

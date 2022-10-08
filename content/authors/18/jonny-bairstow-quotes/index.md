@@ -1,0 +1,75 @@
++++
+author = "Jonny Bairstow"
+title = "Jonny Bairstow Quotes"
+quotes_len = "69"
+description = "the best 69 Jonny Bairstow Quotes"
++++
+- As a young kid you stay up late to watch the Ashes, getting told off for not being in bed, and dream of making a hundred against Australia.
+- Yorkshire knew how important Scarborough was for me. So I was awarded my county cap there in 2011. That first cap is one of the most precious things I own. The club didn't tell me that I'd be receiving it, but instead tipped off my mum, making sure she saw the presentation.
+- When I came into the England team I was always being asked whether I 'really' wanted to be a wicketkeeper. It was as though no one had noticed the work I'd already put in to make myself one.
+- If you suddenly go striving for different things from what have stood you in good stead over a period of time then you're searching for something that you are probably not going to find.
+- I was a fortnight away from my 16th birthday when the fabled 2005 Ashes series ended. My hero-worship throughout it belonged to Ian Bell - though I don't think I've ever made that abundantly clear to him.
+- I've learnt - and this pleases me - that my dad's cricketing life and my own will always be intertwined, even though I will finish far behind the number of appearances he made for Yorkshire and also his length of service at Headingley.
+- I've been involved in a couple of atrocious World Cups.
+- I've not given up my keeping, I want to make that very, very clear. I'm still working hard on my keeping and it's something I still want to do.
+- When my dad died, I was eight. Becky was seven. My mum had cancer, the first of two bouts that she's fought and beaten.
+- Well, I grew up in a certain way, through the experiences that I had, so I don't know how I would have turned out had things been different.
+- Mum never made an excuse, even when she had cancer and had a lot on her plate. You have to have huge admiration for the way she brought us up.
+- When Dad passed away, grandpa took on that mantle of teaching me how to tackle at football or taking me and mum to cricket.
+- Life without cricket was initially harder for my dad than playing the game for Yorkshire and England had ever been. He missed it, and also the adrenaline pump of a performance.
+- The less you worry about things the more you just do it naturally.
+- Everything goes out of the window when you start an Ashes series. It's about grabbing the moment.
+- You know when you've hit a good shot. I use a bat that weighs two pounds and nine ounces, and it makes a reassuringly solid sound when I connect properly. The ball pings off the middle.
+- I played fly-half in rugby, so I could influence the game, and midfield in hockey too. So it is part of my sporting DNA to want to be in the game at all times, to affect what is going on. That's down to genetics and being ginger, I reckon. We're special specimens.
+- The 20th anniversary of my dad David's death coincided with my 50th Test cap and for it to be my mum Janet's birthday, too, made it an emotional few days. It was not an easy week, being the Pink Test and my mum having had breast cancer twice.
+- Get picked for an Ashes Test at Lord's and you know you're going to meet the Queen. She arrived before the start of our game against Australia in 2013 and we lined up for inspection like the household cavalry on Horse Guards Parade.
+- No one saw me cry over my dad's death for almost nine years. I hid what I felt, bottling up my emotions so tightly that almost nothing leaked out.
+- All sportsmen have superstitions, or at least they have routines. You look at Rafa Nadal and the way he organises his water bottles. Me, I always put my left pad and left shoe on first.
+- The place closest to my dad's heart, unequivocally his favourite, was Scarborough. To him it was the epitome of the English coast, postcard perfect.
+- With my dad gone, I made a resolution to myself. I would become the man of the house. Adulthood was still more than a decade away for me.
+- Every young cricketer from our county dreams of playing for Yorkshire and going on to represent England.
+- I really enjoy being in the game for every single ball.
+- I do enjoy fielding in the deep and I enjoy engaging with the crowd.
+- I don't like intensely complicated coaching. I prefer to work things out by myself. A gentle hint is all I need, otherwise it's like finishing a crossword after someone has given me the answers.
+- I've always tried to honour my dad and what he did for Yorkshire, which for him frequently meant putting the county's cause before his own. But my late boyhood, my early teens and my adolescence were full of net sessions and practice drills he never witnessed, ups and downs he never knew about and matches he never saw.
+- The great risk of being alive is always that something can happen to you - or to someone you dearly love - at any moment.
+- I don't think there have been many dull celebrations after any of my hundreds for England. It's been an emotional time for me over the last few weeks. Interpret them as you wish.
+- But having gone through two bouts of breast cancer and all the operations and treatments it's fair to say mum's a special human being - especially as she had to deal with the tragedy and heartache that went with Dad's death.
+- It's important to have a smile with spectators but it's not always possible.
+- Most people believe their family is special. I know mine is.
+- I'm a bit taller too because I've got Mum's legs and Dad was a bit more squat and well-built than me. My brother Andrew is a bit more like Dad.
+- I think 'chuffed to bits' is a very Yorkshire way of describing my feelings for my friend and county team-mate Joe Root on his promotion to England captain.
+- If your game is to take everything on then you have to stick with that and if it's your game to get out of the way of the short ball then that's what you do.
+- I look so much like my dad - same chin, same cheekbones, same forehead - and I play a little like him too. But I am my mother's son. I am who I am because of her.
+- If someone who doesn't know anything about wicketkeeping finds a reason to criticise, you have to sift it out. It's about working out how to deal with the criticism while improving your game.
+- My mum thinks I get my determination and resilience from my dad. I think it comes mostly from her.
+- We're a special family and it's just that Dad's life was taken away from us far too early. Everywhere you go around the world he had an effect on people - in the Caribbean, Australia, South Africa or England. I've never heard a bad word said about him.
+- A hundred for England is special and there's a lot of emotion and a lot of hard work involved in getting back on the field. No one sees the hard work and all the time with the ice machines in rehab.
+- I think it's something you learn over a period of time; you learn to be more comfortable within yourself, appreciative of what you've got and what you haven't, you realise the talents you have and what you can do and you take on the chin the things that you have to. It's part and parcel of growing up.
+- I've been through practices during which I've felt as though medieval torture would have been easier.
+- If you're constantly striving for questions that are never going to be answered, then you're only being detrimental to your own mental health.
+- You're able to learn different things from different coaches and different players.
+- My dad passed on his cricketing talent. My mum has enabled me to use it.
+- You think of what might have been different if dad had been around, or how I might have turned out as a person. You just don't know. I might not even be playing cricket.
+- People don't actually see what's gone on behind the scenes - the hard work, when you're doing your rehab, when you're sleeping on an ice machine - and yet they have an opinion on it.
+- In an Ashes series you have to adapt quickly to the conditions and your rivals. If you don't, you get found out.
+- I've always said I don't mind where I bat and I have exactly the same mindset when I'm batting seven as I would at five.
+- As a youngster, you take a lot of things to heart, so you have to learn to trust yourself.
+- You only have to see the rate of divorce in cricket. You're away so much and then 18 months later, you're around all the time and not sure what to do with the rest of your life. You go from being at the peak of your powers to being at the bottom of the food chain.
+- You go out onto the playing field every time to win and you will do all you can to do that, but not at all costs and especially not to cheat.
+- Anyone who has been born in Yorkshire is very proud of it. It's something that's embedded in your character.
+- But put it this way: if I have a bad day keeping, I know I can put it right with the bat, and vice versa. When it all comes together, happy days.
+- I was only ever briefly angry with my dad for leaving us. It happened shortly after his death, when things were at their darkest and the grief in me was raw and at its worst.
+- My dad was an only child. His father raised him all but alone after his mother abandoned the two of them. He was only three years old.
+- When I came into the Yorkshire academy I was christened Bluey almost immediately.
+- When you're going through difficult times, like I was after the 2013-14 Ashes, you start thinking about different bits. Rugby is a huge passion of mine, a lot of my friends play.
+- Look how successful Eddie Jones was, then all of a sudden a training camp is wrong and it's his fault. The same with Stuart Lancaster.
+- It's all well and good when it's going good and people have an opinion on how well you're playing, but it's the hidden things they don't see.
+- I've learnt a lot about Dad from going around the world and listening to other people. Whether I've been in Australia, the Caribbean, Leeds, Scarborough or London there's always someone who's got a story about him.
+- In my head I'm talking all the time.
+- If you can't motivate yourself to get up and play in front of 30,000-40,000 people, then you're not in the right job.
+- My dad is never far from my thoughts. A place, a game, an incident somewhere or an unexpected word from someone can trigger a memory, which then triggers another, and suddenly I'm thinking about him, if only for a minute or two.
+- Everyone who survives cancer knows the victory against it may only be temporary. You know eventually that you might have to fight all over again. Almost 15 years after my mum's first bout of cancer, a second bout occurred. This time she needed an operation.
+- You look at the challenges that have been put in front of me as a cricketer over a period of time. There have been quite a few. I'd like to think I've come through most of them.
+- Even with Yorkshire I had 19 fifties before I got my first hundred.
+- Who says we can't win the World Cup and the Ashes in the same year? Oh yes we can. It all goes back to my motto in life: Be proud of how far you've come - and have faith in how far you can still go.

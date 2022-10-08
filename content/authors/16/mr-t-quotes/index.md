@@ -1,0 +1,145 @@
++++
+author = "Mr. T"
+title = "Mr. T Quotes"
+quotes_len = "139"
+description = "the best 139 Mr. T Quotes"
++++
+- I am a Christian, and the Bible teaches me to forgive.
+- In 1995, I was diagnosed with cancer, and I had to practice what I preached. I had always said to 'believe in God' and 'don't give up' to little kids who had been diagnosed with cancer. I then thought if I can't call on that same God and same strength that I told people about, I would be a liar and a phony.
+- I am tough, but deep inside my toughness, I like to let people know I'm an old-fashioned mama's boy.
+- I tell everybody, I get so much because I give so much. I give freely, I give all my time, give all my money, give all of my soul. I try to motivate people. I try to inspire them.
+- My faith was tested like Job. That's the message I try to tell other people: just because you believe in God, serve God, feed the hungry, clothe the naked, people gotta realize, it don't mean things not gonna happen to you.
+- To the women and children, T stands for tender. To the bad guys and thugs, it stands for tough.
+- See, behind all my tough, rough exterior is basically a marshmallow, maybe a pussycat. But not a wimp!
+- My mother is a strong, wonderful woman. I could never be anything she didn't want me to be.
+- I'm so tough and so bad, I can be humble and lift another guy up.
+- In high school, I majored in brick masonry. We had the wood shop, the machine shop, so I know about all that. I wanted to build buildings when I graduated from high school. I do know my way around that stuff.
+- I could talk all day, T stands for talking, T stands for tender, T stands for things that don't even rhyme with T.
+- I'm a bold Christian, not a scaredy-cat Christian.
+- Whatever role I play is a positive role; it's a strong role. Never negative.
+- WWE asked me to be in the Hall of Fame, and I turned it down. You know why? They put Pete Rose in the wrestling Hall of Fame. This guy can't even get into his own Hall of Fame.
+- My celebrity status allows me an opportunity, allows me a pulpit to preach and reach out to the people. Not even always preaching but just leading, motivating them by being a leader.
+- Any man who doesn't love his mama can't be no friend of mine.
+- As a kid, I got three meals a day. Oatmeal, miss-a-meal and no meal.
+- All I ever wanted out of my life was to buy my mother a house. By 1995, I have achieved all I wanted materially in life.
+- I'm pretty clean, hygienic and all that, but sometimes when I come home, I throw my coat over there, take one shoe off here, one shoe off there, but I'm not dirty.
+- Why am I here? I'm not lucky. That's God.
+- When I was old enough to change my name, I changed it to Mr. T so that the first word out of someone's mouth was 'Mister,' a sign of respect.
+- I'm a child of God first. Before I became a celebrity, I was baptized a Christian.
+- I'm proud to be an actor. See, as an actor, you live longer. Football players, the brain and all that stuff, ooh-eee, that's not good.
+- I love performing, you know, because, like I say, I'm a ham for this stuff.
+- I'm not the same man I used to be, I'm not out hell-raising, stuff like that. I am a changed man.
+- My mother never cursed at home; my father never cursed at home. My father didn't drink. Even though we were poor, we would say a blessing over the table. So that's who I am.
+- I answer only to God.
+- When I'm ready to fight, my opponent has a better chance of surviving a forest fire wearing gasoline drawers.
+- I serve God.
+- If you gonna wear the mohawk, you stick with it. You don't just be dibby-dabbing. You make up your mind.
+- I was mischievous. I wasn't bad. I stole food so we could eat. My mother didn't know. I used to tell her some man gave me $10 to sweep out the yard. I was like Robin Hood. I took from the rich and gave to the poor. Me.
+- I was one of the wildest Santa Clauses they ever had.
+- 'Rocky' and 'Rocky III' were the best.
+- I didn't come to Hollywood. Hollywood came to me. A lot of people wish they could say the things I say. Everyone out here is so phony, it's sickening.
+- I'm tough when I have to be, tender when I should be. When you find a really tough guy, he's not a predator. He doesn't have to prove himself. Guys who have to pretend to be tough, they ain't. I'm tough.
+- The blessed of us must save the less of us. I'm blessed, and yeah, I'm planning to go to Heaven.
+- I always was a Christian... whatsoever a man thinks in his heart is who he is.
+- I take a lot of pride in the work I do, because people pay to see me. They've got to get babysitters, park their car, get popcorn and candy. I've got to be conscious of that.
+- I'm a free spirit.
+- Don't be getting sloppy drunk and telling them dirty jokes.
+- If I forget to pray, I can't get through the day without snapping at people.
+- I'm tender on the inside.
+- I used to carry my father's Bible and put it on the pulpit so he could preach.
+- It takes a smart man to play dumb.
+- You pity the fool because you don't want to beat up a fool! You know, pity is between sorry and mercy. See, if you pity him, you know, you won't have to beat him up. So that's why I say fools, you gotta give another chance because they don't know no better. That's why I pity them!
+- The most violent show on TV is the six o'clock news.
+- I didn't watch 'The A-Team' movie. I'm an artist. You can't re-paint a Rembrandt. You can't duplicate that; I don't care who you get.
+- I sent out a tweet, 'Dancing with the Stars' should stop the jibber jabber. They shouldn't make the departure of a dancer so tear jerky because nobody's going to war.
+- I used to bodyguard for some celebrities and other people, and when I wasn't doing that, I used to work at a disco as a doorman or a bouncer.
+- If people are cool, then they are not stressed. I pity the fool that don't be cool.
+- Gold was a gift to Jesus. If it's good enough for Jesus, it's good enough for me!
+- My gold, my money couldn't stop cancer from appearing on my body. If they can't save me, then I don't need them.
+- You cross me, I'm going to hurt you. But I'm really very gentle.
+- I don't worry. I don't doubt. I'm daring. I'm a rebel.
+- When I was little, I used to adore gold. It was something special.
+- Really, you don't lose until you stop trying.
+- To have a comeback, you have to have a setback.
+- We all gonna die eventually from something or other, but don't be a wimp. Put up a good fight.
+- I do watch some TV. I like the History Channel and National Geographic, and old shows on TV Land like 'Sanford and Son,' 'The Jeffersons,' and 'Benson.'
+- My mother told me, 'Son, nobody else but God knows.' And that's what I'm about - reaching out to the people, crying with them, giving them hope. Visiting the hospital, visiting the kids with cancer, visiting the adults, and stuff like that. That's what I do.
+- Left ear, I wear four earrings. The four is symbolic of the four seasons, spring, winter, summer and fall, the four directions, north, east, south and west, the four gospel writers, Matthew, Mark, Luke and John.
+- I was being trained because I wanted to be a preacher like my father. I wanted to talk about Moses; I wanted to talk about God... I wanted to talk about the apostles, the disciples and all that.
+- God didn't make me to make movies, flex muscles, buy gold. What you love the most becomes your God... If I never make another dollar, my life is complete.
+- Hmm, on my downtime, I take a shower or listen to the Bible on tape.
+- If you can't read, the only thing you can do is enjoy the pictures, not the whole story. Reading is the key to knowledge. Knowledge is the key to understanding. So read on, young man! Read on, young lady!
+- I don't call up the press and say, 'Look at me!'
+- I go to cancer wards, and I tell them guys, 'I've beaten it. You can, too.'
+- I always say I'm one of the toughest mama's boys you're ever gonna meet. And I say that to send a message to all the young thugs out there; that it's nothing to be ashamed of to say you love your mother.
+- I would never do a commercial if I thought it was offensive to anyone.
+- I was baptized by my father when I was 4 years old.
+- We were poor, but we smiled.
+- I want people to draw strength from me.
+- Everybody loved 'The A-Team' because it was entertainment, pure and simple.
+- I pull no punches!
+- One time, this guy was bothering my mother, and me and my brothers had a stern talking with the guy and a little bit of physicality with him. So he disappeared. But I'm not a magician.
+- Mr. T. been to chemo, Mr. T been to radiation, hair fall out... but he's back. Now I can give hope when I go to the hospital, see the sick kids with cancer, tell them, don't quit.
+- I hold the door for the ladies - I'm a gent.
+- I'm a mama's boy because everything I do is with respect to my mother. I won't do a movie or a video that would bring disrespect to my mother.
+- I pity the fool who just gives up.
+- To kids, I've always been more than just some big tough black guy. I train to be tough - I box and do karate - but underneath all that toughness is a tender man.
+- I go down the street, people see me: 'Hey, I pity-' right on, man, that's a compliment to me.
+- Stay humble and be concerned for the less fortunate.
+- I said I would never wear my gold again because it would be insensitive and disrespectful to all the people who died and lost everything in Katrina.
+- God is on my side, and that's all I need. I get up in the morning, I pray to God. I don't pray to the president, the governor, the mayor, no black caucus, no this and that. I pray to God, and that's the end of it.
+- Back in the day, I would wear up to 45 pounds of gold. It would take me four hours to get dressed!
+- They used to call me 'Touchdown T.' I remember in high school, we had homecoming, and I got in front of the pep rally, and I told them, 'I'm going to run for three touchdowns.' I ran for three touchdowns, kicked the extra point, and took myself out the game.
+- When you give, it comes back to you.
+- I listen to my mother, and that keeps me out of trouble. I'm a good son.
+- To be a bodyguard is to be a kamikaze pilot. Dedicated.
+- I've never seen myself as a star. I never call myself a celebrity or a superstar, whatever.
+- I try to use my experience and the fact that I grew up in the ghetto - I tell people you don't have to rob or steal to get out of the ghetto.
+- When my ancestors came from Africa, they were shackled by our neck, our wrists, and our ankles in steel chains. I've turned those steel chains into gold to symbolize the fact that I'm still a slave, only my price tag is higher.
+- I try to work out my mind more these days. I try to eat right. I don't drink, I don't smoke, and I take the skin off chicken. But I'm not on no special diet. I like my steak and potatoes, ice cream, doughnuts.
+- All I ever wanted to do with my life was own a little house. I did that way back with 'Rocky,' so now everything I do is just icing on the cake.
+- I have been chosen by God Almighty to be one of his messengers.
+- I'm a Christian - I really don't believe in UFOs.
+- The reason why I wear gold - I wear gold for three reasons. One, when Jesus was born, three wise men came from the east: one brought frankincense, one brought myrrh, the other one brought gold. The second reason I wear gold is I can afford it. The third reason I wear it, it's symbolic of my African heritage.
+- I know about two things: 'Rocky III' and Clubber Lang, and 'A-Team' and B.A. Baracus. That's who I am!
+- If you look at my job, my union card, it says 'actor.' It don't say nothing about celebrity, movie star, nothing like that, and that's one thing that keeps me humble.
+- When I was nine years old, living on the south side of Chicago, my father was a minister and my mother used to scrub floors. I had seven brothers and four sisters. I told my mama, 'One of these days I'm going to be big and strong and buy you a beautiful house.' That's all I've ever wanted to do with my life, is to take care of my mother.
+- I use my celebrity status to inspire someone, to give them hope.
+- When I'm in the house of God, I don't wear my jewelry, if you're looking for my jewelry. All you see is my heart of gold.
+- I don't like magic - but I have been known to make guys disappear.
+- I believed in God when cancer come to me. Now when I speak, I speak with authority because I've been there.
+- I'll never have a wedding. I don't want to marry just to do what everybody else is doing.
+- I'm not really an actor, I'm a reactor; I'm a pitchman. That's what I do best. Nobody can do it any better.
+- I'm not a star. I don't feel I'm so great. So how can I make you feel great just because you've got my signature on a piece of paper?
+- Basically, I wear sandals, like Jesus. When it gets cold in Chicago, the snow way up to my knees, I still wear my sandals. But that's me.
+- I have the Midas touch, in the way that when I hook up with a project, I feel, not speaking cocky or conceited, but there's a confidence I have. I learned that from Muhammad Ali; I used to bodyguard him. He taught me about confidence. So when it comes to any job I work, I'm gonna do it good; I'm going to bring it over the top.
+- I was a straight-A student. But I was a bad lad.
+- My momma didn't clean up floors so I could be a thug... so I could wear my pants down.
+- Obama's not Jesus. He can't walk on water.
+- NBC had a show called 'The Toughest Bouncer in America' that I did. But I told them I didn't like that term, 'bouncer.' To me, it's offensive. A bouncer likes to get physical, likes to put his hands on people.
+- If you get knocked down - setbacks in life, like applying for a job if they don't hire you - keep trying, keep getting up, keep doing it.
+- You might not have the things you want, but if you check carefully, you got all you need.
+- I don't mean to be cocky, but if I'm never on TV again, if I never make another dollar, I am proud. I did what I wanted to do.
+- You know, T can stand for anything. T stand for working hard. T stand for loving thy neighbor. T stand for feeding the hungry. T stand for just working, working, working, being happy on the set, you know, lifting everybody's spirits. T stands for just a nice guy.
+- I knew I wasn't going to be a rocket scientist - let's not be fools - but I wasn't going to be a bum.
+- T stands for being nice. T stands for manners. T stands for being polite.
+- Life guided me to being a bodyguard, protecting people, then in the movies, so I'm happy with everything because basically all I ever wanted to do was be a good son and take care of my mother.
+- I don't have a problem with Hulk Hogan. People say things and do things, and who am I to judge?
+- I want to represent... to the kids to draw strength from me. So they can see that everybody goes through something, but you can rise up and do your best. Just try.
+- My mother raised me with God. We were poor financially, but we were rich spiritually.
+- As a Christian, you forgive, and you feed the hungry and clothe the naked, and you visit the sick and comfort the lonely. If I'm a true follower of my lord and saviour Jesus Christ, I got to do the things you're supposed to be doing.
+- If every man loves his mother, he's going to treat the ladies right, with love and respect.
+- I get up every morning and say, 'Father, give me strength today, not strength so I can lift 500 pounds, but give me strength, Lord, so when I speak, my words might motivate, might inspire somebody, Lord, when they see me, let them see you. When they hear me, Lord, let them hear you. In your holy name I pray.'
+- I used to bodyguard for Muhammad Ali, Leon Spinks, Sugar Ray Leonard. I used to bodyguard a lot of diamond merchants; I would travel with a suitcase full of diamonds and take them from point A to point B. My reputation grew because I was a professional. I did my job, and I was courteous - a no-nonsense guy.
+- Everybody has done something that we wish we didn't say or do and wish we could take it back.
+- Judas betrayed Jesus. Lady Red betrayed John Dillinger. Those things happen.
+- I am a tough guy.
+- I have a heart of gold, but I'm really a marshmallow in my heart.
+- I thank God I'm in a position where I can pick and choose - there are some roles I don't play.
+- You'll never have any trouble with Mr. T, I'm just a big, calm teddy bear kind of guy. Mr. T ain't ashamed to cry. When I go out and I meet people who are suffering and they come and talk to me, Mr. T cries, Mr. T who could break a man's jaw with his fist.
+- This guy Clubber Lang, I've been him all my life. He's mean and hungry just like me.
+- When I was growing up, my family was so poor we couldn't afford to pay attention.
+- I don't do Shakespeare. I don't talk in that kind of broken English.
+- A lot of the stuff I do in terms of PR, I learned it from Muhammad Ali.
+- Like Frank Sinatra, I'm doing it my way.
+- I believe in the Golden Rule - The Man with the Gold... Rules.

@@ -1,0 +1,69 @@
++++
+author = "Tatiana Maslany"
+title = "Tatiana Maslany Quotes"
+quotes_len = "63"
+description = "the best 63 Tatiana Maslany Quotes"
++++
+- I was honestly a cartoon kid. I loved cartoons. That was more my dream than anything else. But now, it's the films of people like John Cassavetes and Gena Rowlands. Those are the kinds of characters I want to play, and that's the kind of filmmaking I'm fascinated by.
+- I fell in love with 'Star Trek' after J. J. Abrams's movie. I'm so into that.
+- I'm attracted to stories that excite my imagination, stories that, as I'm reading the script, I feel it, I can see it, I can hear the characters. I'm attracted to characters that are real, that tap into something inside me that I haven't explored yet.
+- Clothing and makeup and hair and all of that so much indicates the kind of person you are inside and the person you are presenting on the outside. Sometimes they are in conflict, and sometimes they are the same. That psychology of the exterior informing the interior is just so interesting.
+- 'Orphan Black' allows for people to have debates and theories and allegiances to different characters - to trust characters and hate other characters - but it doesn't tell you who is good or bad or right or wrong. That's the most exciting storytelling, in my book.
+- I think there's something really freeing about improv, that it's a collective, creative, in-the-moment piece. That's really exciting and really frustrating, because it's there and gone.
+- I haven't really done a lot of comedy. It's something that terrifies me.
+- I'm a huge 'Futurama' fan, so that's my closest sci-fi tendency.
+- You're working with adults and you're being paid to do a job. And you're a kid. Then you go back to high school, and everybody's partying, and they're doing math. I always felt a little bit outside of it. Outside of both experiences, really.
+- Comedy scares me a lot. I feel like it's way harder than drama. I think my safety net is definitely drama, and I would love to kind of be able to be able to push into the comedy world and do something kind of like a Christopher Guest kind of style show. That, to me, is my kind of comedy. Like, Ricky Gervais comedy. That's my kind of thing.
+- Hype is wonderful when it happens, and you should capitalize on it. But you shouldn't bank on it being the thing that will take you to the next step. Because it's fleeting. The blah-blah-blah goes away, but you're still there.
+- We do long-form-style improv. Our focus was characters and telling a long arc story over about an hour and a half. It was closer to a one-act play than one-off sketches.
+- Film has always been where my heart is.
+- Something like 'Rust and Bone' would be a dream. Very pared down. 'Orphan Black' is such a challenge. I just need something that isn't as full-on intense as that.
+- I think being idle is quite hard for me to do.
+- I'm an actor, and I like having attention, I guess. There's a reason I like being on stage. There's a reason I like being in front of a camera. It's that interaction.
+- My brothers and I always did improv stuff in our basement with our friends; we're super nerds, and that was our way of spending a Friday night.
+- I went to a French immersion school, and French-Canadian improv is a big thing, and we had an improv team at school, and 12 of us would get up and make things up against other elementary schools. I'd always wanted to perform, and that was just another extension of it.
+- Sometimes I'll go into a shop and speak in a different accent to see if I can pull it off. But then somebody will be like, 'Where did you say you were from again...?' And then I panic, and my accent dissolves, and I pretend like I wasn't doing it in the first place.
+- I think Amy Poehler and Tina Fey have done so much for women in comedy in the sense that they've normalized it. You don't think, 'I'm going to watch that comedy starring a woman,' you think, 'I'm going to watch that funny show.' They refuse to play the foils for men, or be reduced to the butt of every joke, and I love that about both of them.
+- That's my favorite kind of television, where it's not wrapped up in a pretty little bow. It's like life. You deal with one thing in your life, 500 others rear their head.
+- I love hip-hop; I love Sleigh Bells. I also love classical music and musical theater.
+- Music is like a lifeblood - it changes the way I move; it changes the way I feel about myself. The way I walk into the room is different depending on the song I was just listening to.
+- I was a dancer from about the age of four, so I was always performing and forcing my parents to watch my brother and I do 'Jesus Christ Super Star' in the living room. My first step was community theater, and then I started to do films.
+- I am drawn to those parts; I like the tough girls because they are not tough. It's a veil; it's a disguise. It's defenses. At the core, everybody is human, everybody is fragile, everybody is terrified, and the fear is what propels you to be tough.
+- It's the reason we go to films and watch television: to escape the mundane nature of life and see another world and see ourselves in that other world. I think that's what sci-fi does so well.
+- I like challenging parts, something I haven't done yet, something that scares me. There's just a feeling I get when I read a script that I love, I feel an attachment to it, a yearning to play that character.
+- The way people love sci-fi is how I love cartoons.
+- As an actor, you're listening to the other person and always trying to be present and take everything they're giving you, but when they're not there, you have to produce that yourself.
+- I grew up in Canada, man - we all had rinks in our backyards because we'd ice down the grass with a hose and build a skating rink.
+- How you go about moving within the world you live in says so much about who you are.
+- I transitioned into theater and acting when I was about 9, community theater and musicals, being, like, chorus-kid-number-78 or whatever. But I just loved it. As a kid you just crave attention, and early on I just felt it was so cool and fun to play around and have people clap for me. But eventually I grew up and fell deeper into it.
+- I'm incredibly close to my family. I have two younger brothers; they're both artists and actors, and their work and the way they see the world inspires me.
+- There's something really unique about 'Orphan Black' is that it has a lot of female leads, so it's about a lot of women's stories, but it's not women's stories in terms of trying to find a guy or keep a guy; it's about entirely other things.
+- I'm at the transition place myself, still playing high school girls but moving to a stage when I'm playing older roles and going to the places of stillness and wisdom and knowledge and weight. It's exciting and scary.
+- I was in a Nativity play as a kid. Back then, I played the donkey.
+- Robert de Niro has always been fascinating to me. And if John Cazale were still alive, that would be a man I'd love to work with. I'm a big fan of Paul Thomas Anderson's films - I would be honored to work with him. I think he's a brilliant director, and he gets such compelling stories out of his actors and out of his crew.
+- Some of my favorite shows are ones where the characters are vile and human and flawed. That's what makes me want to keep watching a show, not writers telling me how to feel about characters.
+- I started out as a dancer as a kid; I've been dancing since I was 4. So performing was always part of what I was.
+- I loved filming in Morocco; it was amazing. I'd never been anywhere like that. The culture was phenomenal. I was so blown away by the spirit of that country.
+- I started out as a dancer as a kid; I've been dancing since I was 4. So, performing was always part of what I was. I don't know if it I enjoyed the response I got from people or if I liked having an audience, but there's something in me that wanted to perform.
+- Those darker sides, the things that we don't want to admit about ourselves - that's what excites me.
+- There's so many different people that I'm fascinated by. Different kinds of characters that I meet in, like, everyday life, that I'm like, 'I don't know how you exist. Like, you're so fascinating.'
+- It's always been my dream to just continually do really cool indie movies, character-driven stuff. I would love to do more theater on a larger scale. I'm just excited for the next thing that comes along that I'm salivating over. I think a little more guerrilla would be really exciting to me.
+- For me, comedy literally is way more terrifying than doing drama, so it's always about stretching what I think I can do and putting myself out there in different context.
+- I like 'Futurama.' That's kind of the only thing that's my sci-fi thing, although I was big into zombies for a time.
+- Auditions are not a natural environment, and you feel judged, even though everyone is just excited to find the right person.
+- I have a collection of vintage sundresses, and I've never worn them because for some reason I always opt for shorts and a t-shirt. I wish I could commit to them. I will. I have a few really great pieces I've been holding onto for years.
+- Trust your gut. You know yourself, so don't let somebody else tell you who you are.
+- I find comedy to be really scary, because it can go so wrong so easily, and the margin for error is so huge - and I guess that's what makes it funny, that tension.
+- Sex isn't hard, but intimacy is terrifying.
+- It's always been my dream to just continually do really cool indie movies - character-driven stuff.
+- I did improv for about 10 years professionally, and before that, I had done it in high school as part of an improv team. It was definitely a big part of my upbringing.
+- There's something about music that makes me feel like a different person, that feels like an escape.
+- I think there's something really freeing about improv, that it's a collective, creative, in-the-moment piece. That's really exciting and really frustrating, because it's there and gone. There's an amazing interaction with the audience that happens because they are very much another scene partner.
+- I try to get roles that challenge me in what I can do and who I think I can portray. For me, it's about creating characters with really fascinating stories, because that's what I like to watch on TV.
+- I was on the improv team in high school, and after I graduated, I joined an improv company that had been established 10 years prior to me getting there. They did longform improv, and I fell in love with it. It's acting, character creation, collaborative, artistic expression and comedy - and it's scary. It was a big rush.
+- My mom's a translator, my dad's a woodworker; that's the world I grew up in, that's the world I'm most comfortable in. The whole idea of Hollywood or any of that other stuff that unfortunately goes along with film, that wasn't part of my upbringing, thankfully.
+- I love people, watching people interact. It's a lot of psychology. We learn about ourselves by watching other people's lives on the screen.
+- You're hot for two seconds, and you're struggling to get work again. If it were easy, I don't think that's a good place for an artist to work from.
+- My mom taught me German before I knew English. And I went to French immersion school.
+- I've worked on shows where the lead actor doesn't know their lines, doesn't care, and it affects everybody - the crew, the director, the other actors. It's definitely a responsibility.
+- I'd say I am more of a comfort person. I have Adidas sneakers that are my favorite thing on the planet. Adidas high tops with black jeans and a fur hat that I love wearing. I love vintage shopping.

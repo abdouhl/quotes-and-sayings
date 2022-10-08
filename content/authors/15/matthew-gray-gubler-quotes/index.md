@@ -1,0 +1,53 @@
++++
+author = "Matthew Gray Gubler"
+title = "Matthew Gray Gubler Quotes"
+quotes_len = "47"
+description = "the best 47 Matthew Gray Gubler Quotes"
++++
+- It feels, to me, when you're with someone you really love, you never look at your phone.
+- One day, I woke up, and I was on CBS in front of millions of people, and I'm like, 'Oh man, I don't know anything.' The only thing I'd ever technically studied was filmmaking.
+- I am embarrassingly 1920s in style.
+- I think I veered towards filmmaking because there's more of a sense of control in it. You're not waiting to be picked. That said, in film school I acted in probably 6,000 student films because no other filmmakers knew anyone who wanted to act. It was all a big beautiful snake eating its tail, progressing along the way.
+- Tisch has a great film program and a great acting program, but they are segregated; you don't really intertwine. My peers knew I liked acting, so they'd be like, 'Go get that guy Gubler. He'll be in your student film.' I was in the same building. I became their go-to guy. So I left NYU having been in probably one thousand short films.
+- I've always had the utmost respect and awe of what the lens can do and what a director can do with just a camera move.
+- I know when an actor goes in to audition, if they don't get the part, it's not because they're a bad actor at all; it's because it's not quite the right fit.
+- I really cite Walt Disney as teaching me everything I know. It sounds crazy, but I'm serious! In 'Bambi,' the mother dies, but you don't see the corpse. You see the father, the stag, come up and you see 'Bambi' alone, and that has so much more impact than seeing a mutilated deer.
+- I would love to be on 'Curb Your Enthusiasm.' I'd love to be on that. A lot of my favorite shows get canceled really early on. I liked 'Twin Peaks.' If I had a time machine I'd be in that.
+- What I like most about directing is creating a world more so than anything. To me, the music is the wrapping paper on that world.
+- I'm a control freak, and anytime I direct something, I try to make it as homemade and handmade as possible. I feel like that's my favorite type of filmmaking, where you can see the seams, and it doesn't feel like a swiftly produced, whole seeky-eyed event.
+- I found out that smoking is the leading cause of statistics.
+- I think the key to directing a great music video is in making sure the song is great, and if it is, then it becomes really fun.
+- It'd be cool to chipmunk-ize 'The Virgin Suicides' soundtrack. All this ethereal French music, I think that would be unique to listen to.
+- I am weird that I love auditioning.
+- My parents instilled a very strong work ethic in me from a young age, fortunately.
+- Being on a TV show is incredibly daunting.
+- I get very little sleep. But I try to stay constantly busy. My fear is that if I stop working I'll, like, die. So throughout my life I've always tried to remain busy, and I sort of know no other way. I think if my heart rate slowed it would affect my constitution, strangely. I've been trained to do that.
+- When I watch movies - when I watch 'Star Wars' - you want to watch the fun characters, the diversions.
+- I'm very similar to the way I was when I was 5.
+- I like to be in bed at 11, and I like to get 11 hours of sleep.
+- I get really sad when people say, 'I'm no good. I haven't been cast in a pilot.' It doesn't mean you're not good; it just means someone hasn't seen you yet. It doesn't mean that in real life you're not the greatest actor.
+- Joe Mantegna is like my Los Angeles dad.
+- I've always been a fan of Andy Kaufman.
+- With all comedy, you try to ground it in credibility and reality.
+- I like haunted things.
+- My best advice to actors is if you love acting, do it every chance you get. Success does not mean success. All that matters is whether or not you're doing your best to entertain. The way this business works is all about luck and timing.
+- A fantastic actor in a scene that's just closed off will be good. But when working with a director who knows little tricks - correct music, slowly pushing in - that stunning performance will somehow become even better. I've always seen it as a symbiotic relationship.
+- I remember a kid throwing an orange at the back of my head in Spanish class and calling me four-eyes, and I remember saying, I said, 'That's true, and I have two more eyes than you.' I felt like it was better. If I have four eyes, I'm twice as good as you.
+- I've had this unbelievable amount of good fortune and I'm just so thankful for it. But at the same time I feel exceptionally guilty. I have so many friends who are talented graduates of Juilliard and are exceptional actors and I'm the lucky one that somehow got such a fortunate break.
+- I never thought I'd be making a living off of acting - it's still kind of a shock for my family and friends to see my face on TV every Wednesday night.
+- For whatever reason, all my friends are musical wizards and in great bands, but yeah, it really skipped over me. It's one art form that I can just sit back and appreciate and no have thoughts on. If I watch a movie, I always think, 'Oh, I'd have done this.' But with music, I can just sit back and think, 'All right, this is great!'
+- My favourite actors have always been the character actors.
+- The nature of storytelling, since the dawn of man, has a beginning, a middle, and an end.
+- I studied directing prior to acting and I've done music videos and documentaries and things that were sort of well-received.
+- I looked like a 'Super Mario Bros.' Goomba. It's arguably the ugliest haircut on the planet.
+- I look a little like Beaker. I think I'm a cross between Beaker and The Count. My hair looks like Oscar the Grouch. It's Muppety hair.
+- I'm happy every day that I get up and I'm alive.
+- I thank every bully I ever had because that's the only reason I'm here. I learned how to not be affected by it and triumph over it, and that made me - again, if I had any success whatsoever, it's because these people made fun of me.
+- I love the holidays - any holiday - but Christmas has always been sort of special because I grew up reading Charles Dickens.
+- I'm not the best singer.
+- Literally, my first audition after 'The Life Aquatic' was for the 'Criminal Minds' pilot.
+- I never imagined I would have one fan, and there seems to be a few. I just couldn't be happier that people seem to like what I'm doing and seem to respond to it. If they weren't there, I don't know what I'd be doing right now.
+- If you just do a Google search and type in 'smoking' or 'lung cancer', you will be barraged with never ending facts and numbers, like how one in every three Americans is affected by lung disease and how COPD is the third leading cause of death and if you get lung cancer the odds are 95% that you will die.
+- I'm as happy entertaining one person as I am entertaining a million people.
+- I just love entertaining. I will do anything - stand-up comedy, video games, fencing, internet shorts - I just want to keep being lucky enough to entertain people anyway I can. I try never to limit my art to a medium.
+- My dream is just to make zero-budget movies for the rest of my life, because I love that environment.

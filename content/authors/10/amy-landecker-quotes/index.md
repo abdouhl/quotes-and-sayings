@@ -1,0 +1,49 @@
++++
+author = "Amy Landecker"
+title = "Amy Landecker Quotes"
+quotes_len = "43"
+description = "the best 43 Amy Landecker Quotes"
++++
+- Some of the greatest stuff that I watch, that I'm drawn to, is deeply flawed human beings, because they're representing a part of us that might not be all of us but the part we're most afraid to look at, and so we get to vicariously experience it through this character.
+- I think it's amazing that I'm 45 and it is the most creatively successful year of my life.
+- I actually cannot stand a room without a view - I would rather have a bedroom the size of a closet with a view over a suite without one.
+- I was at the radio station all the time and on the air all the time. I met John Travolta and a lot of the other big '70s icons. Shaun Cassidy sang 'Da Do Ron Ron' to me onstage. I thought I was a rock star; I had an all-access-pass childhood.
+- I can do a really loud monkey call. I can put both my legs behind my back. And I can stick my fist in my mouth.
+- I'm the second wife of Paul Reiser on TV.
+- There are people out there every day really fighting the fight for equal rights, equal pay, equal treatment. They're inspiring.
+- When I was younger, everyone thought I was Courteney Cox.
+- I'm not as smart or talented as anyone around me. But they like me.
+- It's actually one of the hardest things for trans people, is to go to the bathroom.
+- I feel like handling a narrative in fiction is a wonderful way to teach stories that then open a pathway to reality and understanding.
+- Look at Jane Lynch, another Chicagoan. She has a career I'd kill for. She does amazing work; she's famous enough to have some power, but not so famous she has to deal with people buzzing around her life.
+- I've never, ever had a job that lasted for more than a few months.
+- Before I had satellite radio installed in my car, I thought I would lose my mind listening to commercials and having limited choices on the dial. Your car is your home in L.A., so you've got to have some good stuff to listen to.
+- The pedicure is beside the point - the rub is all I care about. And not just my feet, my calves and thighs. There is nothing better, except maybe a scalp massage.
+- We actually use a lot of improvisation on 'Transparent.'
+- I want to single out Kathryn Hahn's performance in Jill Soloway's film 'Afternoon Delight,' which in my opinion should have been nominated for an Oscar. I think it's one of the greatest female performances I've ever seen on screen, and I think she's wildly talented.
+- It's hard to get those roles that allow you to show everything and feel like you're really being used and exhausted and spent, which I think is what actors really love: We want to be tired.
+- I think that with these streaming shows, sometimes it takes a little time for everybody to - because they know they have time, you know it's up there - you'll get to it when you get to it. It sort of like, 'Oh, it's on my list.'
+- 'Curb' is 100 percent improvised, which is wild. I'd never done anything like that.
+- Families just have so many secrets and dysfunctions.
+- I know people who try open relationships. People I really care about, they're fine with it. That's a personal decision.
+- I made a sort-of living in the beginning of my acting career as a reporter. I think my very first job was 'Early Edition' as reporter no. 1, and for 'Light It Up,' I was reporter no. 2.
+- I think human beings are funny, tricky things.
+- You don't want your personality to eclipse your work because no one would be interested in seeing your work anymore.
+- I will spend anything on the best sheets in the world because I am going to be in them every night. I like them white and crazy soft.
+- If you've raged, if you've mistreated somebody, if you've ever thought only about yourself - these are things that all human beings struggle with and judge themselves for.
+- I'll always identify as a Chicagoan; if it wasn't so cold, I'd be there forever.
+- Everyone's so used to taking care of actors and directors, but people in the crew are there the longest and working the hardest.
+- In a theater experience, the words and the feelings are the most important - the lights coming on and off are the only equipment.
+- You always hear actors say, 'Theater is my first love,' and it is. It's a time when you really get to do what you do, and there's not a lot of waiting around and interruption and not a lot of money involved - sometimes money really clouds the waters of creativity.
+- I'm not someone who had to worry about aging on camera. I was already aged when I got there.
+- I thought maybe I'd be a female sportscaster.
+- I have a combination of self-love and self-loathing, just like most people.
+- Once you know trans people, all you wanna do is protect them. They're not out to hurt anybody. They are trying to live.
+- I am very close to a number of actresses who are trans and hungry for parts.
+- I feel like sometimes, when I talk about 'Transparent,' I'm in a cult. And in some ways, I guess I sort of am, although it's a cult that pays me, and I don't pay it, so maybe that's a really good cult.
+- I learned about not just being with someone because I don't want to be alone: being willing to be alone, and then find something that feels right and just reaching for companionship for companionship's sake. Not letting drama lead my life.
+- Network cable reads are always kind of stressful because it's the first time everyone's read through it out loud.
+- I love the idea that we're going to be genderless and boundaryless in the future.
+- The first red carpet I did was at New York's Paris Theatre... It was this beautiful night, and everyone is screaming my name. I'm the least pretentious actress you can ever meet. Someone said to me that I look like I've been doing this forever, and I said that's because I watch E!
+- I was a Chicago theater actress until my early 30s, so I got to do a lot of meaty stuff in theater.
+- I find rage to be the scariest emotion as an actor, for me personally, to tap into. I don't like anger, and I don't like conflict particularly in my life. I like everybody to be nice and things to be easy.

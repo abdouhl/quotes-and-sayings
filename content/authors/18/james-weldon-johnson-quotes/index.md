@@ -1,0 +1,37 @@
++++
+author = "James Weldon Johnson"
+title = "James Weldon Johnson Quotes"
+quotes_len = "31"
+description = "the best 31 James Weldon Johnson Quotes"
++++
+- Americans are immensely popular in Paris; and this is not due solely to the fact that they spend lots of money there, for they spend just as much or more in London, and in the latter city they are merely tolerated because they do spend.
+- Young man, young man, your arm's too short to box with God.
+- My luck at the gambling table was varied; sometimes I was fifty to a hundred dollars ahead, and at other times I had to borrow money from my fellow workmen to settle my room rent and pay for my meals.
+- It is a struggle; for though the black man fights passively, he nevertheless fights; and his passive resistance is more effective at present than active resistance could possibly be. He bears the fury of the storm as does the willow tree.
+- It is from the blues that all that may be called American music derives its most distinctive character.
+- My appearance was always good and my ability to play on the piano, especially ragtime, which was then at the height of its vogue, made me a welcome guest.
+- But I must own that I also felt stirred by an unselfish desire to voice all the joys and sorrows, the hopes and ambitions, of the American Negro, in classic musical form.
+- Any musical person who has never heard a Negro congregation under the spell of religious fervor sing these old songs has missed one of the most thrilling emotions which the human heart may experience.
+- I do not see how a people that can find in its conscience any excuse whatever for slowly burning to death a human being, or for tolerating such an act, can be entrusted with the salvation of a race.
+- The battle was first waged over the right of the Negro to be classed as a human being with a soul; later, as to whether he had sufficient intellect to master even the rudiments of learning; and today it is being fought out over his social recognition.
+- I had enjoyed life in Paris, and, taking all things into consideration, enjoyed it wholesomely.
+- The peculiar fascination which the South held over my imagination and my limited capital decided me in favor of Atlanta University; so about the last of September I bade farewell to the friends and scenes of my boyhood and boarded a train for the South.
+- Washington shows the Negro not only at his best, but also at his worst.
+- When we arrived in London, my sadness at leaving Paris was turned into despair. After my long stay in the French capital, huge, ponderous, massive London seemed to me as ugly a thing as man could contrive to make.
+- There are a great many colored people who are ashamed of the cake-walk, but I think they ought to be proud of it.
+- Shortly after this I was made a member of the boys' choir, it being found that I possessed a clear, strong soprano voice. I enjoyed the singing very much.
+- Labor is the fabled magician's wand, the philosophers stone, and the cap of good fortune.
+- Amsterdam was a great surprise to me. I had always thought of Venice as the city of canals; it had never entered my mind that I should find similar conditions in a Dutch town.
+- Southern white people despise the Negro as a race, and will do nothing to aid in his elevation as such; but for certain individuals they have a strong affection, and are helpful to them in many ways.
+- In Berlin I especially enjoyed the orchestral concerts, and I attended a large number of them. I formed the acquaintance of a good many musicians, several of whom spoke of my playing in high terms.
+- And so for a couple of years my life was divided between my music and my school books.
+- I thought of Paris as a beauty spot on the face of the earth, and of London as a big freckle.
+- She was my first love, and I loved her as only a boy loves.
+- My mother was kept very busy with her sewing; sometimes she would have another woman helping her.
+- As I look back now I can see that I was a perfect little aristocrat.
+- As yet, the Negroes themselves do not fully appreciate these old slave songs.
+- Northern white people love the Negro in a sort of abstract way, as a race; through a sense of justice, charity, and philanthropy, they will liberally assist in his elevation.
+- The Southern whites are in many respects a great people. Looked at from a certain point of view, they are picturesque. If one will put oneself in a romantic frame of mind, one can admire their notions of chivalry and bravery and justice.
+- Through my music teaching and my not absolutely irregular attendance at church, I became acquainted with the best class of colored people in Jacksonville.
+- I believe it to be a fact that the colored people of this country know and understand the white people better than the white people know and understand them.
+- You are young, gifted, and Black. We must begin to tell our young, There's a world waiting for you, Yours is the quest that's just begun.

@@ -1,0 +1,54 @@
++++
+author = "Macklemore"
+title = "Macklemore Quotes"
+quotes_len = "48"
+description = "the best 48 Macklemore Quotes"
++++
+- I think people are enticed by indie rap and every time you have a group going against the grain, they're gonna be like, 'Wow, you did it yourself in 2012, that's impressive - how did you do it? What're you doing that's different? And how can I be a part of it?'
+- My partner has to have good sized bones.
+- When you mess up publicly, it can be difficult to get vulnerable again or to put yourself out there.
+- I think music should be experienced by people all ages.
+- The question is, What type of human do I want to be? How do I want to use my platform? Do I want to be safe, under the umbrella of my white privilege? Or do I want to push back and resist?
+- It's easier, as a white person, to be silent about racial injustice. It's easier. On paper. But it's not easier on the whole, because injustice affects all of us, whether we know it or not, whether we acknowledge it or not.
+- I'm a very conceptual writer.
+- I want to make music that I like; not something that I have to make because I think it's going to sell.
+- Music is therapy. Music moves people. It connects people in ways that no other medium can. It pulls heart strings. It acts as medicine.
+- I think what's wrong with the fashion world, particularly men's fashion, is the lack of creativity behind it.
+- I put myself in the place of the listener when editing my writing. The last thing that I want to do is be preached at and told who to be or what to think when listening to an artist. However, I do want to be inspired. There's a fine line.
+- It's really not about me. At the end of the day, God willing, I'll have another 40 or 50 years on this planet, and what I'm saying to myself is, 'What do I want to leave here?'
+- Thrift shopping is all about going into the thrift shop and having no expectation of what you might find.
+- You have major labels that are willing to take unconventional approaches because the old model is crumbling in front of us.
+- I think that, as a white person stepping into doing any sort of anti-systematic-racism type of work, asking yourself, 'What is your intention?' needs to happen on a consistent basis. Check yourself. Check yourself. Check yourself, like, constantly.
+- It's weird because music is this thing that you love doing, and it comes completely from a place of creativity, and then that transfers into having to manage a business and make decisions and figure out what is the best route to go in terms of getting your product to as many people as possible.
+- We have to tell people who need help that it's OK to ask for it.
+- When I write, I don't have any expectation of what kind of song it will become or who it might reach.
+- Thrift shopping is really just an extension of me being that same kid and going into a place that's completely unconventional that has really endless possibilities in terms of outfits that you can put together and really just expressing yourself.
+- The reason why I meditate and pray in general is just to remind myself that it is not about me.
+- I shop at thrift shops probably five times a week.
+- I don't feel like I'm grown up. I feel like I'm a kid.
+- Do you want to live life, or do you want to escape life?
+- The amazing thing about being a dad is to be able to look at your child and realize that the universe is so much bigger than you.
+- Reading a piece of poetry with no beat in front of 20 people is way more challenging than rocking for 10,000 people.
+- I don't want to look back and be like, 'You had it all, and you weren't even present for it. You weren't able to enjoy it.' I want to be here, be now and be grateful.
+- You can only watch injustice go on for so long until you're compelled to say something. To speak out against it.
+- The man that got me into collecting sneakers in the first place was the man they call Michael Jordan. He was the one who kind of exposed me to the sneaker world - he was my favorite basketball player, and he had the best shoes.
+- I think that civil rights issues take a lot of time to develop.
+- I got sober, and I got happy again.
+- Bullying is a national epidemic.
+- I don't write a great song every day. I don't write a great song every couple weeks. It comes in such random times.
+- Its easy to view politicians as corrupt and voting essentially an act of picking the lesser of two evils. I understand that perspective and feel it's valid.
+- I'm as honest as I can be.
+- I'm someone that examines culture and tries to break down why things are the way that they are whether its hip-hop music, sex, race, or consumerism. I try to examine it and scrutinize it to the point where I can write a song.
+- I played baseball up until my freshman year of high school. That was my main sport. I played third base.
+- Consciousness rap - a term that I don't think exactly exists but gets thrown around a lot - is not exactly popular.
+- The fame and the money and all that stuff that comes along with it is all great, but that's not the sole purpose of why I make music.
+- Sampling is kind of prehistoric, given the technology and the textures you can create.
+- 'Vote Love' means vote equality. It means vote change. It means vote what's right for humanity.
+- You need to get outside of your comfort zone to write songs that are interesting, songs that are compelling, songs that are different from what other people are writing.
+- I definitely use 'smiling while rapping' as a tool in the booth. I want to have fun while recording.
+- I think that there will always be artists out there who think they need to sign a major label deal in order to be successful. And that machine is what is going to work for them - there's tons of examples of pop stars who need that machine.
+- I just want to give the people 100% of myself as an artist.
+- I find that when I put my spiritual life first, the rest of my life is easy. When I put my career first, that's when I have problems.
+- I'm not more or less conscious than any other rapper out there.
+- There's this tendency to be like, 'Where's the negative stuff? How valid is the criticism?' But honestly, what people think of me is none of my business. If I live on the Internet looking for public approval, I'm going to be miserable.
+- 'The more expensive the better' is kind of the American way, and if you spent $600 for a sweatshirt, then that makes it better.

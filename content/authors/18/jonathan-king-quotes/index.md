@@ -1,0 +1,21 @@
++++
+author = "Jonathan King"
+title = "Jonathan King Quotes"
+quotes_len = "15"
+description = "the best 15 Jonathan King Quotes"
++++
+- We worked as a team... I was one of the band.
+- Peter remained very quiet and shy, but when he spoke it made sense.
+- It's not fair that the accused is not protected from adverse publicity whilst the accuser is guaranteed anonymity, whatever the verdict.
+- I've always liked people who know me to like me, because I think I'm quite likeable. But people who make up their minds based on the image in the papers or a voice on a pop record? They're idiots.
+- Prison opened my eyes to so many things. It was a great time. I met interesting people. I got to understand the behaviour of the police and the media. I am an observer of the human race.
+- Who authorised the spend of millions of pounds and thousands of man hours into a stale, historical situation from three decades ago - with virtually no complaints made?
+- I lead my life as normal.
+- I have lots of friends. I mix with all sorts of people, of all generations.
+- I was sad Jon Ronson, who wrote in the Guardian and has made a TV show for Channel 4, took against me.
+- If you find someone attractive, you try to make them find you attractive. That is called seduction. And seduction is a bit ugly. You could say it's a bit ugly to use your charisma.
+- My YouTube videos have literally millions of views... Yet I'm still airbrushed out of the BBC Stalinist revision of history; the chart shows have been instructed not to play my music!
+- No, my profile has leaped over recent years, so has my life experience, and I look forward to the next 30 years being even more rewarding and satisfying than the previous 60!
+- I believe in pursuing my own morality. That is all I have ever stuck by. It is my own morality that really matters.
+- My greatest reward is knowing for certain, as I do with many other acts and artistes, that without Jonathan King being alive and involved, Genesis would not exist, and the guys would have had careers as intended - as accountants and lawyers!
+- You can't fall in love after 40; you know so much about life that you can't get fooled anymore.

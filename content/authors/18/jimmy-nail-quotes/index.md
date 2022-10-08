@@ -1,0 +1,17 @@
++++
+author = "Jimmy Nail"
+title = "Jimmy Nail Quotes"
+quotes_len = "11"
+description = "the best 11 Jimmy Nail Quotes"
++++
+- I find it very hard to play a part, then take it off like a cheap suit and become Mr Normal - Mr. Nice Guy.
+- I went from being totally unknown to getting stopped every time I went out. I always wanted to be successful, but I have never wanted to become a celebrity. I never, ever, craved that.
+- I couldn't make sense of things. But then I began the process of civilising myself and trying to become a decent human being. I'm still working on it.
+- I haven't got the kind of discipline where I can turn my emotion inside out and then just switch off. It affects me fairly profoundly and I don't like putting myself through that kind of mincer every day.
+- The whole fame and fortune thing is addictive.
+- I've gradually grown more comfortable with who I am and what I am.
+- Even now I can't stand being recognized in the street. I just hate it when strangers come up and try to talk to me. I'm pathologically shy.
+- I've had a blessed career, and that has been acknowledged in many ways over the years.
+- If you think before you speak the other guy gets his joke in first.
+- The older I've got, the easier I've found it to accept myself. I think I've finally learnt not to beat myself up so much.
+- I was racing through life, utterly confused and angry. I don't know if I was out of control; it was more like I felt frustrated with myself and everything I saw happening around me.

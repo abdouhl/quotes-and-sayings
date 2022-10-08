@@ -1,0 +1,106 @@
++++
+author = "Naseeruddin Shah"
+title = "Naseeruddin Shah Quotes"
+quotes_len = "100"
+description = "the best 100 Naseeruddin Shah Quotes"
++++
+- A person takes his own path. My father tried to guide me the best way he thought I should go, and it didn't work. I went the way I wanted to.
+- I do enjoy thinking about the past.
+- I don't want any memorials or a grave which my children would have to look after or feel guilty about. I don't want to leave any trace except for the work I have done.
+- I have done practically everything that I wanted to do in my life.
+- I am the king of old school romance.
+- I am totally for first timers. I always hear them seriously. I have done so many films with first timers, and I've never regretted it.
+- Any youngster who comes to me and says he wants to act, I tell him to complete his education first because, for too long, uneducated actors have ruled the roost in the acting world.
+- I feel anxious for my children because tomorrow, if a mob surrounds them and asks, 'Are you a Hindu or a Muslim?' they will have no answer.
+- A lot of scripts are written with an eye on what will be popular or what will titillate or what this actor can do well. I don't think those kinds of scripts ever work.
+- I have had enough of an interesting life to not embellish it in any way.
+- I am never comfortable working with stars.
+- 'Macbeth,' I am ambivalent about. I don't like that play, in fact.
+- As an actor, you have got to learn your job as thoroughly as you can. If you know your job, then there's nothing that can stop you. Because the bottom line is that only good actors will get work.
+- To me, the most important elements in a theatre are the actors and the texts.
+- The magic of theatre is how much can you stimulate the mind of the audience, not how many illusions you can create.
+- Somehow, Hindi movies never took me in the same way Hollywood films did. Even at the age of five or six, I could see the difference in the quality of execution.
+- The ballooning budgets of Bollywood are getting out of hand, and it's important for people to realise that you don't need Rs 20 crore to make a good, commercially viable film.
+- Humans are the only ones who are the custodians of other people's morals.
+- The only serious function films can serve is to act as a record of their times.
+- One would marvel on the screen the way Shammi Kapoor walked, Dilip Kumar cried, or seeing Dev Anand's style. And then, one day, you are in the same space with them. It's very unreal.
+- Nowhere else, perhaps, is the Quran recited so much and understood so little as in India.
+- The film industry does not interest me greatly. The people, I don't mingle with them much. I meet them when I have to.
+- A family business in cinema is not necessarily creative. It is generally about prolonging your family fortune.
+- When I was 14 and went on the stage for the first time, it stimulated me so much that I was convinced that I didn't want to do anything else.
+- I have gone into every project with the same enthusiasm and the same hope, but some have worked out, and some haven't.
+- My agent wanted me to audition for Dumbledore's character after Richard Harris died. I was asked if I would like to audition for it. But I wouldn't audition for it.
+- When we finally become total slaves of mobile phones, then maybe theatre will die.
+- People should know what the India of 2018 was like. They shouldn't end up seeing only Salman Khan films 200 years later. India is not like that.
+- Nobody can send me to Pakistan. India is my country, and I love my country. Five generations of my family have lived and died on this land, and even my children will live in this country because this is my homeland.
+- Acting is learnt, not taught.
+- Everyone equates good cinema with boring shots and boring films - where a character takes 10 minutes to walk down a corridor, and still nothing happens at the end of the shot. Those films tried to be cool and fashionable by dispensing with drama, which, in my opinion, is absolute nonsense.
+- I realise that I have made quite a few of the same mistakes with my kids that my dad made: not so much in trying to determine their lives for them but in terms of trying to discipline them.
+- I'm not a political person; I'm not an activist. I'm not a guy with strong beliefs about anything. I have nothing to say to the world.
+- When I first dreamt of becoming a movie star, I wanted to be a Gary Cooper: I wanted to be rich and famous, living in palaces and wearing dark glasses and white suits.
+- There's so much hocus-pocus about acting styles; there's too much mysticism attached to it. But it's a craft like any other - it's something you have to work hard at.
+- From playwrights I had never heard of and performance forms I had never seen to sculpture and painting, I gained immense experience as an actor in National School of Drama (NSD). I discovered what discipline and good taste in the theatre means.
+- Acting is fun, but directing is very stressful.
+- When I see an emotion being enacted by a great actor, I always feel I can never do that.
+- I don't take reviews seriously. I don't even read them. Who is this person blasting forth his opinion? What's his worth, and how different is he from any man on the street?
+- I was never turned down because I was a Muslim. I was turned down because I was not right for the part.
+- It's a blessing to stay a child all your life - pretend to be this and that. And get paid for it.
+- I do what work I get. I'm disappointed half the time.
+- Unfortunately, in our country, crying is mistaken for good acting.
+- It's completely beyond comprehension that you just can't say anything without offending somebody or the other.
+- You can't make a film for your personal satisfaction. That is why I detest the cinema of people like Mani Kaul.
+- My relationship with my father still troubles me because it never got resolved, and there was no closure. There was a lot of bitterness, but having written about it, I found that I was able to overcome that bitterness and look at the relationship anew.
+- I have the highest regard for the police forces.
+- There are a lot of people in my family who should have become actors.
+- Given a choice, I prefer directing a play to a film.
+- Learning a craft is up to you, whether you are doing theatre or movies.
+- Hindi cinema has only one religion, and that's money.
+- It would be impossible to find an actor to portray Om Puri, so I wouldn't even attempt it.
+- When I saw Spencer Tracy in 'The Old Man and the Sea,' I realised the distinction between being an actor and a film star. He was both, and I, too, resolved to try and be both.
+- What drew me into being an actor was that I never got cast in the school plays - and it used to kill me.
+- Sometimes, more money is spent on promotion of a film than the making of it. I don't understand that logic. The movie should run on its merit.
+- There was a time when I only wanted to show off, but as I've grown older, I've realised that acting isn't an end in itself. You act to communicate something, and if you have to use an accent or become thin or fat, that's part of your job.
+- People think I am joking when I say my favourite actors are Shammi Kapoor and Dara Singh.
+- It was the '70s when mediocrity came in Hindi films. That's when the actor called Rajesh Khanna joined the industry. For all his success, I think Mr. Khanna was a very limited actor. In fact, he was a poor actor.
+- 'Bombay Boys' is among my favourite movies and my favourite performance of myself.
+- Film industry people don't read books.
+- I am hard put to think of a single positive thing that commercial Hindi cinema has achieved.
+- Don't opt for acting as an escape from education.
+- I feel that cinema can't change society or bring a revolution. I'm also not sure of cinema as a medium of education. Documentaries can be educative, not feature films.
+- During the shooting of 'Manthan,' I lived in the hut, learnt to make cow dung cakes and milk a buffalo. I would carry the buckets and serve the milk to the unit to get the physicality of the character.
+- I never go to film festivals. I am allergic to them.
+- My dad occupied a government position, deputy collector, in a city called Nainital, so we had access to the cinemas at any time. I saw my first movies when I was very young.
+- I can say with pride that I have a brother who served with distinction in the Indian Army.
+- I don't think anybody becomes an actor to serve theatre or to serve art anywhere. We all become actors because we are insecure people who want to be looked at. That was the reason I became an actor.
+- When my bank balance runs low, then I sign a big Bollywood monstrous movie, and I make sure that I am safe for the next few years.
+- It is always a pleasure to be directed by an actor because they know the scene from the actor's perspective, too. That's an advantage.
+- There is no such thing as serious cinema in India.
+- I don't see a future for Broadway-style theatre in India. We already have Hindi cinema, but small, intimate theatre will survive as long as people feel the need to talk to each other.
+- I'm not trying to prove myself a great filmmaker. I don't know much about filmmaking anyway. I'm trying my hand at it to see if I'm any good.
+- I've always found people with physical disabilities interesting to watch: how the dynamics of their body work, what makes them move this way or that.
+- My dream is to produce a generation of actors who realise what the function of an actor in a movie is supposed to be.
+- Actors have to learn that they are as important to a movie as the camera is, as important as the sound is, and less important than the script is.
+- I had many doubts while writing my autobiography. I wasn't sure if anyone would be interested to read about my life.
+- I am from a place called Sardhana, which is near Meerut.
+- An actor can never voice his opinion through films. All an actor does is convey what the director and writer want to say. You are a mouthpiece of their ideas. Your ideas reflect only in your choice of movies.
+- Shakespeare is a seminal story-teller. I don't think he imagined he was writing classics or that he was writing great poetry. I don't think he dreamt his work would be staged 400 years after he died.
+- I don't scoff at the desire to make good movies. I scoff at the quality at poseurs masquerading as masters of the medium.
+- I think our cinema has stayed in its adolescent stage largely because of our obsession with and our dependence upon stars to make our movies. The stars, being only too human, realise that this is the case, and so they milk it for whatever it's worth, and who can blame them?
+- Acting is no longer a taboo. The stigma has gone because people have realised that it's a perfectly valid career choice.
+- The stuff that is done on Broadway is hardly theatre. It is part magic show, part rock concert, and part conjuring things.
+- If I criticize my country, it is indeed very painful for me. It doesn't make me happy. But, if I see something wrong, it becomes my duty to speak up.
+- I don't look at my work as an avenue for generating more work. For me, my work itself is sufficient.
+- When my brother came home from NDA (National Defence Academy), I felt, 'Wow, I should like to wear that uniform.' But I didn't want to join the army.
+- Finally, I have realised that it is important to look good.
+- No actor can give his best performance without the help of the director.
+- It is very tough to make a short film. It's like writing a short story, which is tougher than writing a novel. You can't afford to faff around; you can't indulge. You have to get to the point.
+- I had decided never to dye my hair because by doing that, it doesn't make a man look young. In fact, I feel the wrinkles on a man's face become more prominent when you dye your hair.
+- An actor's job is to find variations of the same emotion in his being so that every time he expresses grief or joy, it doesn't look the same.
+- I was lucky to land up in Mumbai when serious cinema was just beginning to flower.
+- There are some movies that you feel like doing because of the script. Some because it sounds like fun, some because that's the director you want to work with, some because it's a project that you want to be involved with, and some because you will be paid lots of money. But the bottom line is I must feel like doing it.
+- Undeniable though it is that many Indian Muslims misguidedly consider Pakistan their haven, the immeasurably greater number who take intense pride in being Indian and who connect deeply with the country are hurt and angered at our patriotism being under scrutiny.
+- Being good or evil has nothing to do with religion.
+- I don't think cinema has the power to change anybody's life.
+- Granted, patriotism is not a tonic that can be forced down people's throats.
+- Playing the good guy is boring. I love twisted, flawed characters.
+- In theatre, there is a unique feeling of everyone working as a team, which you never get in films.

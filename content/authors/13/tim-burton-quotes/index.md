@@ -1,0 +1,63 @@
++++
+author = "Tim Burton"
+title = "Tim Burton Quotes"
+quotes_len = "57"
+description = "the best 57 Tim Burton Quotes"
++++
+- It was a weird reaction to 'Batman Returns,' because half the people thought it was lighter than the first one, and half the people thought it was darker. I think the studio just thought it was too weird - they wanted to go with something more child- or family-friendly. In other words, they didn't want me to do another one.
+- I find that the most special thing to me is if you've connected to people in some way: If someone comes up to you on the street and says something to you, and you know it's meant something to them, and it's connected to some project. That, I find, is amazing.
+- When I was growing up, Dr. Seuss was really my favorite. There was something about the lyrical nature and the simplicity of his work that really hit me.
+- I started to do stop-motion when I was a kid. You take a Super 8 and make some models, and move, click, move, click. All that. I love all forms of animation, but there is something unique and special to stop-motion: it's more real and the set is lit like a set. But I think it's also a kind of lonely and dark thing to want to do.
+- One person's crazyness is another person's reality.
+- People say I am stuck in childhood, but it's not that. I remember seeing a Matisse retrospective, and you could see he started out one way, and then he tried something different, and then he seemed to spend his whole life trying to get back to the first thing.
+- If I had a choice about going to a meeting at a studio or changing a nappy, I'd choose the nappy.
+- It's people who you've seen that have given you a lot. In some ways, I felt they helped me psychologically because you see these people up on the screen going through torment and being on the outside, and somehow you relate to them, and it helps you get through life. It's a real honour and pleasure to then meet these people.
+- I remember early in my career with Disney, which was a very strange time in the company - there were a couple of executives who were very supportive of me and kind of let me do my own thing.
+- I used to have a phone machine that you turn 'on' and 'off,' which was great. Now, it's so technological that it's like going down the rabbit hole.
+- When people are deprived of a sense, their other senses get heightened. If you're culturally devoid of something - of weather, of artistry, of interesting architecture, all the way down the line to culture itself - you're either forced to give in and get that car dealership, or you manufacture those things for yourself.
+- Things like 'mad as a hatter' or 'grinning like a Cheshire cat', are so powerful that music and songs incorporate the imagery. Writers, artists, illustrators, a lot of them have incorporated that.
+- I guess I feel so tortured most of the time, when I see someone else feeling tortured, I get a little perverse glee out of it.
+- Jack Nicholson is a textbook actor who's very intuitive. He is absolutely brilliant at going as far as you can go, always pushing to the edge, but still making it seem real.
+- I think of Ray Harryhausen's work - I knew his name before I knew any actor or director's names. His films had an impact on me very early on, probably even more than Disney. I think that's what made me interested in animation: His work.
+- Working on 'Nightmare Before Christmas,' I had endless arguments, like the studio saying, 'You can't have a main character that's got no eyeballs!' 'How is anybody going to feel for somebody with just eyesockets?' You know? So, it's those kind of things that really wear you down.
+- I've often been accused of, 'Oh the movies looked good but there's no story,' but I disagree with that in theory, and '9' is a perfect example for me because the feel, the texture, and the look of that world, and those characters, is the story. That's a major component of why you feel the way you do when you're watching it.
+- There's something quite exciting when you have a history with somebody and you see them do new and different things.
+- I have a problem when people say something's real or not real, or normal or abnormal. The meaning of those words for me is very personal and subjective. I've always been confused and never had a clearcut understanding of the meaning of those kinds of words.
+- When I went to Warner Bros., there was a woman named Bonnie Lee who was an executive who helped me to get to 'Pee-wee's Big Adventure.'
+- Visions are worth fighting for. Why spend your life making someone else's dreams?
+- I never saw Frankenstein or King Kong or the Creature from the Black Lagoon as bad guys. They were the good guys.
+- If I'd said, 'I'm going to be a director,' it probably wouldn't have happened.
+- Anybody who knows me knows I would never read a comic book.
+- I think a lot of kids feel alone and slightly isolated and in their own world.
+- I did some sports. It was a bit frustrating. I wasn't the greatest sports person.
+- I never really got nightmares from movies. In fact, I recall my father saying when I was three years old that I would be scared, but I never was.
+- A lot of things you see as a child remain with you... you spend a lot of your life trying to recapture the experience.
+- It's good as an artist to always remember to see things in a new, weird way.
+- I always liked strange characters.
+- When you're making a movie, it's a very interiorised world.
+- I am not a dark person and I don't consider myself dark.
+- You don't know whether chimps are going to kill you or kiss you. They're very open on some levels and much more evil in a certain way.
+- I wouldn't know a good script if it bit me in the face.
+- My parents suffered from that ideal of a perfect nuclear family. They found that a difficult pressure, I think.
+- Movies are like an expensive form of therapy for me.
+- I don't look at my films or my old drawings much, so that was an interesting way to kind of reconnect with myself a bit.
+- In Hollywood, they think drawn animation doesn't work anymore, computers are the way. They forget that the reason computers are the way is that Pixar makes good movies. So everybody tries to copy Pixar. They're relying too much on the technology and not enough on the artists.
+- I keep thinking I'm going to miss it back in Los Angeles. But I don't. The only thing I miss is driving out in the desert in the Southwest.
+- I've always been misrepresented. You know, I could dress in a clown costume and laugh with the happy people but they'd still say I'm a dark personality.
+- Danny Elfman, the composer, tells me the only time he thinks I'm happy is when I'm on the scoring stage, and I see the pressure's on him and it's a little off me.
+- I can't remember any dreams in my life. There's so much strange in real life that it often seems like a dream.
+- When it comes to art and science, people don't like a lot of either. Instead of being open to it, they're closed off about it.
+- I don't know what it was, maybe the movie theaters in my immediate surrounding neighbourhood in Burbank, but I never saw what would be considered A movies.
+- Anybody who knows me knows I would never read a comic book. And I certainly would never read anything written by Kevin Smith.
+- To be honest, whatever troubles I've had, I've also gotten the opportunities to do things.
+- It's hard to find logic in things sometimes. That's why I can't analyze things too much, because it often doesn't make much sense.
+- I am not a big technology person. I don't go on the Internet really much at all. Drawing is like a zen thing; it's private, which in this day and age is harder to come by.
+- Things that I grew up with stay with me. You start a certain way, and then you spend your whole life trying to find a certain simplicity that you had. It's less about staying in childhood than keeping a certain spirit of seeing things in a different way.
+- I get so tired of people saying, 'Oh, you only make fantasy films and this and that', and I'm like, 'Well no, fantasy is reality', that's what Lewis Carroll showed in his work.
+- Anybody with artistic ambitions is always trying to reconnect with the way they saw things as a child.
+- There's something about seeing this little inanimate object coming to life that's just very exciting. That's why with 'Nightmare' I held out for so long to do it.
+- People told me I couldn't kill Nicholson, so I cast him in two roles and killed him off twice.
+- I've found that the people who play villains are the nicest people in the world, and people who play heroes are jerks. It's like people who play villains work out all their problems on screen, and then they're just really wonderful people.
+- Whether you like it or not, a child really connects you to that time when everything's new. It's so important - not just for artistic endeavors, but for humanity.
+- It's like getting into film - I didn't say early on, 'I'm going to become a filmmaker,' 'I'm going to show my work at MoMA.' When you start to think those things, you're in trouble.
+- I've always been more comfortable making my decisions from the subconscious level, or more emotionally, because I find it is more truthful to me; Intellectually, I don't think like that because I get uncomfortable.

@@ -1,0 +1,42 @@
++++
+author = "Tim Cahill"
+title = "Tim Cahill Quotes"
+quotes_len = "36"
+description = "the best 36 Tim Cahill Quotes"
++++
+- There's a story everywhere. Being bored to death someplace is basically a funny proposition. What you have to watch out for is you don't write a boring story about a boring place.
+- You become a better writer by writing. You become a better travel writer by writing about travel.
+- The blues style - moody or rollicking or boastful or bashful - developed in the Delta around 1900 and was, for a time, exclusively African-American. That isn't the case anymore.
+- Stanley Kubrick, I had been told, hates interviews. It's hard to know what to expect of the man if you've only seen his films. One senses in those films painstaking craftsmanship, a furious intellect at work, a single-minded devotion.
+- It's often hilarious to me that I'm writing about Tonga or some tropical place and there's a blizzard outside and the cows are on their backs with their hooves in the air.
+- Publishing your work is important. Even if you are giving a piece to some smaller publication for free, you will learn something about your writing. The editor will say something, friends will mention it. You will learn.
+- You have to first be a writer and somebody who loves to write. If I couldn't travel, I would still write.
+- My first book was called 'Buried Dreams,' about a serial-killer, which was probably about ten years ahead of the serial-killer curve. It was a national bestseller, but it was three years of living in the sewer of this guy's mind.
+- For many years I thought my job was to go to places where it would be difficult for most of the readers to ever get to. Now, in the more than 20 years I've been doing this, the concept of adventure-travel trips or expeditions by groups has sprung up. The places I went 20 years ago now have adventure-travel trips.
+- Adventure travel existed before I started, I just didn't know it.
+- Charlie Patton, who was born in 1891, recorded some of the very first blues. In 'Pony Blues' and 'Peavine Blues,' he manages to pile dense layers of rhythms one upon the other.
+- Stanley Kubrick went with his gut feeling: he directed 'Dr. Strangelove' as a black comedy. The film is routinely described as a masterpiece.
+- A lot of the physical flirtation with fear I did early on in my career, when I was a much younger person - stuff I wouldn't do now. But I was very interested in the mechanics of risk and fear in those days. And I found out fear pretty much always feels the same, whether it's doing a rock climb or speaking in front of an audience.
+- As one of the first editors at 'Outside' magazine in 1975, it was my contention that most American writing going back to James Fennimore Cooper and then through Twain up to Hemingway had been outdoor writing. At that time, adventure writing meant stuff like 'Saga' or 'Argosy.' 'Death Race with the Jungle Leper Army!' That kind of thing.
+- Hot, dry katabatic winds, like the south foehn in Europe, the sharav in the Middle East, and the Santa Ana of Southern California, are all believed to have a decided effect on human behavior and are associated with such health problems as migraines, depression, lethargy, and moodiness. Some scientists say that this is a myth.
+- The way one approaches a wilderness story is to fashion a quest - find something that you are truly interested in finding or discovering.
+- My first real writing job was at 'Rolling Stone,' so I wrote about rock-and-roll and politics and the like. At the time, I really didn't know what I wanted to write, and I did a bunch of investigative journalism.
+- Mystery is a resource, like coal or gold, and its preservation is a fine thing.
+- For me, to find a place that doesn't have an organized tour going to it is becoming more and more difficult. A lot of times it involves danger of a political nature - places where the adventure-travel trips can't go because they can't get any liability insurance.
+- It was Muddy Waters who took the Delta blues north to Chicago, electrified the sound, and changed the course of popular music as we know it. That's pretty much the judgment of history, and it is mine as well.
+- In 1952, Muddy cut the song 'Rollin' Stone.' It was a nationwide success, and the song echoes down through rock n' roll history. Bob Dylan cut a tribute by the same name, an English band decided to call themselves the Rolling Stones, and the magazine that first embraced music as a serious cultural phenomenon was itself called 'Rolling Stone.'
+- The hard wind we get around here on the eastern slopes of the Rockies is called a Chinook. It's a katabatic wind and comes from mountains to the west of us and the mountains to the south.
+- I write early in the morning. I just wake up whenever I feel awake and I have to be sitting and writing pretty soon after that. If I take too long to think about the impossibility of what I'm trying to, I'll be defeated by it.
+- When I read about how 200 people died on a polar expedition, I wonder why they didn't get to know the Inuit people who were around and presumably know something about surviving in the Arctic after living there for thousands of years. Talking to people is a survival mechanism.
+- New Orleans jazz is a complex and embracing art form that began about the same time as the blues and encompassed many of its excellences.
+- In the sago palms, you'll often find sago beetles which are about the size of your little finger. The Karowai put those on the fire until they're crispy and eat them. They taste a little bit like creamy snails. But compared to sago, the sago beetle is really pretty good.
+- 'Rolling Stone' had started something called 'Outside,' and since I was one of two people in the office that liked going outside, I was pegged to work on it. The concept of the magazine was simple: literate writing about the out-of-doors. I jumped at the opportunity.
+- The dirty little secret about adventure writing is that something has to go wrong.
+- Right whales, for all their size, are surprisingly athletic. They roll, they slap their flukes, they lift their heads out of the water in a move known as a spy hop. They find playthings and are particularly fond of swimming repeatedly through clumps of seaweed, which slides over them like a feathered boa.
+- I am living out my adolescent dream of travel and adventure.
+- My idea of a vacation is staying home and doing short day hikes, floating the river and things like that.
+- I wanted to be a writer from my early teenage years, but I never told anyone. Writers, in my opinion, were god-like creatures, and to say I was striving to be a writer would be incredibly arrogant.
+- In my house, it is always a scramble from paycheck to paycheck.
+- In my life outdoors, I've observed that animals of almost any variety will stand in a windy place rather than in a protected, windless area infested with biting insects. They would rather be annoyed by the wind than bitten.
+- I have no problem with the adventure travel movement. It makes better, more sensitive people. If you get people diving on a coral reef, they're going to become more respectful of the outdoors and more concerned with the threats that places like that face and they're going to care more about protecting them than they would have before.
+- You have very short travel blogs, and I think there's a split among travel writers: the service-oriented writers will say, 'Well, the reader wants to read about his trip, not yours.' Whereas I say, the reader just wants to read a good story and to maybe learn something.

@@ -1,0 +1,71 @@
++++
+author = "Jochen Zeitz"
+title = "Jochen Zeitz Quotes"
+quotes_len = "65"
+description = "the best 65 Jochen Zeitz Quotes"
++++
+- We have to find alternative ways of producing our raw materials without asking nature to do it for us.
+- The B Team can catalyse initiatives.
+- The puma... the cat... is not just about power and speed and strength... but it is also a very elegant animal. That's what we've tried to reflect in our products.
+- Some of the greatest stars in the history of football have been under contract with Puma.
+- I'm trying to go beyond the traditional cliches of an African safari.
+- When you are small, and you have to try and prove yourself, it is tough. When others are catching up and copy you, that's tough. We constantly need to change ourselves to stay ahead of the game.
+- Sustainability is no longer about doing less harm. It's about doing more good.
+- It's shocking to think about how little the travel industry cares about sustainability - and it's the basis of their business!
+- When it came to the discussion about would Harley do an electric bike, I said, 'Absolutely - this is a no-brainer.' Let's define the sound of the future.
+- Unless the local community signs up, wildlife won't survive. And without wildlife, no one will visit.
+- Let's recreate the equivalent of the Met Ball in Europe and, rather than for the museum, give the money to environmental causes.
+- We're trying to find a tourism model that allows communities to thrive while business prospers.
+- If you look at the state of our planet, the next generations won't be around if we consider sustainability as a gimmick.
+- Looking at Mount Kenya in the morning is a holistic experience. I go back at least once a year.
+- Business needs to push the agenda rather than waiting for it to happen.
+- Walking out into the bush still feels the same as when I first came to Kenya in 1989, on the day the Berlin Wall came down.
+- Fashion is a logical place to start to raise awareness for sustainable causes.
+- I'm a virtual worker. I'm not tied to an office.
+- It may sound crazy, but maybe there's an economic way of producing a leather-like product in the laboratory.
+- In Africa, you can make three acres sustainable relatively easily, but 50,000 acres? It's not about picking up towels or sleeping in a tent.
+- Puma was all about function and not at all about design. The founder of the company always believed functionality and performance were the only ingredients that could make Puma successful and design never mattered.
+- I'm building Segera to promote a different way of doing tourism.
+- Puma is a brand deeply rooted in sporting lifestyle.
+- In the long term, Greece is an important market for us.
+- I never felt that although we were based in Germany, Puma was and should be considered as a German brand. So we restructured it in a way that positioned us as a global brand, with English being the corporate language, rather than us looking at it from a German perspective.
+- I call upon governments to start supporting companies to use more sustainable materials in their products instead of continuing with antiquated incentives, such as import duties on synthetic materials that are in principle much higher compared with those placed on leather goods regardless of the environmental footprint.
+- We believe that African football is among the best in the world and very much characterized the Puma brand mentality, which is to win.
+- I picked up the phone and called Herbert Hainer, the CEO of Adidas, and said, 'Well, it's Peace Day coming up. I think it's about time after 60 years to end this feud. How about doing something together?'
+- We should bring in an environmental attitude, and I think luxury should automatically be about sustainability and quality.
+- Obviously, South Africa is our most important market, but we are also gradually increasing our presence throughout East and West as well as North Africa. It is a continent with a lot of potential which we plan to tap into.
+- We need to engage rather than educate people.
+- Look at timber prices in the late '90s, at around $50. If you count the true damage of cutting down forests, the resultant flooding, insurance claims, and so on, then the timber price should have been $100.
+- Resources are being destroyed, and if you don't have resources, you can't do business.
+- If we bring together the right people, communities can flourish and wildlife can survive alongside them.
+- As much as I like to explore the world, I explore music - from classical to rock.
+- When I started at Puma, you had a restaurant that was a Puma restaurant, an Adidas restaurant, a bakery. The town was literally divided. If you were working for the wrong company, you wouldn't be served any food; you couldn't buy anything. So it was kind of an odd experience.
+- Every time a new CEO came, I got a promotion till I was made CEO myself.
+- Governments have a unique opportunity to incentivise corporations so that they can accelerate their evolution to a more sustainable economy through more sustainable practices and products.
+- I could have bought a pristine part of Tanzania. But I saw a beautiful mountain, game that could come back, and country that could be rich again.
+- When I became CEO, I just didn't think about my age too much. I'm sure many people did think that my age mattered, but I didn't. That was probably because of my age.
+- I always wanted to be a medical doctor, and I never thought of business.
+- When I became CEO, Puma was bankrupt on paper.
+- When I joined in 1990, as they say in the sport of sailing, Puma was in the doldrums. It was a difficult time, and Puma had gone to sleep.
+- I'm a curious person, and I always like to test new waters, and I've always jumped into the cold water and then started to think about how to swim.
+- I wanted Puma to regain strength with the existing logo rather than try to get rid of the past.
+- Be curious enough to keep an open mind to what's happening around you in society. You can look at yourself and the world at the same time.
+- I can well imagine making acquisitions so long as these are complementary to Puma and move it forward.
+- The company was ready to close its doors; there was real financial distress. But on the other side, there was high brand awareness, but that was negative because Puma was perceived as low-priced. It had lost its cachet. It was a well-known brand without a presence.
+- Everything is interconnected. The moment you take philosophy, psychology, religion and business and look at the underlying commonalities, that's when you start looking at business in a different way.
+- The problem is you can't wear your old shoes too often because people say, 'You're still wearing that shoe?'
+- Being able to dedicate 100 per cent of my time to impacting more businesses without being operational, it just gives me a bigger platform.
+- I think South Africa has shown it can host such a big event as the World Cup, so why not hold the Olympics at some point in Africa? Maybe not just in one country but in a host of countries.
+- I haven't been hunting for years. It is just a tradition I grew up with.
+- We should eat less meat - all of us - and we should use less leather. I mean, that's reality.
+- We decided that sports, lifestyle and fashion were three elements that could be mixed together to a very unique formula. That's what we did: make Puma a very sports-fashion brand when, at the times, everybody talked about sports and sports performance and functionality. We said, 'Well, it's about more.'
+- I just don't like to talk about the past.
+- I was actually accepted into medical school in Italy. But then I wanted to come back and learn medicine in Germany. And while waiting, I decided to join a business school. I figured it would be useful for doctors to know some business as well!
+- The old way of doing 'good business' was based on the principle, 'the ends justifies the means.' In the future, good business will invoke 'the means justifying the ends.' The E P&L can already serve as an important tool to help this shift in commerce from generating profits with collateral damages to profits with collateral benefits.
+- We all know that cattle and beef are among the biggest contributors to carbon emissions.
+- If we look at pricing holistically, we'll create a more solid business.
+- I believe in 'business has a force for good.' You know, business has an impact on society. Of course, it creates jobs. It creates prosperity, but on the other hand, we also leave a negative footprint behind.
+- We always try to reinterpret sport in an innovative, fashionable way, and when we do fashion, we're always trying to bring our sports heritage into the fashion world.
+- I believe in metaphysics. I don't believe in God because I think that is a human simplification of the things we can't explain. But I believe in a greater universe.
+- We allow people to be creative. We set a direction, we set the vision, we set the strategy, but within that framework, we allow our people to be as creative as they want to be.
+- For a long time, companies ignored the fact that 80 percent of sporting goods are sold to the casual consumer.

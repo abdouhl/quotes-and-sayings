@@ -1,0 +1,30 @@
++++
+author = "Johnny Marr"
+title = "Johnny Marr Quotes"
+quotes_len = "24"
+description = "the best 24 Johnny Marr Quotes"
++++
+- The biggest musical influence on me was my mum. We were both enraptured by music.
+- If you're in a successful band, you tend to fall into a role. But I'm not remotely laddish. I'm a grown-up. I'm vegan and teetotal. I run 50 miles a week, listening to Franz Ferdinand and the Four Tops at top volume.
+- As a youngster, I used to try to pick up any bits of wisdom about the guitar I could. It's not like now where you have books and books about every aspect of anything. Any little pearl of wisdom was welcome back then.
+- I live a super-healthy lifestyle not because it's sensible or that I'm contrite, but because I need to keep my focus on the music I'm making. To do that, I need to be wide awake.
+- Nick Zinner has been one of my favorite guitar players for a long time.
+- My experience tells me, unfortunately, that so many people ask the question about 'The Smiths' reforming without really caring about the answer. They just really want to ask the question.
+- Joining Modest Mouse was just consistent with what I used to do as a teenager: I followed where I thought I would make some interesting music.
+- I don't like to waste notes, not even one. I like to put the right note in the right place, and my influences have always been those kinds of players. Keith Richards comes to mind, and I really like Nils Lofgren's soloing, because he's so melodic. I love John Lennon's rhythm playing, and George Harrison was an incredible guitarist.
+- Andy Rourke and I had been playing together from 14 or 15, and we had a very great musical chemistry. Andy's just a very respected and unusual musician.
+- I would join a band, learn from that band and be committed and passionate and bring my thing to the band. Then, when I felt like we were going to repeat ourselves, and I needed to learn more, I would go somewhere else.
+- A day-time song like 'Word Starts Attack,' I want to make your heart blow up and make you want to punch the air with your fist. It can't be ponderous.
+- Festivals are great because you get to just walk around the corner and see a new band that you've heard but not had the chance to check out.
+- I think good artists know when they're on a roll, and they recognize when lightning is striking. It's a very fortunate thing to have that inspiration and not to overanalyze it or mess with it; you just follow it if you love what you do.
+- You can grow up without having to conform, stop going to shows, stop having a record collection, start being politically iffy.
+- No one has any respect for someone who can play a million notes per minute but can't put together a decent tune that someone can sing to or feel some sort of emotion from.
+- I explored rock culture and what the guitar can do though people like Jimmy Page and John McLaughlin, and the music moves away from pop.
+- I played guitar from the age of four or five. Every year there would be a slightly larger triangular box under the Christmas tree, until finally I got one that was big enough to make a proper sound.
+- I can show bands how to produce themselves. In the same way, many bands think you can't make it without some fat cat in London or New York to manage you. That's just crap. All you need is someone a bit older than you with a bit of business nous whom you trust.
+- If people can finally recognize you on radio without being told who it is, that's what you aim for.
+- I really had a great time working with 'Modest Mouse,' just because of the people. I loved writing songs with Isaac Brock, and Jeremiah Green is probably my favorite musician that I've worked with.
+- Guitars have been the obsession of my life. I first picked one up at the age of four and I've been a guitar junkie ever since.
+- I had to work and it never occurred to me not to. But then it's never really been about the money.
+- I seem to attract and be attracted to very willful, fascinating people.
+- I've almost never played the 'Smiths' records, once they've gone out. I was always like that and probably always will be.

@@ -1,0 +1,42 @@
++++
+author = "John F. Kelly"
+title = "John F. Kelly Quotes"
+quotes_len = "36"
+description = "the best 36 John F. Kelly Quotes"
++++
+- My sincere advice to any citizen considering moving to the United States and crossing our boundaries in irregular migration, my best advice is to not do it.
+- If you want to get into the United States, the best way, I believe, is to ride the network. There is no convergence between, say, the criminal networks and the Islamic extremist networks.
+- The one thing I was always told is you absolutely have to tell truth to power. Whether you're a second lieutenant working with a captain and a lieutenant colonel, or a four-star general working with the Office Secretary of Defense and the White House, the decision makers have got to have ground truth.
+- My fear was of being offered a job that would be kind of a full-time position at a veterans organization or even in the government... I'd prefer to not be that, to come up the Beltway every day.
+- I grew up in Boston in a very, very, very Marine town. So back in my neighborhood in Boston, a working-class neighborhood, when you got your draft notice, you went down, and you took your draft physical. And then, if you passed it, you joined the Marine Corps.
+- Marines dying or being seriously wounded is commonplace in combat.
+- The people that work the border will tell you that physical barriers, backed up by men and women, is what we need to secure the southwest border.
+- My first time overseas was taking 10,000 tons of beer to Vietnam.
+- To lose a child is - I can't imagine anything worse than that.
+- If you were to build a wall from the Pacific to the Gulf of Mexico, you would still have to back that wall up with patrolling by human beings, sensors, observation devices.
+- I work for one man. His name is Donald Trump. He has told me one thing: 'Secure the border.'
+- There will be no use of military forces in immigration. There will be no - repeat, no - mass deportations.
+- Unless confronted by an immediate, visible, or uncomfortable crisis, our nation's tendency is to take the security of the Western Hemisphere for granted.
+- I've learned that, in many cases, people say, 'I want ground truth,' and they don't really mean it. There are warts all over this organization, as there are in many organizations, but you just have to tell truth to power and let the chips fall where they may.
+- We are at war and, like it or not, that is a fact. It is not Bush's war, and it is not Obama's war. It is our war, and we can't run away from it.
+- I'm pretty committed to the Constitution.
+- If there's a country, and it's dangerous, and we deploy a U.S.military man or woman, if there's only one there, and they never leave the capital, that is 'boots on the ground.'
+- We Marines believe that God gave America the greatest gift He could bestow to man while he lived on this earth -freedom. We also believe He gave us another gift nearly as precious - our soldiers, sailors, airmen, Coast Guardsmen, and Marines - to safeguard that gift and guarantee no force on this earth can ever steal it away.
+- One day, you'll get out of the Marine Corps; you'll put your uniform up, but you'll never not be a Marine.
+- Whether you're a second lieutenant working with a captain and a lieutenant colonel, or a four-star general working with the Office Secretary of Defense and the White House, the decision makers have got to have ground truth. Otherwise, the decisions they make could be flawed - and that can be dangerous.
+- Since 1945, no one in the U.S. military has liked the end result of the military conflicts we've been in: Vietnam, Korea, certainly Iraq, and probably Afghanistan. But in a democracy, you salute.
+- We have a saying in the Marine Corps and that is 'no better friend, no worse enemy, than a U.S. Marine.' We always hope for the first, friendship, but are certainly more than ready for the second.
+- If the Marines today are doing exactly the same thing their dads did in Vietnam and their granddads did in Korea and World War II, then how in the hell can we say that they're not as good?
+- If there's a country, and it's dangerous, and we deploy a U.S. military man or woman, if there's only one there, and they never leave the capital, that is 'boots on the ground.' We do a disservice to the sacrifice of these people, particularly if they are killed, when we say there's no boots on the ground.
+- To join in the political fray, I don't think it convinces anyone. It just becomes a talking point on CNN.
+- I do not believe that the Sunni tribes have gone over to the Islamic State.
+- The comforting news for every American is that our men and women in uniform, and every Marine, is as good today as any in our history.
+- We cannot gamble with American lives. I will not gamble with American lives.
+- The young people I work with every day and serve the nation in the armed forces in general, and the Marine Corps in particular, have broken the mold and stepped out as men and women of character who are making their own way in life while protecting ours.
+- I think we could very easily suffer a seriously catastrophic cyber event.
+- I guess, over time, I had convinced myself that I could imagine what it would be like to lose a son or daughter. You try to imagine it so that you can write the right kind of letters or form the right words to try to comfort. But you can't even come close. It is unimaginable.
+- I don't agree with registering people based on ethnicity or religion.
+- Given the opportunity to do another 9/11, our vicious enemy would do it today, tomorrow, and every day thereafter. I don't know why they hate us, and I frankly don't care, but they do hate us and are driven irrationally to our destruction.
+- Years ago, people didn't wear seatbelts. Now, most people wouldn't get in a car without putting a seatbelt on.
+- I'm not for the mass collection of data. I go the other way.
+- Those with less of a sense of service to the nation never understand it when men and women of character step forward to look danger and adversity straight in the eye, refusing to blink, or give ground, even to their own deaths. The protected can't begin to understand the price paid so they and their families can sleep safe and free at night.

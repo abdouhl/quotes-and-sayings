@@ -1,0 +1,21 @@
++++
+author = "Nick Robinson"
+title = "Nick Robinson Quotes"
+quotes_len = "15"
+description = "the best 15 Nick Robinson Quotes"
++++
+- Fifteen is such a weird age to be. Nobody treats you like an adult, but you desperately want to be one. You still have these childlike aspects, but you're just kind of coming into the world.
+- We were in Chagrin Falls, Ohio. It's a nice town, but it's aggressively quaint. They've got a popcorn shop above a waterfall and parades that come through town. It's all-American.
+- I actually grew up watching 'Survivorman' and Bear Grylls. I know that pine needles are a good source of vitamin C and just random facts from watching the stuff.
+- I'm very lucky to be on 'Melissa and Joey' because it's a multi-cam sitcom, and it was a nice transition from theatre because it's taped in front of a live audience.
+- I don't believe that people die and come back as spirits, but I think there might be some unexplained events.
+- I like seeing those 300-pound women that toss those discus. I just feel like they're so scary. It freaks me out a little bit to know that there are women like that.
+- Acting's not particularly complicated. But the great thing is you can step into somebody else's shoes without dealing with the consequences. It's very therapeutic in that way.
+- My cousin was diagnosed with muscular dystrophy, and it's just a really tragic disease, and as of yet there is no cure, so I feel I want to get it as much publicity to do it as I can.
+- I realized I really enjoyed theatre, so I did shows up in Seattle like 'To Kill a Mockingbird' and 'Lost in Yonkers.'
+- I'm a big fan of regular school and regular education. I just learn better in a classroom where I can talk to other students. I want to go to prom and dances and have that social aspect.
+- I usually get down with a little Violent Femmes in the summer. You know, 'Blister In The Sun.'
+- I grew up playing in the woods.
+- I don't really have a lot of hip-hop and all of that, so I have a lot of John Lennon. That's one that I really like, and The Clash, the Rolling Stones, groups that I think are kind of timeless.
+- I'd like to start trying different fields of work. I don't want to be stuck in just comedy, and I'd be interested to try to break into the movie business because it's so much different than television.
+- A worldly actor is a better actor. It sounds pretentious, but I think having these experiences can translate back into your work.

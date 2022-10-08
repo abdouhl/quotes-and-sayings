@@ -1,0 +1,75 @@
++++
+author = "Tim Griffin"
+title = "Tim Griffin Quotes"
+quotes_len = "69"
+description = "the best 69 Tim Griffin Quotes"
++++
+- People love to talk about the old bipartisanship. But it wasn't really bipartisanship. Yeah, they had a different label. But they're replaced now by people with basically the same views.
+- The health care law's individual mandate forces nearly all individuals to buy health insurance or pay a penalty. The mandate cannot be severed from the rest of the law because it is the primary mechanism through which the law's changes are supported. Without the mandate, the law collapses.
+- Pipelines are the safest way to move oil.
+- I think it's inevitable that aviation is a part of the economic growth that surrounds airports.
+- When I looked at it and did my homework on this issue, I concluded that a flat tax is better than a consumption tax.
+- I hear people saying we need this and we need that as a society, but is it really fair for the government - i.e. the taxpayers - to provide people with cell phones? I don't think so.
+- The solution is to change the cake recipe, and that's the way it is with government. We can start adopting policies that work and that encourage economic growth. If you got incentives for encouraging big business development but not small or medium business development, it's not going to work. It needs to work for all three.
+- Most private-sector folks don't get a pension.
+- There is nothing better than just policies that say, 'Come on: grow your jobs here.'
+- I'm not going to run for Senate and I'm not going to run for Governor. I'd like to put those rumors to rest.
+- Many of us believe that we need health care reform. That being said - Americans felt like they weren't being listened to. There were a lot of people across the political spectrum who said we don't want a one-size-fits-all healthcare plan.
+- I'm in the gym every morning and have lockers by Democrats. You know, I don't ask person X or person Y to go out to dinner. Not because they're bad people - I just have very little in common with them.
+- While others may get distracted, I will continue to focus on the problem of unemployment and seek to help create good, high-paying jobs for Arkansans.
+- Historically, Congress hasn't paid much attention to the confines the Constitution establishes.
+- People say, 'Well everybody needs a cellphone.' Well, what does 'need' mean? Do you need an iPad? How about a computer? A printer?
+- For Arkansas, I think the sky is the limit, but I think we are going to have to fight the urge to avoid risks. We need to look first at where we are as a state. I think, as a state, we have made progress over the years, but there are two kinds of progress: absolute progress and relative progress.
+- There are people who own cars and are getting free cell phones. A car helps one find a job, too. Where do you draw the line?
+- The federal government should only be providing services for emergencies. You and I, taxpayers, shouldn't be paying for cell phones so someone can have a social life. I just don't think it's appropriate.
+- It's not fair that people save and work and pay for phones from whatever funds they have, and other people get them for free.
+- So far, Senate Republicans are good at getting Facebook likes and town halls and not much else. Do something.
+- Telling people more about yourself and distinguishing yourself from your opponent - they're both essential parts of communicating with voters.
+- I am very practical.
+- The last thing we need to do when natural gas has been such a blessing is raise the severance tax.
+- Should the federal government be giving people cellphones?
+- I'm going to spend some time with my family. My kids are really in the years where I'm starting to miss more stuff, and we're going to stay very involved in politics.
+- If someone really wanted to end Medicare, they wouldn't propose a reform: they would do nothing.
+- Instead of cutting waste, the Obama Administration is hurting workers. President Obama should stop protecting wasteful government spending.
+- I respect Sen. Elliott and expect that she will be a strong opponent.
+- We've got teams and other countries have teams. Right now, we are going to their countries; we're finding the best athletes; we're bringing them to our team. We're training them, we're making them awesome, and sending them back to beat us. We've got to stop that.
+- It's not fair that people who work, save, and pay for their cell phones are forced to fund the Lifeline program that pads the pockets of people like Carlos Slim, the foreign billionaire who has repeatedly been named the World's Richest Man.
+- We ought to be incentivizing people to save more of their own money for use taking care of their healthcare expenses, and what we have done is we have set it up where health savings accounts are harder and harder to use for narrower and narrower purposes.
+- I don't want to shut down the government.
+- Instead of more talk about salmon and high-speed rails, more criticism of the Supreme Court or more praise for the Soviet's Sputnik mission - President Obama should use his State of the Union Address to tell the American people the truth about the fundamental financial challenges our country faces.
+- The debate on healthcare was not done like most of our conferences are done - meaning it was not all on television. There was this procedural feeling that the bill wasn't done thoroughly and didn't reflect peoples' wishes. It's not coincidence that upwards of 60 percent of folks in my district are against it.
+- During my childhood, my father, a Southern Baptist minister, and my mother, a teacher, made sure I took educational trips to cities such as Washington, D.C., Williamsburg, Va., Philadelphia, and Boston to learn about America's history.
+- While I am talking about private sector job creation, the cap-and-trade energy tax, Speaker Pelosi's health-care bill and card-check legislation, Washington Democrats are defending groups like ACORN. They are on the wrong side of the issues and know their views are wrong for Arkansas, so they attack me.
+- We can't reform mandatory spending in this area until we first deal with ours. I tell my colleagues, 'Let's get the moral high ground and demonstrate that we want to make changes to our pension, and then we can deal with the big problems.'
+- Working at the White House is an honor for any preacher's kid from Magnolia, but the issue is jobs.
+- A lot of what you have seen with third-party groups - like the Tea Party - these folks are conservative, and they are fed up with people in Washington who are not working for them but against them.
+- I love my service; I'm going to finish my four years and be very proud of it.
+- There was no surge in 501c4 applications in 2010.
+- If you do what you've always done, you just get more of what you have always had. We've now got to dream big and act bold.
+- I believe our health care system is in drastic need of innovative, patient-centered reforms that encourage competition and increase consumer choice, not the bloated bureaucracy, tax increases, rationing, and mandates in the president's government takeover.
+- We are the ones that are trying to get Washington spending under control so it can live within its means.
+- The entire purpose of the State of the Union Address is for the president to outline where we stand as a nation.
+- The Europeans waited so long that they are impacting people who depend on their pensions. We are still early enough to fix it for the next generation. A few states have started scaling back their programs, while others have come hat in hand for billion-dollar federal bailouts.
+- We can't be paying pensions to the next generation of federal workers when hardly anyone in the private sector gets them.
+- I think if you look all across the country, the so-called Blue Dogs are all gone to kennel. There are no more Blue Dogs, they're called Republicans. People would rather elect consistently conservative Republicans than Blue Dogs, who are only conservative when it's convenient.
+- You're never as ready as you think you are. You're never as ready as you need to be.
+- My whole deal is reforming, changing, shaking up Washington. It sure needs it.
+- I had someone call me this morning telling me they had somebody who would only work a certain number of hours a week because if they worked too many hours a week, then they couldn't get their government assistance.
+- I don't care what party you belong to or what your background is. If you believe we are headed in the wrong direction, and believe there needs to be a check and balance on the President and Congress, then join my campaign.
+- I had someone call me this morning telling me they had somebody who would only work a certain number of hours a week because if they worked too many hours a week then they couldn't get their government assistance. And that person has multiple cell phones, and gets them new every month with new minutes.
+- President Obama's policies have been categorical failures for our country. Unemployment is over nine percent, our deficits are growing, and small businesses are being burdened with regulations.
+- Whether it was turning around failing companies, rescuing the Olympics, or improving the business climate in Massachusetts, Mitt Romney has proven that he is ready to be president on Day One.
+- Serving the people of Arkansas' 2nd District is the honor of a lifetime, and I'm grateful for the opportunity I have been given by my fellow Arkansans.
+- I wasn't elected to avoid conflict. I was elected to represent the people of the 2nd District.
+- Currently, the Pegasus Pipeline runs through about 13 miles of the Lake Maumelle watershed and also crosses some of the lake's tributaries. I am especially concerned that the steepness of the shoreline at Lake Maumelle could exacerbate contamination of the water supply in the event of an oil spill and make cleanup more difficult.
+- The framers never intended an infinitely broad Commerce Clause that would let Congress dictate individuals' purchases.
+- I believe 2014 will be another historic year for conservatives in Arkansas, and I stand ready to help with that effort and make sure a conservative wins the 2nd Congressional District.
+- We need more STEM grads, and we need to quit equipping our competitors.
+- The cell phone companies add to the problem. Every one they give out, they get money for from the federal government. So they have an incentive to give as many away as possible. And that's exactly what they're doing, and they're making a killing.
+- But here's the bottom line, the president of the United States, he controls the bully pulpit, he can talk about anything he wants to talk about.
+- We have decided that now is the time for me to focus intently on my top priority, my family, as Elizabeth and I raise our two young children. To that end, I will not seek reelection to a third term.
+- I love serving in the U.S. House of Representatives, and I have especially enjoyed my time on the Ways and Means Committee.
+- In order for our country and economy to get on the right track again, we need a leader who understands how the real economy works and has the vision to fundamentally change Washington. That leader is Mitt Romney. No other candidate in the field possesses his lifetime of success in both the private sector and as a governor.
+- I will complete my second term, but I have made no decision as to my plans after Congress except that I will continue in public service, including as a lieutenant colonel in the Army Reserve.
+- I go home every weekend to see my family.
+- I grew up when 'Schoolhouse Rock' taught millions of American kids how a bill becomes a law.

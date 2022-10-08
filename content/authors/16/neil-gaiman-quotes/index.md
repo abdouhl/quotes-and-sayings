@@ -1,0 +1,109 @@
++++
+author = "Neil Gaiman"
+title = "Neil Gaiman Quotes"
+quotes_len = "103"
+description = "the best 103 Neil Gaiman Quotes"
++++
+- American Gods is about 200,000 words long, and I'm sure there are words that are simply in there 'cause I like them. I know I couldn't justify each and every one of them.
+- I was always so relieved that anyone wants to publish anything I've written.
+- As a teenager I wrote to R.A. Lafferty. And he responded, too, with letters that were like R.A. Lafferty short stories, filled with elliptical answers to straight questions and simple answers to complicated ones.
+- When you're starting off as a young writer, you look at all the stuff that's gone before and the stuff that's influenced you, and you reach the ladle of your imagination into this bubbling stew pot of all of this stuff, and you pour it out. And that's where you start from.
+- It has always been the prerogative of children and half-wits to point out that the emperor has no clothes. But the half-wit remains a half-wit, and the emperor remains an emperor.
+- I'm never, I hope, stupid enough to believe that Twitter or blogging or any of this stuff is a substitute for actually doing the work or writing a book.
+- It's not a bad thing for a writer not to feel at home. Writers - we're much more comfortable at parties standing in the corner watching everybody else having a good time than we are mingling.
+- It's a given that we exist in a world where we have to live in continuity every day; no one is immune to that, in life or romance novels. By the same token, it's not something I find terribly important.
+- I don't think there is such a thing as a bad book for children.
+- Because, if one is writing novels today, concentrating on the beauty of the prose is right up there with concentrating on your semi-colons, for wasted effort.
+- It's a wonderful thing, as a writer, to be given parameters and walls and barriers.
+- The joy of doing 'Sandman' was doing a comic and telling people, 'No, it has an end,' at a time when nobody thought you could actually get to the end and stop doing a comic that people were still buying just because you'd finished.
+- Write your story as it needs to be written. Write it honestly, and tell it as best you can. I'm not sure that there are any other rules. Not ones that matter.
+- Have you ever been in love? Horrible isn't it? It makes you so vulnerable. It opens your chest and it opens up your heart and it means that someone can get inside you and mess you up.
+- I like reading. I prefer not reading on my computer, because that makes whatever I am reading feel like work. I do not mind reading on my iPad.
+- Anything that keeps you happy and writing is part of my writing ritual: I like music, so I tend to have it playing in the background. But if I'm interested, I can write in an airport waiting areas.
+- I started writing when I was about 20, 21 maybe.
+- When I was young, I was reading anything and anything I could lay my hands on. I was a veracious-to-the-point-of-insane reader.
+- I don't know if proud is the right word, but I am somebody who does not, on the whole, have the highest regard for my own stuff in that when I look all I get to see are the flaws.
+- The only people I ever get irritated with are the ones who announce, using my Twitter handle, that they are no longer following me and why.
+- I've been blogging since February of 2001. When I started blogging, it was a dinosaur blog. It was me and a handful of tyrannosaurs. We'd be writing blog entries like, 'The tyrannosaurus is getting grumpy.'
+- I was a scholarship minor public school day boy at Ardingly College and later Whitgift School. Then, straight into work as a journalist - a wonderful thing for a writer.
+- I believe that stories are incredibly important, possibly in ways we don't understand, in allowing us to make sense of our lives, in allowing us to escape our lives, in giving us empathy and in creating the world that we live in.
+- My stuff gets published in some countries as fiction and in some countries as fantasy. It's just where they think it will do best in the bookshops.
+- I hope that in this year to come, you make mistakes. Because if you are making mistakes, then you are making new things, trying new things, learning, living, pushing yourself, changing yourself, changing your world. You're doing things you've never done before, and more importantly, you're doing something.
+- What I'd love to do is every now and then go, 'Oh my God, I've got this amazing idea for 'Doctor Who.'
+- I'm one of those writers who tends to be really good at making outlines and sticking to them. I'm very good at doing that, but I don't like it. It sort of takes a lot of the fun out.
+- I wanted to write something that would be a comedy in the sense of making people feel happier when they finish it than they did when began it.
+- Partly because I get such astonishingly nice fans.
+- In many ways, it was much, much harder to get the first book contract. The hardest thing probably overall has been learning not to trust people, publicists and so forth, implicitly.
+- I think the short story is a very underrated art form. We know that novels deserve respect.
+- The one thing that you have that nobody else has is you. Your voice, your mind, your story, your vision. So write and draw and build and play and dance and live as only you can.
+- Life - and I don't suppose I'm the first to make this comparison - is a disease: sexually transmitted, and invariably fatal.
+- The biggest difference between England and America is that England has history, while America has geography.
+- The world always seems brighter when you've just made something that wasn't there before.
+- Short stories are tiny windows into other worlds and other minds and dreams. They are journeys you can make to the far side of the universe and still be back in time for dinner.
+- 'American Gods' was designed to be, if not open-ended, at least a trilogy kind of shape, so there's definitely one more book, probably another couple of books there to get written.
+- I was the kind of kid whose parents would drop him off at the local town library on their way to work, and I'd go and work my way through the children's area.
+- As far as I'm concerned, the entire reason for becoming a writer is not having to get up in the morning.
+- There's a glorious sense of freedom in comedy, just allowing myself to tell jokes, allowing myself to interrupt myself and tell old African folk stories that I made up - or didn't - and Jamaican stories.
+- The imagination is a muscle. If it is not exercised, it atrophies.
+- You get ideas from daydreaming. You get ideas from being bored. You get ideas all the time. The only difference between writers and other people is we notice when we're doing it.
+- The current total of countries in the world with First Amendments is one. You have guaranteed freedom of speech. Other countries don't have that.
+- A library is a place that is a repository of information and gives every citizen equal access to it. That includes health information. And mental health information. It's a community space. It's a place of safety, a haven from the world.
+- I don't think I'm mainstream. I think what I am is lots and lots of different cults. And when you get lots and lots of small groups who like you a lot, they add up to a big group without ever actually becoming mainstream.
+- Every now and then I'll do little things, a short story or something, that doesn't have any fantastical elements, but mostly I like the power of playing God and I like to imagine things.
+- My guiltiest pleasure is Harry Stephen Keeler. He may have been the greatest bad writer America has ever produced. Or perhaps the worst great writer. I do not know. There are few faults you can accuse him of that he is not guilty of. But I love him.
+- A good writer should be able to write comedic work that made you laugh, and scary stuff that made you scared, and fantasy or science fiction that imbued you with a sense of wonder, and mainstream journalism that gave you clear and concise information in a way that you wanted it.
+- Also, I've already won all the awards.
+- And there never was an apple, in Adam's opinion, that wasn't worth the trouble you got into for eating it.
+- I'll agonize over sentences. Mostly because you're trying to create specific effects with sentences, and because there are a number of different voices in the book.
+- Sometimes the best way to learn something is by doing it wrong and looking at what you did.
+- You can take for granted that people know more or less what a street, a shop, a beach, a sky, an oak tree look like. Tell them what makes this one different.
+- I suspect there are two kinds of novelists. Those who have a point of view and have something to say and then write a novel in order to say that thing, and those of us who write the book in order to find out what we think about that thing.
+- I wish being a beekeeper, which I am, gave you a free pass on the carbon footprint, but it doesn't.
+- When I started out, there were a lot of things I knew I couldn't do, and a lot of things I only found out I couldn't do by going and doing it. And no-one was watching, and nobody cared.
+- I loved writing a book in which, in some ways, it's very, very classical, and in some ways I'm breaking lots of rules about what you can do and what you can't do.
+- For me, the glory of my first 25 years as a writer was I could put things off as long as I wanted.
+- I started out writing much more science fictiony stuff and writing about science fiction.
+- When I was 7, my proudest possession would have been my bookshelf 'cause I had alphabetized all of the books on my bookshelf.
+- The simplest way to make sure that we raise literate children is to teach them to read, and to show them that reading is a pleasurable activity.
+- As an author, I've never forgotten how to daydream.
+- So the Comic Book Legal Defense Fund is out there preserving and fighting for, and sometimes winning and sometimes losing, the fight for First Amendment rights in comics and, more generally, for freedom of speech.
+- My theory on genre is that while there are people out there who believe that genre tells people what to read, actually I believe that genre exists as a marketing tool to tell you what to avoid.
+- I kept starting 'Anansi Boys' as a movie and stopping, and eventually wrote the novel and was happy.
+- One thing that I get from a lot of people with 'American Gods' is people saying that they would love some kind of glossary with a list of all the Gods and who they are, so that they can look them up.
+- Like some kind of particularly tenacious vampire the short story refuses to die, and seems at this point in time to be a wonderful length for our generation.
+- Things need not have happened to be true. Tales and adventures are the shadow truths that will endure when mere facts are dust and ashes and forgotten.
+- I'm a fairly undisciplined writer.
+- You know, it's weird being interviewed! Because the weird thing about being interviewed is you get asked these questions that you've never thought about, and you find out what you think as you answer.
+- The moment that you feel that just possibly you are walking down the street naked... that's the moment you may be starting to get it right.
+- I was one those kids who had books on them. Before weddings, Bar Mitzvahs, funerals and anything else where you're actually meant to not be reading, my family would frisk me and take the book away. If they didn't find it by this point in the procedure, I would be sitting over in that corner completely unnoticed just reading my book.
+- The short story is still like the novel's wayward younger brother, we know that it's not respectable - but I think that can also add to the glory of it.
+- So I went out and bought myself a copy of the Writer and Artist Yearbook, bought lots of magazines and got on the phone and talked to editors about ideas for stories. Pretty soon I found myself hired to do interviews and articles and went off and did them.
+- I've never known anyone who was what he or she seemed; or at least, was only what he or she seemed. People carry worlds within them.
+- We all not only could know everything. We do. We just tell ourselves we don't to make it all bearable.
+- Oh, tweeting prolifically is the most easy thing in the world. Tweeting prolifically is like somebody saying, 'Boy, you're a really good walker around,' you know. It's not really hard.
+- In the case of 'Ocean at the End of the Lane,' it's a book about helplessness. It's a book about family, it's a book about being 7 in a world of people who are bigger than you, and more dangerous, and stepping into territory that you don't entirely understand.
+- As a kid, I would get my parents to drop me off at my local library on their way to work during the summer holidays, and I would walk home at night. For several years, I read the children's library until I finished the children's library. Then I moved into the adult library and slowly worked my way through them.
+- Is the chemical aftertaste the reason why people eat hot dogs, or is it some kind of bonus?
+- Life is always going to be stranger than fiction, because fiction has to be convincing, and life doesn't.
+- I've known ambitious people with no aptitude for the thing they did. Most of whom, rather terrifyingly, tended to succeed.
+- 'Doctor Who' was the first mythology that I learned, before ever I ran into Greek or Roman or Egyptian mythologies.
+- I had started to feel that somewhere in the second half of the 20th century, the idea of page-turning as a good thing had been lost. You were getting books that were the equivalent of absolutely beautifully prepared dishes of food that didn't taste like anything much.
+- I'm English, and 'Doctor Who' was this thing that I've been watching since I was three.
+- Great, big, serious novels always get awards. If it's a battle between a great, big, serious novel and a funny novel, the funny novel is doomed.
+- The first author I remember being obsessed by, actually realizing 'I like the way he writes and I like the way he tells stories,' was C.S. Lewis and the 'Narnia' books.
+- I lost some time once. It's always in the last place you look for it.
+- Make good art.
+- This is a work of fiction. All the characters in it, human and otherwise, are imaginary, excepting only certain of the fairy folk, whom it might be unwise to offend by casting doubts on their existence. Or lack thereof.
+- When I was a kid, we actually lived in a house that had been divided in two at one point, which meant that one room in our house opened up onto a brick wall. And I was convinced all I had to do was just open it the right way and it wouldn't be a brick wall. So I'd sidle over to the door and I'd pull it open.
+- Empathy is a tool for building people into groups, for allowing us to function as more than self-obsessed individuals.
+- A nice, easy place for freedom of speech to be eroded is comics, because comics are a natural target whenever an election comes up.
+- Going off the grid is always good for me. It's the way that I've started books and finished books and gotten myself out of deadline dooms and things.
+- With 'Stardust', I hope what I was doing is giving 30-year-olds and 40-year-olds and 25-year-olds and 60-year-olds a chance to get the same sense of wonder, the same feeling, the same magic, that they got in reading the classic fairy tales as children.
+- Rock and roll stars have it much better than writers when they're on a tour.
+- The great thing about Batman and Superman, in truth, is that they are literally transcendent. They are better than most of the stories they are in.
+- I think of myself as a very lazy author.
+- Continuity isn't actually something that I ever worry about. You use it where you need to, and you don't use it where you don't need to.
+- I don't know if any single book made me want to write. C.S. Lewis was the first writer to make me aware that somebody was writing the book I was reading - these wonderful parenthetical asides to the reader.
+- I started blogging a decade ago because I like blogging. Writing's a kind of lonely thing to do, and I liked the idea of demystifying the process because I loved it as a kid and teenager and as somebody who wanted desperately to write.
+- I want to write a play. I'd like to do an original musical. I should probably put together a poetry collection.
+- It is a fool's prerogative to utter truths that no one else will speak.

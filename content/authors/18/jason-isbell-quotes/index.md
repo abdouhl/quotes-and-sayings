@@ -1,0 +1,132 @@
++++
+author = "Jason Isbell"
+title = "Jason Isbell Quotes"
+quotes_len = "126"
+description = "the best 126 Jason Isbell Quotes"
++++
+- Whatever needed to be done, I need to know how to do it just as well as my wife. You know, for us to be able to really balance the parenting. It was very humbling, and it was also, um - terrifying. Because, you know, giving a baby a bath for the first time is one of the scariest things you can do on this whole earth.
+- I write when the baby is asleep or when I'm on the road I write a lot... There's always time to do it. It's like getting exercise.
+- Good sounds, they just make you feel good.
+- When somebody asks me what a song or a line is about, I feel like I'm not done writing it yet.
+- When I was playing with the Truckers, a lot of really good things happened. And we had a good trajectory for a long time. For that kind of a band, for the kind of music that I've always made, we had a lot of success, I think.
+- I try to read a lot and listen to a lot of good songwriters, and I try to actually work on the craft of writing a song rather than just leaving it up to inspiration.
+- I know people who have written big hit country songs that are really kind of terrible songs, but for the rest of their life, they're the guy who wrote that. You've got to be careful; if you don't want that to happen, don't write those songs.
+- I need enough room to eventually throw a baseball with a child; that's all the yard I need. That's all I want.
+- Sometimes I leave an encounter or a conversation hoping that I didn't come off as above my raisin' - hoping that I didn't make somebody feel bad for not having as much as we're fortunate to have.
+- It's nice to feel like you have more in common with people rather than more differences.
+- The south is very focused on family... the musical heritage of Muscle Shoals especially and the bands from the region.
+- You can be very honest without telling the truth, at least in art.
+- My dad, as much as I love him, has one of those signs - 'The Isbell's' - on his front door, and he's got the damn apostrophe in there. I haven't strangled him yet.
+- The idea of growing up in the South and being a man is an interesting thing; there's a lot masculinity involved, with hunting, fishing, and playing sports that rural people take pride in, but at the same time, I grew up really not wanting to hate anybody.
+- Democracy can tie your hands in a rock 'n' roll band, you know? It can be a great thing, but if you've got a certain amount of vision and you write a lot of songs, it's sometimes better to have your own band and make your own decisions.
+- I don't care what 'Pitchfork' says. They write from a place that's a little too self-aware for me to really give a damn about what they're talking about.
+- I think great songs appeal to people at any age. Kids love the Beatles, too. Kids love Tom T. Hall. Of course, Tom T. wrote some things that were specifically for kids. But I think kids recognize quality more than they get credit for sometimes.
+- A great story poorly told doesn't do anybody any good at all, and nobody wants to hear it, and nobody wants to read it. The craft of it is really more important than the subject matter.
+- When I was still drinking, I thought I was kind of in control of everything in my life and other people's lives and realized at some point that that just wasn't the case at all.
+- Physical labor, manual labor - if you can stay close to those folks, there's always plenty to write about, 'cause their issues are real issues.
+- I just try to keep making good records, try to write songs the best way I can and take my job seriously. Like most people take their jobs.
+- For any writer, a red pen is such a trigger.
+- I'd rather have 1000 of our fans than 10,000 Kid Rock fans!
+- The world changes fast, and a lot of the old country folks have a hard time keeping up with it, and it makes them sad.
+- My favorite thing about going to concerts has always been looking around and thinking that there's a lot of people in here that are very much like me, a lot of people in here I could have a full conversation with.
+- I'm not a big AA guy, but I'll go every once in a while. They do tell you that going out and helping other people really helps you a lot. It seems like a simple thing to say, but it's really true.
+- No matter what you thought your plans were, that's not how things are going to work out, and that's the only way you can really, I think, live successfully.
+- I feel like people have a lot of the same good times and the same interests pretty much anywhere.
+- I don't start a song with an idea of what ingredients are going to go into a song. It's not like a recipe. I will normally either talk from personal experience or I'll make a character and then try to allow that character to behave the way he or she naturally would.
+- I like a cliche if it's sort of turned on its head.
+- The good thing about songwriting is you don't have to delineate between what's true and what's fiction; records aren't put on the shelf that way. Books are, movies are, but records aren't.
+- When I joined the Truckers, I was 21 and riding in the van with guys who were a generation older than me.
+- I feel like for me to write songs that I would be interested in as a listener, there has to be tension, and there has to be some kind of push and pull between reality and the potential of disaster.
+- There are so few people that wake up every day and go do something that they don't dread... I'm very lucky.
+- I like not having to worry about paying the bills, but I have to watch myself because I don't come from money.
+- A lot of people make records where there are a couple songs worth listening to and you skip through the rest, and I don't want to do that because those records bore me pretty bad.
+- My grandfather was a Pentecostal preacher, and there was nothing really modern that went on under their roof. We watched television, but they were very picky about what we could watch - old Westerns and stuff that wasn't vulgar or violent at all.
+- Something that really helps when it comes to writing songs is you start to notice how children learn and how we all had to learn in the first place, starting from the ground up. It gives you a new perspective.
+- If you're going to write, you're going to have to force yourself to really study the world.
+- When I stopped drinking... there were so many things I had to face that I didn't even realize were part of my makeup before. When you do that and have any changes that severe, you lose a lot of things, both good and bad.
+- There was a point when I told my daddy I didn't want to go hunting anymore.
+- At the end of the day, I'm just trying to write a song that I like, that I'm not afraid to turn loose on the world. I do read a lot. I know a lot of people who read more, but I do try to keep a book in my hand most of the time, and I think that informs any kind of output that I'm going to have.
+- If I spend time at the front of the process worrying about connecting themes, then I won't write the best songs.
+- As my life changes, it gives me new things to write about.
+- I don't think I'd be happy if I were satisfied. I enjoy challenge, and I wouldn't say that I'm an ambitious person career-wise or financially, really. I would like to travel more comfortably, but that's really about all I need.
+- I spend a lot of time wondering how to best support the people that I love, because I think sometimes that means getting out of the way. When should I leave them alone to have their own life?
+- Right when I started touring, there was this wariness I had of the world outside of my small town. But I'm not that person anymore, and I was never completely that person.
+- I didn't know what to expect when we first started touring behind 'Southeastern' because you don't want to lull anybody to sleep or lose their attention. But it's really been incredible how the crowds seem to be just as excited for the slow, sad songs as they are for the old rockers.
+- I'm not looking to be a superstar. I just want to be in a room with good people who are similar to me and are at least open to things that I have to say.
+- Most of the people that I spend my time around are people who listen to a whole lot of different kinds of music.
+- I think probably songwriters are gonna be the toughest critics... I think of it as a community. And we all sort of feed off of each other.
+- I don't have certain kinds of fatigue. My focus stays strong - I can work on a song for six or seven hours in one day and not get bored or tired of it.
+- For a lot of folks who get sober, the process of getting and staying sober becomes their higher power, and it becomes a religion that sort of consumes a whole lot of them. I just don't think that that's necessary. I think that that can be a side note rather than the story of your life.
+- I write pretty much year-round, but I definitely do more when a deadline is looming.
+- I've never been someone who's very prone to boredom. I don't know, boredom seems like something you should grow out of at about 15 or 16. There's so much that needs to be done.
+- I think I'm a common man for the most part, but I don't work as hard as most people that I know.
+- Songs like 'Outfit' and 'Decoration Day' and 'Dress Blues,' those were good songs, but the output wasn't as consistent in those days.
+- I find the ones that have the most emotional weight, the heaviest songs. For some reason, for me, they're usually the ones I write the quickest. I put more work into uplifting material, I think, sometimes.
+- I think sometimes I write to impress my influences. Whether they're actually acquaintances of mine, people that I think will hear the record or not, I still write - not to imitate my influences - but to write something that would live up to their standards.
+- I try to make statements that aren't broad because that doesn't make for good writing. I don't get commentary as my job, because I'm not very good at that. The way I do it is by writing songs, and I have to be small; I have to make the stories a bit personal.
+- I have a lot of reactions to the outside world that I don't feel like would be appropriate for songs: things I'm not interested in writing about, things I don't want to think about any longer than 15 or 20 seconds.
+- I think I'm writing for an intelligent stranger - you know, in my mind I can't remember who coined that phrase first. I don't want to write anything that makes me cringe, first of all. I cringe a lot - mostly when I hear popular music.
+- My wife and I both grew up with parents who were very young. Her mom was, I think, 17 or 18 when she was born; my mom was 15 when I was born. So, as we got older, we started thinking a lot about that - about the time that those people missed because we came along when we did and because they devoted so much of their lives to taking care of us.
+- I don't write a whole lot about one person that exists in reality; it's usually characteristics of different people that I combine into a character. I tend to think through and try and make characters behave in a natural way. I follow the character and think about what they would do, what decisions they would make.
+- I didn't grow up with a lot of money, but I grew up with a lot of opportunities that many people don't have.
+- If I could write rock & roll songs on purpose, I'd do it all the time. But most of what I write comes out slow and sad because that's most of what I listen to.
+- When I hear somebody like Hayes Carll write a song that's touching and poignant and sad and funny all at the same time, it motivates me to step my game up and try to figure out a way to get more different emotions into one line or one song.
+- A lot of the world turns into checklists for me when I'm on the road. Like, OK, this person's alive, this person's fed, this person's good. Soundcheck is done. Everything becomes a checklist except for the actual show.
+- What having a child - and especially a daughter - has done is lifted more of the veil for me: allowed me to see things on another level compared to how I used to see them.
+- Rehab is like a divorce.
+- A lot of people in Nashville think that the best song is the catchiest or the one that sells the most copies. They're editing songs in a way that make them seem more consumable, I guess. I'm trying to edit them in a way that makes them more honest.
+- I like those kinds of songs that have details that you remember and that have stories that mean something and that open up into different levels philosophically. I like those kinds of movies, and I like those kinds of books.
+- I think a lot of people are scared, and I know I was scared to get sober, at least using this as an excuse; 'I don't want to be one of those sober people.' And I don't think you have to be. I think you can be one of those people who happens to be sober.
+- It's not easy to sit down and open yourself up and say, 'This is how much I love you,' you know? It's scary to do that.
+- It occurred to me the thing that broke my heart the most was when I grew up and realized everything wasn't an adventure. I got to a certain age and realized I couldn't be Indiana Jones.
+- I don't think I'm a country artist, really. I'm a country person, but I don't think I'm necessarily a country singer or musician.
+- I have my own definitions of success. And I have my own definitions of country music that, luckily, I share with more people than I realized before.
+- When I wrote those first songs for the Truckers, songs like 'Outfit' and 'Decoration Day,' those were strong songs, very strong songs. But had I been in the position of writing an entire album at that point in time, I don't think the whole album would have been of that kind of quality.
+- I think Spotify is honestly just another one of Sean Parker's ways of ripping musicians off.
+- As far as being satisfied, I just don't think you should work towards being satisfied. If everybody were satisfied, we'd never get anything done.
+- Any narrative, whether it's fiction or not, you have to approach it as though it really happened to you. I think that's the only way to get inside the characters and make the narrative work. It's a storytelling tradition, and I think to come off as genuine then you have to really approach it that way.
+- If you're going to document your own journey, the jokes work better in the first person, just like the stories do.
+- I'll take a certain concern of my own or a situation and try to frame it around a fictional story, but sometimes just straight-up autobiographical songs work well, and sometimes a story is better. I like stories. I like to hear them. I don't think there are enough of them in songs anymore.
+- People love to be listened to and represented, and they love it when they feel like you have some of the same problems that they do. Everybody deals with things like romantic difficulties in relationships and death and cancer and abuse.
+- Sleeping on people's floors when you're 22 is fine. But when you get your life in order and have a family you want to keep and a certain level of health, touring bigger means you can keep going for longer.
+- You always have a lot of time on the road, and you have to fill that time up with something.
+- I'm not trying to steer people in a direction. I'm just trying to move them. Wherever it takes them, it doesn't matter to me. I just want them to be moved in one way or another, and that's a hard thing to do, I think.
+- I always think that's neat, when you can hear a story told from different points of view, different perspectives.
+- I think the live show is a different kind of catharsis. It's an event. It's supposed to be entertaining. To keep myself entertained, I like to play a rock n' roll show. I still kind of feel like I'm a rock n' roll musician anyway.
+- The more you read, the better you are at writing, no matter what you're writing. A lot of songwriters miss that and don't see the connection there, and I've always felt like you're more able to communicate if you have a bigger toolbox to work with.
+- I think for anything to be successful, your problems have to become different problems over time.
+- An incredible number of people have raised children who aren't too screwed up. Surely, I won't be the worst at it.
+- When I was writing 'Southeastern,' I'd just recently gotten sober. For me, that was a major turning point in my life. It changed things I did on a day-to-day basis. My whole routine was upended. It took me some time to get used to that and figure out how do I keep myself entertained.
+- I have modes, mental modes that I get in, and when I'm on the road, I focus very much on doing the work. On playing the show, on being good every night. And part of me just gets switched off. The part that's very private and very personal and very intimate. That especially, that part of me gets shut off.
+- If you're somebody who writes songs or writes fiction, a writer that people pay for your opinion in any way, you shouldn't be the least bit uncomfortable giving it to them. People want songwriters to tell them how they think and how they feel. That's what a song is. That's what I want to hear in a song.
+- Early on, I had to structure my ideas of success around things like, 'Can I go back and listen to the record months or years after I made it and still get some enjoyment out of it?' Or 'Have I said what I wanted to say on this album? Did it connect with people on a personal level, even if it's a small number of people?'
+- I've tried to be open to what's going on and paying close attention, not letting things that inspire me to pass me by.
+- Man, that Jim Lauderdale always looks good - he's got more western suits than anybody.
+- The fact that I have a Southern accent and write about a lot of rural things leads people to put me in the country category.
+- I've always wanted to pull off 'No One is to Blame' by Howard Jones. I've done that a couple times in solo shows, but I can't figure out how to do that with a full band and make it work.
+- Terrible things happen all of the time, and they can happen in a second. The best thing is to be prepared to react. If you try to control every little thing, you're going to end up miserable - and you're going to fail.
+- There are definitely some nights where the show is over, and you're on the bus or a hotel room, and it's sort of a shock to go from being in the atmosphere of a club or a theater and be at your own show to being by yourself in a hotel room.
+- I don't believe all music is good. I believe some music is bad for people to listen to. I think it makes their taste worse, I think it makes their lives worse, I think it makes them worse people.
+- My dad, he worries a bit, usually with good reason. There were quite a few years there where he was probably trying to resign himself to fact that I wouldn't live too much longer, just because of the way I was living.
+- I think I affiliate with somebody like Ben Howard. He's quite a bit younger than I am, but I think what he's doing is in a very similar tradition.
+- For me, the things like the Confederate flag - I just don't think that it does anybody much good, and it certainly causes a lot of people a lot of pain.
+- At some point, I'd like to make a record that's more of a self-serving guitar album, because I really love to play. It's not really something I'd expect a whole lot of people to buy, though.
+- Every time I'd get a job, they'd say: 'You'll be good at loading trucks.' I couldn't explain that there was more to me than carrying things.
+- I think politics are a very personal thing.
+- I go to the movies a lot on off days. I exercise. I have routines that I go by.
+- Sometimes a song becomes rhetoric, but you have to really empathise. You also have to leave room for both sides of the argument: even if you're not telling the other side, you have to put that part in parentheses and make sure it's understood.
+- It comes down to the difference between what you were planning to do and what life throws at you and you have to end up doing. The one who knows how to improvise is the one who comes out ahead.
+- If you're the person whose problems were solved when you were born, your job is to try and help the people who aren't in that situation. It's very easy to say you're tired of political discussion when all of your problems are solved. I keep trying to think of it that way.
+- I've always known that there are conflicting issues going on where I'm from. It's always been that way.
+- You don't have any kind of control ultimately. Things are just going to happen as they will. And I think your best option sometimes is just to react rather than try to plan everything out in advance.
+- As you get up in your thirties, the van touring is not a possibility anymore. We can't all be Mike Watt.
+- I went to school for creative writing in college, and I wound up about six hours short of my degree.
+- If I spent my time wondering about what genre I wanted to be in or where I was on the charts, I wouldn't be able to write these kinds of song. I'd be too busy doing other things.
+- I don't remember a lot of the good times from my days with the Truckers.
+- I like to play pool. When the ball goes in the pocket, you win.
+- I know it's financially lucrative to go out on my own, but I don't like it. It's really hard work, just the performance aspect. I like people who look like they've been together for too long and sound like they've been together too long. I like rock n' roll bands.
+- I've spent a lot of time in a rock n' roll band trying to fight off the fact that I was old enough to rent a car. And it's all sort of rushed in at once now. And I like it.
+- I've dealt with a lot of physical pain, with a lot of emotional pain; anybody's who's ever been an alcoholic has handled both of those in extreme.
+- My wife is so very important to me that it's made my mom more important to me. It's made every woman I know more important to me.
+- My wife may be the role model for our daughter in some ways, but I think I represent what she'll put up with. You know, I think one day she'll say, 'OK my dad behaved this way, so if whoever I happen to fall in love with behaves this way it's got to be OK because I love my dad.'
+- The Police could get away with doing an entire record with really no audible reverb, which I have always admired and thought would be a lot of fun to try to re-create.

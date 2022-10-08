@@ -1,0 +1,86 @@
++++
+author = "Manoj Bajpayee"
+title = "Manoj Bajpayee Quotes"
+quotes_len = "80"
+description = "the best 80 Manoj Bajpayee Quotes"
++++
+- My career has been a roller coaster ride. And every actor experiences that phase.
+- I am probably the best example of an actor who has built his career on flops.
+- Independent films are the ones with the great possibility of keeping you on your toes, challenging your craft and skills, and forcing you to learn something new.
+- I think theatre is an actor's medium, while cinema is a director's medium.
+- Multiplexes are being very unkind to small films. They are giving a lot more space and value to the big budget films rather than distributing show timings fairly. But that fight will go on.
+- I work at my own pace, and I work really well when I am not running around.
+- An actor is nothing without the vision of the director. The director needs to have a vision that will cross boundaries, that makes the audience sit on the edge of their seats and that pushes the envelope.
+- John Abraham is a really good guy. We get along very well. It's a nice thing when you have a great tuning with your co-stars, as it makes the working experience all the better. Then you look forward to working with each other every day when you are shooting.
+- When an artiste says that, after two heavy films, let me do a light one, somewhere they want to balance it out for the audience, not for themselves.
+- At 50-60, people either retire or they start falling sick, but 'Swami' is a person who will always remain strong. He has lots of expectations. He wants to fulfil his dreams and is very honest. First you play a character; then you play the age.
+- I'm an actor because I love acting, and my romance with this craft called acting is too intense. I'm in this business for a very selfish reason, and that is me, and nobody else. The audience loving it is by chance.
+- We actors should be given the highest awards for performing in the middle of people. I can prepare in the most crowded of places, and I know how to take a journey into my mind and separate myself from the crowd. I can act anywhere.
+- My lowest point came when I shifted to Mumbai in 1993. Nothing was happening. This is right after I did 'Bandit Queen.' I had no way to tell people that I know my job. There was no casting department here. All the commercial films that were happening in those days did not have any place for me.
+- Actors like me endeavour to look for great roles and portraying them to the best of our ability. At times, it's noticed; at times, it's not.
+- Talent alone doesn't matter in this industry, and everyone knows this. If someone says, 'Good films are done', 'Talent always survives', there are other factors, too, which are far more important.
+- Nepotism has always existed in Bollywood.
+- Struggle teaches you a lot of things, and I am happy that I witnessed a roller coaster ride. The journey has improved me as a person and made me more mature.
+- I am not Padma Shri Manoj Bajpayee. I am Manoj Bajpayee, an outsider who saw dreams and stayed on the fringes of Mumbai and worked day and night to get work.
+- For me, it's always the script. The script which gives me the chance to do something new; that has been my prime objective ever since I started acting. There's nothing else that excites me more than that.
+- Before moving to Delhi at the age of 17, I had only travelled to Patna or Varanasi outside Belwa.
+- My father is somebody I admire and would like to be. He is a mild man and a gentleman. Even though he was from a conservative background, he was so open to my doing theatre.
+- I don't think I play only serious characters.
+- I would really want all my films to make money. But this weekend calculation is the most dangerous thing because, based on the amount collected in the first weekend, they start declaring the film a hit or a flop. It can't be.
+- If you are working in the Hindi film industry, you cannot escape playing a police guy more than three times.
+- When a common man is discouraged to buy a movie ticket, it becomes a concern for the entire film industry. I think entertainment tax is too steep.
+- My job is to take out the negativity from a positive guy and take out the positivity from a negative guy. I don't play positive or negative roles. This is what I find fascinating about acting.
+- For most actors, it is the script that chooses them and not the other way around.
+- The 10 years of theatre prepared me not only as an actor but also as a human being. It gave me the habit of reading, watching, and preserving.
+- I have a lot of respect for PM Narendra Modi, as he works hard day and night and doesn't sleep more than 4 hours. So I am thinking of gifting him chewing gum, as he will chew that and will take rest and take care of his health.
+- I don't like to work. I am not helpless without work. Work is an obsession for me.
+- I am a mix of both my parents. Like my father, I don't let my dreams die; I'm shy and respect women. However, if I am pushed against the wall, I attack like my mother.
+- There never were any roles for my kind of acting. That's the story of my life.
+- I am not a star. My face is not the kind that 50,000 people will faint just looking at it.
+- Films like 'Satyamev Jayate' help in getting some distributors and financiers for films like 'Gali Guleiyan' which give me a lot of satisfaction.
+- For me, portraying a character is not about liking or disliking it; it's about meeting a challenge that's thrown at you.
+- In 'Queen,' songs were the part of events happening in the story, and that is where we enjoy music. We dance at weddings, we lip sync at bars and discos, and there are special moments in life which need background music. It should be depicted in films in the same way.
+- It is important to move on from the laurels of the past. I can't let success go to my head.
+- For me, money has never been an indicator. And it is very sad that each and every film these days is being judged by the money that it makes. It's a world that I don't want to be a part of, and I try and stay away from that.
+- Acting is the most difficult job in the world.
+- Watching an Amitabh Bachchan film in my village was a cinematic treat.
+- People who have been watching my performances, my films, have been a big support. If they are proud of my filmography and work, I am proud of what I have done.
+- If the director has clarity of thought and vision, you are bound to just go ahead and do what he wants to do. I respect that.
+- When I came to industry, theatre persons were regarded as those people who will only ask questions and will be an annoying factor on the set, and there was no preference given to them.
+- I've no problems with cuss words. All of us use them. Those who say they don't are lying. People can tolerate English cuss words but find the Hindi ones a bit revolting.
+- People should start appreciating films where women are at the centre.
+- I don't approach my character in a set pattern. I want to get into the skin of the character. I don't love Manoj Bajpayee; I love all my characters. And that is why people today remember all my roles.
+- I've accepted loads of criticism and sacrificed so much money to do what I wanted to do - which, in a very small way, contributed to making things easy for my kind of actors.
+- I am a known actor who wants to challenge himself in difficult roles. I am not a star but an actor, so I am always looking for strong scripts and strong roles.
+- For me, life is starting every day, every year. There's a lot to be done!
+- What I am used to is 'Gali Guleiyan,' and people talking about my performances, what new I have tried in terms of my craft or the skill of storytelling.
+- Stars have always been very good at what they do. They are born and blessed with charisma and power over the entire nation. One glimpse of a star makes people go berserk. Such magic cannot be created. You are born with it - or not.
+- After 'Satya,' the industry could not think of me as anything but the villain. They were stereotyping me on the basis of my looks. I lost so much money refusing such roles - the purchase of a new house got delayed by seven years because I said no.
+- I am a family man. The only difference between me and others is that while they work in corporate offices, I am an actor. I, too, like to go back home after work. I don't mind stopping to pick up groceries.
+- I have always believed that an actor cannot afford to have a favorite genre. He must excel in every kind of film and fit in with every director's vision.
+- That's realism: a fact that if the audiences don't move out and watch good films at the theatre, people will stop making them.
+- For me, when I choose a script, I put my heart and soul into it, and that is exactly what I look for in a film. A good film is a good film. And if it's a bad film, irrespective of whether it's made 300 crores or 200 crores or any amount of money, it doesn't matter to me.
+- For me, if awards are not increasing my remuneration or adding value to the offers that I get, they have no meaning.
+- I have made a career of flop films. And yet, 90 percent of my films are celebrated.
+- Deconstructing your performance is the curse an actor has to live with. That's why I don't watch my films.
+- My job is not to make you happy. As a filmmaker and as an actor, my job is not to make you feel happy. If you're used to those kind of films, don't come and watch my films.
+- I personally feel that no human is a hero or a villain. All of us have our grey sides, and that is why grey interests me: because it's more human, more life-like.
+- I don't take anything for granted from any director. I am just a slave of my director.
+- I don't like anything I see of myself on screen. I might like one scene or a few shots, but mostly I feel bad and keep kicking myself.
+- If one person from their fraternity is a little above average, they are celebrated as if they are the most gifted individuals. And who is enhancing their cause? It's a section of the media.
+- We live in a democratic country, and I take great pride in saying that I'm from India, a country where democracy is worshipped and freedom of expression is part and parcel of any person's fundamental right.
+- My offbeat choices definitely don't get me too much money because they are made in a very restrained budget. We do it because we love cinema, because we are passionate about the content and new ways of storytelling.
+- Manoj Bajpayee is a husband, a father, and an actor. He doesn't see his life beyond that.
+- I knew I am not star material. I cannot sing or dance, nor am I good for action. I can only perform for which strong, diverse roles are needed.
+- The kind of films and roles I do were never in competition with any star kid. Their aspirations are completely different.
+- I work for the director, and if audience are happy, I have gotten my award. After that, I have to move on.
+- I feel proud when my old films are still talked about and 'Zubeidaa' is one of them. It has been directed by one of the great filmmakers of the country, Shyam Benegal.
+- I had to either get better or leave the field. I couldn't go back to my village as a failure. The only thing that occurred to me was that I would work hard and get better next year. I feel that my love for the craft has got me this far, and this love is still there.
+- Even the finest actors will have great difficulty showing somebody's loneliness. To put an actor on a chair and ask him to do nothing and yet tell the viewer everything about the character, it's a difficult task.
+- Even as a child, I was witness to protests against a film or a play or a book. All through my growing years, I found various people or organisations protesting against something.
+- Earlier films were meant only for entertainment, but now filmmakers, who are products of these times, do not compromise on real stuff. That is why storytelling has become more convincing.
+- The second child of a small farmer with six children, I come from a village in Bihar on the border of Nepal called Belwa. I was there till the age of 17 and studied in a Hindi-speaking boarding school run by Catholics in a nearby district town.
+- Commercial cinema is necessary to get money, but to get respect, it's necessary to keep coming up with good content and giving a chance to the talent whose craft and skill is immaculate.
+- There has to be some newness in the story or, at least, some aspect of the movie. I get bored if the story is told in the same way all the time. I get bored easily.
+- I am known by my performance, so neither do big films need me nor do I big films.
+- When you have a child, you have to have a hawk eye. You have to be with the child all the time.

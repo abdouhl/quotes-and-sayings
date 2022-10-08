@@ -1,0 +1,17 @@
++++
+author = "Michael Mcmillian"
+title = "Michael Mcmillian Quotes"
+quotes_len = "11"
+description = "the best 11 Michael Mcmillian Quotes"
++++
+- I grew up in the Midwest and had a lot of exposure to big religion. I went to church every Sunday - my mother even sang in the choir - and most families I knew where practicing Christians.
+- I've got an original graphic novel called 'The Indian and the Bandit' that I'm writing with a childhood friend.
+- Most stories in 'True Blood' take place over a short amount of time. I think the entire three seasons of the show have only spanned a month and a half of those characters' lives.
+- One of the greatest things about playing a villain is people wondering when he's going to make his comeback.
+- I'm sort of killing two birds with one stone here, getting to write for 'True Blood' and being able to put myself in a comic at the same time.
+- Co-writing the 'True Blood' comic is a dream come true both as a performer on the show and as longtime comic fan. It's a real privilege to build on the rapidly growing 'True Blood' mythology.
+- When I approached Volume 1 of 'Lucid,' I realized I could tell something that only exists in four issues, or I could roll the dice a bit and approach this as Season 1 of a TV show.
+- I'm hooked on 'Game of Thrones.' I'm a fan of the books and the show.
+- I really want to do a 'True Blood-Six Feet Under' comic book crossover.
+- I remember the first job I ever had was working on 'Firefly,' and I was talking to Joss Whedon, and he was asking if I was going to Comic-Con. He called me a loser for not going that first year.
+- I want to work on the 'True Blood' comic for as long as they'll let me.

@@ -1,0 +1,29 @@
++++
+author = "Joseph Lancaster"
+title = "Joseph Lancaster Quotes"
+quotes_len = "23"
+description = "the best 23 Joseph Lancaster Quotes"
++++
+- This system of encouragement proves serviceable as a preventive of punishment, the attainment of the tickets being a reward, the forfeiture of them the reverse; and, as such, boys seem often more affected by their loss than by coercion.
+- A system of education, which would not gratify this disposition in any party, is requisite, in order to obviate the difficulty, and the reader will find a something said to that purpose in perusing this tract.
+- Female schools might be comprised in the list of those worthy the public patronage, with great propriety.
+- A spirit, breathing the language of independence, is natural to Englishmen, few of whom are disposed to brook compulsion, or submit to the dictates of others, when not softened by reason, or tempered with kindness.
+- At a moderate calculation, among a million of persons inhabiting the metropolis, there are, at least, twenty-five thousand children who attend these schools, and cost their parents as many pounds sterling, per annum.
+- In such a case, it would be almost sure of success, if the active members of a society established for that purpose, were inclined to meet the poor as men, as brethren, and as Christians.
+- I was induced to establish several orders of merit, from conviction that emulation, well directed, becomes a useful servant; and, that the latent genius of some youth is more easily brought into action this way, than by the more sordid gratification of self-interest.
+- When obedience to the Divine precepts keeps pace with knowledge, in the mind of any man, that man is a Christian; and when the fruits of Christianity are produced, that man is a disciple of our blessed Lord, let his profession of religion be what it may.
+- The sincere teachers of their youth should be met, not with an intention to dictate to them, but to give additional force to their well-meant endeavours, and raise them to public esteem.
+- The complaint of bad pay, and difficulty in obtaining it, is almost generally reiterated through every department of education.
+- The same stimulus that animates men to action, will have a proportionate effect on juvenile minds.
+- May this plain statement of facts prevail on the friends of the rising generation to interpose for their welfare; that the education of children may no longer be to parent and master a lottery, in which the prizes bear no proportion to the enormous number of blanks.
+- I am persuaded, that if any attempt is made to improve the education of the poor, and such an unmanly spirit should guide the resolution of a society or committee for that purpose, it would render the design abortive.
+- Indeed, I am sometimes inclined to doubt whether some men consider youth as rational and intelligent beings, with minds capable of expansion, and talents formed for usefulness.
+- THE rich possess ample means to realize any theory they may chuse to adopt in the education of their children, regardless of the cost; but it is not so with him whose Subsistence is derived from industry.
+- My school is attended by near three hundred scholars.
+- Many thousands of youth have been deprived of the benefit of education thereby, their morals ruined, and talents irretrievably lost to society, for want of cultivation: while two parties have been idly contending who should bestow it.
+- IT is difficult to speak or write with becoming moderation or propriety, on topics to which we are biased by prejudice, interest, or even principle.
+- A national evil requires a national remedy; let not this any longer be delayed: let your minds expand, free from every narrow principle, and let the public good become the sole object of your united Christian efforts.
+- We daily witness the beneficial effect produced to the community by the institution of premiums, held out to encourage the inventions of ingenious mechanics.
+- Mankind are divided into sects, and individuals think very differently on religious subjects, from the purest motives; and that gracious common Parent, who loves all his children alike, beholds with approbation every one who worships him in sincerity.
+- All are agreed, that the increase of learning and good morals are great blessings to society.
+- The institution of a public library, containing books on education, would be well adapted for the information of teachers, many of whom are not able to purchase expensive publications on those subjects.

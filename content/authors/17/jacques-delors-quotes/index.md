@@ -1,0 +1,31 @@
++++
+author = "Jacques Delors"
+title = "Jacques Delors Quotes"
+quotes_len = "25"
+description = "the best 25 Jacques Delors Quotes"
++++
+- I had to think whether, after 50 years of hard slog, I was still lucid and fresh enough for the job.
+- The driving force behind the liberal counter-offensive in Europe has been a reaction against irresponsibility.
+- Therefore one should speak at the same time of national citizenship and wider European citizenship.
+- Fundamentally, American society is composed of individuals who don't go out of their way to do each other favours.
+- The unions may continue to decline, but if they do, it'll be their fault.
+- The European model is in danger if we obliterate the principle of personal responsibility.
+- The European model is, first, a social and economic system founded on the role of the market, for no computer in the world can process information better than the market.
+- The unions still have a job to do, representing their members' interests to governments and parliaments. And I think collective agreements still have a role, alongside markets and laws.
+- I would not be opposed to devising a new system of pensions, in which one part was based on collective provision, but which also gave incentives for people to take out an additional, personal plan.
+- I cannot resign myself to the decline of Europe, and of France.
+- Any union that can't accept workers choosing their own representatives through universal franchise is finished.
+- My presidential victory, if it had happened, would have been artificial in relation to the Socialist party. It may be that on my deathbed, I will come to regret my decision, but for the moment, I live at peace with it.
+- These days there are not enough of such intermediary groups, between the state and the individual, with the result that political leaders are often unduly guided by opinion polls.
+- If you don't have collective agreements between unions and employers, governments have to legislate more.
+- We have to struggle against the conservatives from all sides, not only the right-wingers, but also the left-wing conservatives who don't want to change anything.
+- This desire for equity must not lead to an excess of welfare, where nobody is responsible for anything.
+- The countries that share this conception should be able to go further together, without excluding the others, since they can still live in a greater community of exchange and co-operation.
+- Cinema explains American society. It's like a Western, with good guys and bad guys, where the weak don't have a place.
+- This weakening is worsened by the widening distance between the governed and their governments.
+- Even in Britain, the trade unions tell me that employment contracts have less protection than in the past.
+- The problem with a purely collective system is not only that it requires economic growth, and the right sort of demographic trends, but that it prevents people thinking about their futures in a responsible way.
+- For me, socialism has always been about liberty and solidarity, but also about responsibility.
+- My problem is how to find the best way of being useful.
+- Yes, the European model remains superior to that of America and Japan.
+- The problem of how we finance the welfare state should not obscure a separate issue: if each person thinks he has an inalienable right to welfare, no matter what happens to the world, that's not equity, it's just creating a society where you can't ask anything of people.

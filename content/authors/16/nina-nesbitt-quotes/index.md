@@ -1,0 +1,84 @@
++++
+author = "Nina Nesbitt"
+title = "Nina Nesbitt Quotes"
+quotes_len = "78"
+description = "the best 78 Nina Nesbitt Quotes"
++++
+- I came from a really small village outside Edinburgh in Scotland and had quite a sheltered upbringing.
+- I'd been an artist since I was 17 and I was used to just putting things on iTunes. So I was like, I need to educate myself and figure out the new industry.
+- London seems to be one step ahead of everywhere else which I like because you see things first. It's where British fashion is developed and there are so many little vintage shops and boutiques; there are always loads on offer.
+- Working with other artists and writers over the past couple years has really given me a clear idea of my strengths and weaknesses and what is unique about me as an artist. I figured it's my storytelling lyrics, falsetto range and tone of voice, so I write songs to utilize those.
+- I think when I started my first album, I was 17 or 18, so I guess I was basically a child.
+- The worst quality in a man is a really big ego - that would turn me off.
+- I think it's exciting because it pushes you harder to write a great song. Even for established artists, it has to be really good now because people have so many other options.
+- But I think as you grow up, you realise that actually, if you want to dress sexy there's nothing wrong with that - it's your prerogative as a woman to dress however you want.
+- Being young and extremely naive and coming from a very sheltered place has been a slight disadvantage to me because in Edinburgh, if you meet someone and they're nice, they just become your friend.
+- I can't put on weight, even though I eat so much and I'm not saying that in a good way because I love curves and I love carbs too.
+- I don't know if I could lip-sync while waterskiing. I had to do that on horseback and it was a nightmare.
+- I was wearing leather studded jackets, but I was playing acoustic folk music, so it was quite a weird mix.
+- My tenth-ever gig was in an arena, which is mad... I remember being backstage with multiple artists there and someone had had their teeth done - like veneers - and I come from a very small village where people are lucky to even have all their teeth.
+- I listened to a lot of female pop music growing up. I started to realize that there were women out there wanting to stay something, playing instruments and writing their own songs.
+- Being with somebody who makes you feel great, you could be anywhere doing anything.
+- Then when I was writing alone, I'd just be in my bedroom in London and I had a little studio setup. I was like, You know what, if no one's gonna produce my music, I'm gonna have to learn how to do it myself.
+- People are pretty normal in Scotland, I've had a few crazy fan experiences elsewhere.
+- Well, there's this culture on Instagram where everyone uses filters and lighting, or people smooth their skin out. It's this weird thing. We all know it's not real and we all complain about it, yet we all do it.
+- But, I think that as long as you have a distinct voice and personality, you can kind of dress how you want.
+- I still get the bus into town, still do all the things I used to before I was signed.
+- People in Glasgow are really rowdy which is good.
+- I try to create a style that reflects my music. So I would say it's definitely got some '90s elements, some pop elements that are a bit more feminine, and then more indie, androdgynous elements.
+- I would say my favorite is probably the 'Colder' video. Just because that sort of brings the album artwork to life. It's not my favorite song on the album, but visually, I think it just came out exactly how I had it in my head.
+- I like people who have their own quirky style. I'm not really attracted to typically good looking men.
+- I had basically been shelved by the record label for two years and I was writing songs every day. I made two albums that just never came out, and that was just a really big knock to my confidence, because everything I sent seemed like it just wasn't good enough.
+- I've always been very independent, and I love being able to enjoy different parts of music. It's amazing to be able to hear the sound in your head and instantly make it come to life.
+- I just find it so weird that I can come to another continent and have people turn up. I guess it's just the internet... It just makes it so available to everyone.
+- I picked up the guitar at 15 because of Taylor Swift.
+- I've spent a lot of time in Inverness, playing gigs and on a radio tour. I like heading up there because it is very tranquil and a contrast to how busy London is.
+- I think Taylor Swift, in the days when she was kind of doing more country style, definitely was a big inspiration for me.
+- Working with other people, it's hard to get them to make it sound like what you have in mind.
+- I do loads of pitch writing as well, where you write a pop song and then pitch it to DJs who can then work with the song, and sometimes they keep your vocal on it. It's just good to be involved in different things.
+- Doing the Yumi cmapign has shown me lots of different looks I'd not tried before.
+- So what comes naturally to me is writing lyrics and writing songs and telling stories.
+- I feel like in our society there is definitely still a lot of underlying sexism. It's funny how many guys are surprised when you pick up an instrument in the studio, or write your own songs.
+- There's even a feature on my website where you can translate messages into codes, so whenever I have any big news it goes out in code first so the diehard fans are the first to know.
+- I won't write every one of my personal experiences into songs as I think it could be a bit depressing - and its nice to not be too open.
+- I get on really well with Jake Gosling, who is a great producer, and I have written a song with Fraser T Smith.
+- I think you really have to know what you want if you want to be an artist. Otherwise, you just kind of end up in space, just floating around.
+- Stay Out' is about all the stereotypes of people you meet out and about.
+- I write songs that mean something to me because I want to connect with people and make them feel something too.
+- I didn't grow up with a musical family. My mom had a lot of CDs in the house, particularly Whitney Houston, Mariah Carey, Celine Dion, ABBA, all the sort of like diva icons. She's Swedish, so she loves pop music.
+- I absolutely love collaborating with other people, but I think it's so important to always be able to rely on yourself because there are ups and downs in this industry.
+- I don't think I am pretty. I think I'm quite strange-looking.
+- I'm now 23 and feel like it's been a full 'crash course' in the music industry - I've only just found my sound.
+- I previously played King Tut's in Glasgow, which is one of my favourite gigs. It's really intimate.
+- When I got dropped, no one really wanted to work with me... I felt like my career was over and I didn't really know what to do.
+- I've learned not turning things up to full volume is a good idea. Also, because I have the freedom, sometimes when I'm writing a song I'll get carried away with production when I'm only on the first verse, and that sacrifices the songwriting.
+- I feel like there's a lot of albums that are like 'woo! we're young, let's have fun' and there's a lot of albums that are abstract, with mature lyrics.
+- Sometimes I fall out of love with what I'm doing, but only for about a week. Once it's over I'm back to thinking it's the best job in the world again. But every job has it's ups and downs.
+- But then as I got older, I got to know all these amazing artists like Alanis Morissette, Stevie Nicks, Debbie Harry, all these women who are really the creators behind who they are.
+- But shows like 'The X Factor' are a great showcase but people are not taking it for real music.
+- I only tend to use YouTube for learning difficult guitar things or music videos. I tend to just walk around London and take it all in; there are so many fashionable people.
+- It's always weird when people come out to see you because everything's mostly online now.
+- If people really like your music but you're not selling so many records, I don't think it really matters.
+- I was thrust into the spotlight and didn't really know what I was doing. The opportunity was amazing but I wasn't ready for any of it.
+- I never want people to know who I'm going out with or about my family. But it's difficult, because when people have seen you online since you were 14, they feel like they know you.
+- I dyed my hair blonde when I was 13 because I wanted to be like my mum and my gran, who both have blonde hair.
+- I try to create an image to suit my music. These days, you have to create your own personal brand as an artist. It's not about just putting music out any more unfortunately.
+- So I just sat in bed for six months - I literally didn't leave the house - and it was the first time that I'd actually experienced being depressed. I'd be sad on and off but I'd never experienced actual depression. Like, crying for no reason. It was really horrible.
+- When I wrote my debut album I was around 17, I didn't really know what my sound was or who I was and what I wanted.
+- I took two years out to find what sound I felt passionate about and what I liked making. After the last album, 'Peroxide', which is quite poppy and acoustic, I felt really bored.
+- Sadly, people assume that I am happy because I am so skinny.
+- I went from playing to like ten people in a pub to playing thousands of people and being in this music industry, you really have to get out of your comfort zone fast.
+- I've learned a lot about being in control of your career - and that being positive and believing in yourself goes a very long way. And creatively, the music needs to sound like it's come from you, not someone else who's choosing the songs for you.
+- From past experience I wouldn't go out with another musician. With song writing people can be a bit sensitive. Something completely different, like a lawyer, would be good.
+- I like to get off my phone because when I sit with my phone, I don't feel creative cos I'm just sitting reading other people's things.
+- I couldn't get gigs because you need to be 18 in most venues. So I started doing videos. I wasn't thinking about getting a record deal, I just wanted to know if people thought I was good.
+- As an introvert, you have to spend a lot of time with me and then little bits of my personality will come out over time. But as an artist, sometimes you only get five minutes to impress someone, so it is kind of hard.
+- I genuinely have no eating problem. I eat so much food. I think there's a lot of girls who are similar to me.
+- I would love to work with Calvin Harris because I think he's a really good songwriter and producer and he does everything, which I like.
+- It seems as though if you go on tour with someone that means you're automatically going out with them. I'm just focusing on my music.
+- For a date, I'd like to do something different to drinks or dinner - like walking around Camden for a day in the sun, or something weird, like skydiving. Then at least if you don't get on you've had fun.
+- I have a song coming with blackbear. He's a huge artist, I would say in the dark-pop scene. He has also collaborated with a lot of hip-hop artists. He's huge on Spotify.
+- My career is my whole life, so if I'm not happy with that, it affects everything else.
+- I think everyone goes through it in university, figuring out whether or not they're doing the right course. I guess I'm the same, but in music.
+- Peroxide' is a mix of everything I have experienced from the age of 15 until now with themes of break ups, first love, growing up - all the sorts of things that you experience at that age.
+- A song like 'Loyal To Me,' for example, I originally wrote that for a girl band in mind, that's why it has so many harmonies and it's got that sort of '90s/R&B feel to it.

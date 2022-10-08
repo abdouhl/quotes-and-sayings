@@ -1,0 +1,36 @@
++++
+author = "Juice Wrld"
+title = "Juice Wrld Quotes"
+quotes_len = "30"
+description = "the best 30 Juice Wrld Quotes"
++++
+- I never thought about college, but my mom thought about it for me. I knew 100 percent it wasn't for me.
+- I started recording in my sophomore year in high school. I recorded things on my cell phone in my basement.
+- Even if I'm talking about something that's negative, I look at it as putting my mistakes out there for people to learn from it.
+- I don't want to get lost in everything. I just want to keep the same work ethic.
+- I feel like I inspire more people than I think I do. I just need to remember that.
+- My school had a radio show, and when I first decided to become a rapper, I was on there, and I would, like, freestyle.
+- Nobody on this earth is perfect. Everybody has their flaws; everybody has their dark secrets and vices.
+- I think it's important to add a personal aspect to your music - that's what makes it authentic at the end of the day.
+- Trust me: it's cool to invest.
+- I can admit and say that I have feelings.
+- Words have a lot of power.
+- Music is the best way that I can communicate with other people.
+- I kinda grew up in different places. I was just from everywhere.
+- I'm probably one of the biggest Drake fans you could ever find.
+- It's good to put money back into communities.
+- I really just like making music. People call that 'work.' Like, 'Oh, you're going to the studio to work?' No, that's even what I do in my off day. I love recording.
+- I freestyle everything.
+- Honestly, the way I make music, you know - it's like, I don't want to sound cocky or anything, but I try my best to make time with music that doesn't have an expiration date.
+- I had phases of listening to rap and trap, and then I had phases where I'd listen to post-hardcore, rap, grunge, metal... all that. I had different time periods of listening to different music. And now it all clashes together.
+- I feel like that's what's going to be most respected at the end of the day, that I'm able to do so many different things and become less of a rapper and just more as a musician.
+- Lucid dreaming is dreaming but you being aware that you're doing it.
+- It is hard to separate the art from the artist.
+- I've always been different.
+- I feel as though, if you're able to control your dreams, you have more power and control over your mind, like you could reach more areas of your mind. Therefore, I feel like it creates the ability for you to achieve more things in reality.
+- I've always been involved in music. Whether it be taking piano lessons or something, I always have.
+- My music is straightforward because I want to give people me and let them know they're not alone in going through the things that they go through.
+- Shout out to Sting: that's the G.O.A.T. right there. The goat. Greatest of all time.
+- Even in high school, I went through a lot of relationship issues, and that's at the center of my music.
+- I talk about a lot of issues I go through and some of my fans go through and try to create a fellowship where people can relate to each other.
+- I got family members that's police officers. I don't got no problem if you a cop, as long as y'all doing y'all job, and y'all not harassing.

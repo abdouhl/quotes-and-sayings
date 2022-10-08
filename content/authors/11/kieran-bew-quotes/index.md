@@ -1,0 +1,11 @@
++++
+author = "Kieran Bew"
+title = "Kieran Bew Quotes"
+quotes_len = "5"
+description = "the best 5 Kieran Bew Quotes"
++++
+- You've got something really angsty for me to play? Bring it on. Most of the time, I'm goofing around and doing impressions of people, so that's nice.
+- At drama school, I got a job choreographing and teaching the fights for Mark Rylance doing 'Hamlet' at the Globe in London when I was only 19. They made me fight captain.
+- I always love being an actor for the simple fact that, whenever you do a job, you have to read a lot of stuff that you've never read before; you explore things, and generally you meet experts in lots of fields, and you get to absorb that information and make it look like you've done it for 20 years.
+- I did quite a lot of fencing when I was a kid. I was a swimmer, and I played a lot of basketball. I was a fencer for Great Britain, but I only did that because I watched 'Robin Hood,' 'Star Wars,' 'Highlander' and 'The Three Musketeers,' and I wanted to emulate Richard Harris and the great British actors that I grew up watching.
+- Beowulf is not a superhero. He has a talent, very much like Clint Eastwood in 'Unforgiven.' He's very good at staying calm in the right moment, but he does bad things. It's very much about having talent in a tight spot.

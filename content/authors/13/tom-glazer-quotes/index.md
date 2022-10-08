@@ -1,0 +1,33 @@
++++
+author = "Tom Glazer"
+title = "Tom Glazer Quotes"
+quotes_len = "27"
+description = "the best 27 Tom Glazer Quotes"
++++
+- I was asked by a group to write a song on the theme of brotherhood. This was before women's liberation, when brotherhood meant men and women both, so I wrote the song. Since I had always been very fond of the Passion Chorale, I wrote words to that great piece.
+- When I became more involved in music, I had to give up some of my writing in the literary sense. However, on occasion, I would write something for my own pleasure or I would write notes and introductory remarks in the songbooks I put together.
+- I have a great interest in a number of things, perhaps too many. I admire people who seem to concentrate on only one fixed discipline to the exclusion of almost everything else.
+- Participation, I think, or one of the best methods of educating.
+- As I grew up, I was interested in other areas, too, especially literature. It became a major love of mine. Later, it became a difficult choice for me as to whether to major in music or literature. It wasn't until my 30s that I began a profession in music.
+- I wrote the Brotherhood song for no money out of my deep feelings about humanity, and because I was flattered that whatever talents I had, had been recognized.
+- For hundreds of years people have talked about artists having inspiration, but often, some persons would say, write us a symphony or write us a song, on commission. The artists would come up with a masterpiece without waiting to have their muse inspire them.
+- A characteristic of older folksongs, in most cases, is that we don't know their composers or authors. Older folksongs were written often with no commercial purpose in mind. They were passed down by word of mouth, from generation to generation.
+- When I was in Philadelphia during the Depression in 1930 or '31, I got a very sad job as a night watchman in a garage. The cars in the garage had been abandoned by their owners, since they had lost their jobs and couldn't keep up the payments.
+- I met my wife in Washington, D.C. I was a senior in college. WW II was about to descend upon us. Jobs were starting to open up after a prolonged depression.
+- I'm afraid I talk a lot, too much, perhaps. I should have been a lawyer or a college professor or a windy politician, though I'm glad I am not any of these.
+- Things are forgotten and then perhaps picked up again, if we're lucky, it lasts... if not, then it's in the lap of the gods. The important thing was to do some work that I liked and hopefully that some others might also like, whether for a minute, a week, a month, a year.
+- Technically, I've been retired for some time now. All I ever do is occasionally write songs for friends, such as one, for a friend who had just turned 80. I wrote a song for him called, The First 80 Years are The Hardest.
+- I ended up performing on a full time basis and I never got to Julliard at all.
+- They say poets write mostly for themselves; if anyone else likes it, well and good, if not, it doesn't matter; certainly, not to me.
+- I obtained a job at the Library of Congress. I loved books, so I felt at home. I was going to end up, I thought, majoring in English and teach at the college level.
+- When people ask me what I do, strangers on a plane, perhaps, I tell them that I think. Thinking is excellent exercise, as much as swimming or jogging.
+- I published, privately, a collection of my serious poetry I had written over the years. I only published 50 copies, which I gave to friends, in a special deluxe edition. It was ridiculously expensive but I'm glad that I did it.
+- Music was around in my family in two ways. My mother would occasionally sing to me, but I was mostly stimulated by the classical music my father had left behind. I had an ear for music, I suppose, so that's what began my interest in music.
+- When I am seriously composing, sometimes a phrase will come into my head, a catch phrase. When I was writing pop songs for a few years, as a career, separate from my folksinging career, I used to write songs for pop singers.
+- When I listen to music today, it is about 99 percent classical. I rarely even listen to folk music, the music of my own specialty, because folk music is to me more limited than classical music.
+- I started my career at the top and have been working my way downwards ever since.
+- I taught myself to drive. I hope that the child in me never dies.
+- With sincere modesty, if there is such a thing, I have never thought of legacy at all. I am always grateful if people like what I have done. A legacy is something no one can forsee.
+- Just this morning, out of a large memory for songs, and having been obsessed by them since childhood, suddenly, at the age of 84, I thought of a song I hadn't thought of in over 50 years. It came into my head unbidden.
+- My Dad died during the flu epidemic in 1918 when I was 4 years old. He left a lot of classical recordings behind that I began listening to at an early age, so he must have been a music lover.
+- Most performers don't admit this, because it sounds negative and performers are not supposed to be negative, but when I was on the road, I was lonely.

@@ -1,0 +1,39 @@
++++
+author = "Michael Kelly"
+title = "Michael Kelly Quotes"
+quotes_len = "33"
+description = "the best 33 Michael Kelly Quotes"
++++
+- This country deserves a statesman who can represent the people with proper decorum, respect, and knowledge of what's happening in the world, and I don't believe that Donald Trump represents any of that.
+- Yeah, I probably got in too much trouble as a youth to be a politician.
+- I am definitely a Hillary, a Secretary Clinton supporter. I think that she's got the experience and the leadership capabilities to be the next president - and most importantly, her understanding of domestic and foreign policy and social issues.
+- I go, and I lobby for seniors on the Hill in Washington, D.C., and I've fought to have the Older Americans Act reauthorized, so I believe that my voice has been used for a lot of good.
+- I've never heard Donald Trump say that he watches 'House of Cards,' but I'd be really shocked if he didn't because he appears to be copying Frank more than we're copying the current administration.
+- I learn from Kevin Spacey and Tom Hardy, watching these guys work, the things they all do differently. Tom never stops exploring and discovering, take after take. His mind never turns off.
+- Back when Donald Trump was just starting in the primaries, and I was asked, 'What do you think of Trump?' I would say, 'Donald Trump is a great example of someone in our country being able to truly do anything. You can dream, you can do it. And that's a great example of that. But when the primaries are over, Donald Trump will be gone.'
+- We don't have a problem killing off characters on 'House of Cards.'
+- I had actually studied political science in college. I had dreams of being a lawyer at one time.
+- I am a family man who has children, who is a good person, who cares about women's rights and my kids' rights and education, and I'm not a leftist elitist. I live a very normal life.
+- You know you have a problem in American politics when they're making 'House of Cards' look normal.
+- I was in college, and I studied everything, but was really not good at anything until I found philosophy, and, then, political science. I thought, 'Wow, this is something I really enjoy.' I kind of got into that whole world of law and political science. I was really into it and enjoying it, and then I took an acting elective, and that was it.
+- I have way too shady a background to get into politics. I was a crazy kid - I was in bands, and I don't think I'd get very far before people started digging up stuff I didn't want them to see.
+- I've done so many jobs. As an actor, you have to. I didn't have my parents footing the bill when I moved to New York. I moved here with, like, 300 bucks. I was a bike messenger. I was a waiter. I was a bartender. I worked in a consignment shop for high-end designers.
+- The most important thing you can do as an actor is bring as much of yourself to the character to ground the character in some sort of reality, and then you build around it and on top of it.
+- In the beginning, I aspired just to make a comfortable living in acting. I still feel the same - it's just that my standards have gone up, so my comfort level is higher as well.
+- I studied political science, and when I fell into acting in college - it was just a total fluke that I became an actor. I ended up changing my degree and went for a double major and missed political science by two classes.
+- I worked construction clean-up. I was driving a pickup truck at the age of 14 on a construction site. I loved building and being part of the process. You got to see your work.
+- My mom always told me to set goals for myself. And slowly going through and checking those things off of my list, that feels like success to me.
+- This country, the people of our country, owe our military so much. These are the people that go out there and literally risk their lives to protect our freedom.
+- If I get one more person telling me I look like Eliot Spitzer, I'm just going to have to play the guy one day.
+- I am so blessed. I have an incredible wife, children I adore; I'm a very happy man. I've got a great mom and dad and brothers and sisters and stuff, so I've always been happy. And I never stop smiling.
+- I'm pretty sure it was President Bill Clinton who brought me back into politics and following it.
+- I play guys who never smile, and I never stop smiling.
+- Trump doesn't have a plan. There's a screw loose, and he's got a really short fuse. Do you really want the leader of the free world with his finger on the button to have a short fuse?
+- I had a dream to be an attorney. I don't know if I ever would've passed the bar or not, but that was my dream.
+- When are boots in the ground no longer going to have to even be people, and is that right? When does it become 'Star Wars?' When is enough enough? When do we put this time and energy into eliminating war or reasons for war instead of creating new technology to make war easier for us?
+- I think Netflix is responsible for what will become how we view television.
+- I like to think I'm a good, kind person who does the right thing, but I don't ever feel sorry for someone who didn't get the part that I got. Not for one second.
+- First and foremost, it's my mom and dad who gave me the foundation, the belief in me that I could do anything.
+- I think that every generation will say that technology has gone too far. That's probably always going to be the case. We can't even imagine what our children will have in their adult lives.
+- People always ask me, 'Hey, what's Matt Damon like?' He's just a dude, just a really good person and one hell of an actor.
+- Power draws you in; it's something we can gravitate toward.

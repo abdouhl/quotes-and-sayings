@@ -1,0 +1,64 @@
++++
+author = "Michael Bennet"
+title = "Michael Bennet Quotes"
+quotes_len = "58"
+description = "the best 58 Michael Bennet Quotes"
++++
+- I think if we can get people focused to do what we need to do to keep our kids from being stuck with this debt that they didn't accrue, you might be surprised at how far we can move this conversation.
+- Health care is much the same - the status quo is, by all measures, failing far too many people - and we must not shrink from the challenge.
+- Ensuring all kids have access to an effective, talented teacher needs to be a national priority.
+- Often times, political games prevent senators from even beginning to debate some of the most important issues.
+- We've done a terrible job of hiring, supporting, and retaining the people tasked with the difficult responsibility of teaching our children.
+- A stable and affordable home is fundamental to economic security.
+- I think that we have positive moments in our history and negative moments in our history. We incarcerated Japanese Americans in the state of Colorado, in Camp Amache. You could say that's part of our heritage; I would say it's a shameful part of our heritage and not something we should repeat.
+- Local school districts should be free to adapt their academic programs in ways appropriate for their community, but we cannot allow mindless budget shortfalls to force wrongheaded changes to our children's education.
+- I say we have not even had the decency to maintain the assets that our parents and grandparents built for us - our roads, our bridges, our wastewater systems, our sewer systems; by the way, those weren't Bolsheviks, those weren't socialists that built those things for us - much less build the infrastructure we need for the 21st century.
+- There is simply no way we are going to make progress on the enormous challenges we face without making hard choices. It's impossible.
+- Fixing our schools must begin with reforming the way we attract talent to teaching.
+- Our goal in Washington must not be to impose but to expect and assist: Expect the most of educators and students and assist them as they work together to meet those expectations. Rather than tightening our grip, we should set clear, ambitious goals and support innovative local efforts to achieve them.
+- Competitive programs such as Race to the Top provide incentives for communities to develop new solutions for old problems. Because of Race to the Top, states have raised their standards and committed to fixing schools that have persistently failed students.
+- I think the inhabitants of the past are fighting hard to keep the rents they acquired in the 20th century.
+- Listen, I, I did vote - I did cast a vote for health care, and I also said that I thought the process was horrible. The status quo before we passed health care was also horrible.
+- Facebook is by far the largest of these social networking sites, and starting with its ill-fated Beacon service, privacy concerns have more than once been raised about how the ubiquitous social networking site handles its user data.
+- As an urban school superintendent, I learned that hiring, training, and investing in professionals to support our children's social and emotional development, meeting academic expectations for students with special needs, and finding more minutes of instruction in the week, not fewer, mattered.
+- Before I was in the Senate, I was a superintendent of the Denver Public Schools, and before that, I was in business.
+- I think one of the things that we are facing right now is that we've stopped listening to each other in our politics.
+- We've got a lot of work to do: not only on education, but on the economy, on our tax code, and on reducing our crushing debt.
+- Teacher compensation isn't the only factor in cultivating great teaching. Other important priorities include changing how we measure student performance, providing more flexibility to teacher-preparation programs, and improving how we train and support principals.
+- If we, as individuals, want to keep control of our democracy - rather than have a government paid for by corporate interest checks - then we have to fight back now and make sure our system reflects the belief that people, not corporations, control our democracy.
+- We don't have to settle for disgraceful politics. We don't have to settle for being as terrible as Donald Trump.
+- We need to work with the other countries in the hemisphere so that they also have refugee policies in place so that people have a place to go and can escape the violence in El Salvador, Honduras, and Guatemala.
+- In my experience, durable progress must be fashioned out of more than obscured truth, slogans, and empty promises. You do it through hard work. By going everywhere. Listening to everyone. Being honest with people. Being ambitious without indulging in magical thinking.
+- While NCLB drove important progress on transparency and data disaggregation, I think it's clear that the status quo in public education is not working for our kids or our country.
+- Teaching is hard. It takes years to master the technically demanding work and a lot of effort to do that work well.
+- I believe there's not a harder job in the world than being a teacher, and there isn't a job with a more direct impact on the performance of our students.
+- To get enough of the teachers we need, teaching has to be a great job where talented people are supported and rewarded.
+- We have managed to acquire $13 trillion of debt on our balance sheet. In my view we have nothing to show for it. We haven't invested in our roads, our bridges, our waste-water systems, our sewer systems. We haven't even maintained the assets that our parents and grandparents built for us.
+- If teaching isn't rewarding and challenging, we're going to continue to lose our best teachers to work in other fields.
+- Demagoguery is not unknown in American history.
+- A lot of people in America don't know me, and that's something I have to overcome.
+- Study after study affirms what I saw in the classroom every day as superintendent of Denver Public Schools: Nothing makes a bigger difference for student learning than great teaching.
+- I am most interested in the outcomes at schools and school districts and ensuring that all kids are prepared for college and a career in the 21st-century job market.
+- My time at the Denver Public Schools taught me there is no harder, or more important, job than being a teacher.
+- To me, the burden of proof isn't on people looking for ways to improve our schools; it's on people who want to keep things the same. Our current system isn't working, and too many kids are being left behind.
+- The Freedom Caucus represents a pessimistic, divisive, and gerrymandered view of our nation. If America is to make progress, we must step forward from this form of politics - not just because we disagree with this or that policy but because it is fundamentally undemocratic and tyrannical.
+- Eviction often leads to a disruption in critical services like Medicaid and nutrition assistance when families need them most.
+- To protect our country's economic future and the health and well being of all Americans, we must find a way to rein in out-of-control costs, provide quality, affordable health care choices to all, and make outrageous insurance industry abuses a thing of the past.
+- Social networking websites like Facebook, Twitter, and Tumblr provide an unparalleled ability for people to stay connected in new and unique ways.
+- A student who has excelled in the classroom should have the opportunity to attend college and become a productive, taxpaying member of society.
+- In my mind, there is no reason public school reform should be a partisan issue.
+- We are strong country with weak leadership.
+- Our ability to compete for the jobs of tomorrow depends, above all, on our capacity to educate children today.
+- When I was superintendent of Denver Public Schools, I saw the potential of some of our best and brightest students cut short, punished for the actions of others - kids who had grown up and done well in our school system, and kids who know no other home but America. This is unacceptable.
+- Electoral victory is not an end in itself. It is intended to set in motion a pluralist process to resolve our disputes and move the country forward.
+- We have to end political gerrymandering in this country. We have to end it.
+- I have a very clear idea of what the Freedom Caucus has done to this country by terrorizing both the Republican Party and the America people.
+- I think the worst vote I ever cast was a vote to change the rules to lower the threshold for approval of judicial nominations and executive administration nominations.
+- Coloradans want to take the long view and invest in our state's future. We know that to do this, we cannot neglect our schools.
+- Anyone who thinks they're a progressive should be interested in making progress.
+- We don't have to settle for Freedom Caucus tactics - those guys are tyrants. We don't have to accept that. In fact, we can't and have this country be what this country really can be.
+- I'm not a career politician, so the ways of Washington may be a little obscure to me.
+- Improving some of the rules under which the Senate functions can begin to replace some of the bad habits Washington has developed with better ones.
+- As we all become increasingly reliant on social networking websites and new technologies to stay connected, it's important to remain cognizant of how private personal information and data is handled.
+- I probably would have voted against Justice Thomas, and, and, and I've been disappointed by what Justice Roberts has done.
+- I've focused on making sure we have talented teachers and principals in our schools through proposals like the GREAT Teachers and Principals Act and the Presidential Teachers Corps.

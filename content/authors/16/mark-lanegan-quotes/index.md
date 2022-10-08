@@ -1,0 +1,106 @@
++++
+author = "Mark Lanegan"
+title = "Mark Lanegan Quotes"
+quotes_len = "100"
+description = "the best 100 Mark Lanegan Quotes"
++++
+- I'm about creating a body of work and moving on to the next thing.
+- The Trees was four complete nuts. We didn't have a damn thing in common except insanity. So we fought a lot. And we had two brothers - who fought like brothers.
+- I don't really take time off between records; it's a compulsion for me.
+- I worked as a breakfast cook in a lot of different restaurants.
+- All the guys I know that play guitar are also secretly drummers and vice versa.
+- I can't say what people use the experience of listening to songs for, but I would never tell somebody what it is supposed to mean. That defeats the purpose of making it. Hopefully, whoever connects with it connects with it in their own way, and it can mean whatever it is supposed to mean to them.
+- Everybody has unhappiness.
+- Soundgarden are good friends of mine.
+- I was listening to punk rock in the '70s as a young kid, but all by myself; I never met anyone that listened to that kind of music. Just by chance, I was in detention, and one of the guys in the class was Van Conner... I started talking to him and found out that we listened to some of the same music.
+- Usually, I write the music and am involved in the production.
+- I have to have animals. They really make life worth living, and my world actually revolves around them. They know exactly when it's time to get up, exactly when they're supposed to get their food, and they let you know. Mine are right there in my face, first thing every morning.
+- When I'm listening to music for pleasure, I'm gonna listen to someone else's music.
+- Have I tried a black pudding? I'll eat anything - I'm not finicky - but that's not to say it takes any courage to eat black puddings because I find them delicious.
+- As far as I remember, I don't have any warrants out for my arrest anymore. I can travel without fear.
+- You just realize that you don't know everything there is to know. The older I get, the less I know, and that's a good thing. When I was young, I knew everything, and everything wasn't necessarily good.
+- I've never been in charge. I'm just a lazy bastard.
+- 'Gargoyle' was inching towards a more accessible record.
+- It's hard not to respect Kobe Bryant's game: He's one of the all-time greats.
+- I played 'Angry Birds' and tried to see what the hoopla was about.
+- Talking about myself is difficult for me. It's anti my true nature.
+- The guys who spend their time brooding in their younger years either lighten up or go away.
+- I grew up in a small, rural community, where my extended family were mountain-folk type people, and some were very religious.
+- I try and treat songwriting as something that I have to practise every day.
+- Me and Kurt Cobain were both listening to a bunch of Lead Belly and diggin' it. We thought, 'Let's do an EP of all Lead Belly songs.' We did a couple, and both of us were like, 'Nah, this is a bad concept.' We set it aside.
+- If Brian Eno wanted to make a record, I'd definitely clear some time in my calendar. John Cale, too. Those guys consistently make great records, always doing their own thing.
+- If I have one hero in music, it's John Cale.
+- Hanging out with the Trees is like hanging out with your family, and I hardly ever see my family.
+- I didn't always enjoy playing music with the Trees.
+- It was really difficult to sing; nobody showed me how to do it. I remember early Screaming Trees shows in the '80s when I'd walk away with a pounding headache from trying to sing way out of my range.
+- One of my very favourite poets was a Massachusetts poet named Robert Lowell.
+- I don't think I've ever gotten to the point where I sent out Christmas cards! But if I did, they would have to feature my pets, that's for sure.
+- I would only tell a story if I was being mercilessly heckled. That's the only time I would talk to the audience.
+- I've had songs that were spread out over a number of years, and I've written some in ten minutes, and everything in between.
+- I enjoy my own songs, but I can never love them in the way that I can love someone else's song.
+- Usually I get asked to do stuff that's cool, and if I ever can't do something, it's usually, because of logistics, I don't have the time for it. Rarely do I get ask to do something that I'd rather not do. I usually do it if I feel that it's something I can do.
+- I grew up a Seattle Sonics fan, in Washington state.
+- I'm not a human interest story, man. I'm just a musician trying to make some small records and be happy, be peaceful.
+- When I was in high school, I took French. I barely passed and didn't learn anything at all. There was a joke among me and my friends in the class that nothing sounded more ridiculous than a guy with a country accent speaking French.
+- I wasn't the easiest guy to work with when I was younger.
+- I enjoy watching basketball, yeah.
+- We've made records for years on a shoestring.
+- Usually I write on guitar.
+- I used to throw a lot of stuff against the wall, just to see what ended up sticking; now I'm pretty much using everything that I create for a record.
+- I just see what's in front of me. That's what I'm happy with.
+- I like Jamal Crawford. He's from Seattle, went to high school there, lived up there. He's fantastic.
+- In 1997, I thought I'd never make another record.
+- It's always fun to play songs by somebody else.
+- Collaboration is part of what keeps me interested in music.
+- I'm open to life.
+- I guess if you live long enough, anything can happen.
+- When I do something, I do it for the specified amount of time, and then I do something else.
+- I'm not really interested in video games.
+- Nothing seems too weird to me anymore.
+- When I was a kid, I got caught shoplifting by a store security guard in Ellensburg. The next time I saw that store guard was when I got thrown in jail again - this time for not paying court fees. The guy happened to be in jail, too, right next to me. That's what Eastern Washington is like - you never get too far away from anybody.
+- Whether I live there again or not, Seattle will always be my home.
+- I just sort of do what comes natural.
+- I hope I'm learning until I'm dead.
+- I enjoy working on whatever I'm working on.
+- When I was a kid in the late '60s and early '70s, my parents and their friends would play the records of Andy Williams, Dean Martin, Frank Sinatra, and Perry Como, music with string arrangements and men singing songs that sounded sad whether they were or not.
+- Most of the music I'm into wasn't popular when it was being made.
+- It's satisfying and gratifying to make your own music, but I personally don't get the same enjoyment out of the music that I make as I do from somebody else's music that I like.
+- I've always been haunted by the devastating voice and beautiful songs of Tim Hardin. I can't imagine anyone hearing him and not feeling the same.
+- Even when I'm making my own solo records, I'm collaborating with people. It keeps things interesting for me.
+- It's a lot easier to let someone else be Caesar.
+- Nobody likes to believe that they need anybody's help in anything, and the smarter you are - and I'm not smart - or the tougher you are - and at times I thought I was pretty tough - the more trouble you have.
+- The first music I heard that made me put away my comic books and make music was original punk.
+- I wanted 'Imitations' to be a fully realized record from start to finish, with a cohesive sound and a sequence that took you from one song to the other, just like I would with a record of original stuff.
+- I like to fool myself into thinking that whatever happens is OK.
+- When I think of a hit, I think of Madonna.
+- I was in trouble with the law from when I was real young.
+- I think I've just matured over the years.
+- I'm not much of a partyer.
+- I have a high tolerance for pain.
+- I was excited when the Afghan Whigs got back together.
+- It took me quite a while to find my natural voice. I'm glad I stuck around long enough to see that happen.
+- The Warriors team with Baron Davis, Matt Barnes, Stephen Jackson - that was an incredible team.
+- There's lots of singers that I love; I don't know if I used any of them as role models. Maybe I would have been a better singer when I started if I had.
+- In 2005, I worked as a scenic painter for a while when I was taking a break from music.
+- Naturally, if I'm singing over really loud music, my approach is gonna be different than if I'm singing over some quiet acoustic music.
+- I'd wear nice clothes and brush my teeth more often if I cared about what people thought.
+- When they're listening to your music all the time, you become part of their life, and some people get obsessed.
+- It isn't important to me how people respond to my work.
+- Yeah, well, I guess Andy Williams would be considered by some to be schmaltzy, but to me, he's one of the greatest singers of all time. Just absolutely amazing. And if anyone doesn't believe me, just YouTube him. He's just one of a kind.
+- I was never super comfortable playing music in front of people anyway. Now I enjoy it, but it wasn't the easiest thing to get past.
+- I've learned that sticking around counts for something.
+- In real life, I'm far more lighthearted than I come across on the records.
+- My favorite record, growing up, was 'Songs of the Haunted House,' a Disney record that was just wackiness. It's still one of my favorites, actually.
+- You can only really sing about what you know; at least, I can.
+- No one would hang out with me if I didn't have music to make.
+- I was in Screaming Trees - I wasn't really interested in playing quiet music in a live setting. But I would get asked quite often to do a show or open for somebody, and I always said no. Finally, I was asked if I would open for Johnny Cash, and Johnny Cash was one of my dad's favorite heroes. So that's why I started doing solo shows.
+- What do I look for in a collaborator? Pretty much anyone who asks me to do something.
+- I enjoy the songs that I write, but I can never enjoy them the same way as other peoples' songs.
+- I had a lot of jobs when I was younger. Where I grew up, there was a lot of agricultural jobs, so I worked on a lot of farms. I worked in the pea fields, harvesting peas.
+- I've always said everything happens the way it's supposed to.
+- Doing something that's physical but not necessarily mentally taxing - for me, it frees me up creatively.
+- I think there's something therapeutic in singing about anything, whether it's what you've written or whether it's someone else's song. I find both satisfying in different ways.
+- I'm trying to learn how to read. I have a tutor out on the road. It is great.
+- I prefer to stay in the here and now and move forward.
+- I think when people hear your music, sometimes they get deeply attached to it and think they know something about you, that you're kindred spirits or something.
+- It's a different kind of satisfaction, different kind of enjoyment than making your own songs, to remake someone else's song that you really like.

@@ -1,0 +1,105 @@
++++
+author = "Jessica Simpson"
+title = "Jessica Simpson Quotes"
+quotes_len = "99"
+description = "the best 99 Jessica Simpson Quotes"
++++
+- People always say that pregnant women have a glow. And I say it's because you're sweating to death.
+- I think that freshness and that innocence is something that is missing from a lot of female singers. I'm certainly not denying that I'm young, but I'm not fluff.
+- Normally, I'm so shy.
+- To be a mentor for up-and-coming artists is right up my alley.
+- When you grow up in the music industry, trying to be Britney Spears because that's what sells records and then you realize, 'All I have to do is be myself? I should have thought of that a long time ago,' it feels good to have success come from what's actually inside of you.
+- I'm actually a good cook.
+- I'm never going to be a woman who doesn't work.
+- I definitely don't Google my name.
+- Please remember, no matter what you go through in life, somebody else might have it harder.
+- I don't regret anything I've gone through.
+- I hate record labels. They think they know everything. I want to hear them try to sing it.
+- A marriage doesn't have to be perfect, but you can be perfect for each other.
+- It's important to fall in love with someone you don't want to change.
+- To be honest, bread constipates me, and I like to have my daily bowel movement.
+- I try not to read blogs. The comments are extremely harsh.
+- I think it's ironic that I fell in love with a man I thought I would never be interested in because he's an athlete. I was always, 'An athlete? Heck no.'
+- I think that having a public career is a bargain with the devil.
+- I'm interested in learning more about myself and what I value in myself and letting that be the beautiful part of me, rather than putting on the makeup or wearing the right designer.
+- I'm such a blonde. It just doesn't make sense for me to have dark hair.
+- I'm spiritual.
+- I want to do the romantic comedies. You know, the stuff that Meg Ryan and Julia Roberts or Reese Witherspoon would choose, of course.
+- I think Angelina Jolie has done amazing, amazing things, and the international adoption rate just since her has skyrocketed. It's unbelievable.
+- I adore John Mayer. I don't see how anything that surrounds John could be negative.
+- I really don't look at myself as just one thing. I'm kind of scattered and like to have my hands in a lot of different projects. It makes me who I am.
+- Am I eating chicken or tuna?
+- You don't want to marry somebody who's just like you.
+- Well, for me, I grew up very Southern Baptist, and I definitely lived in my bubble. You know, I lived in my bubble that was in my church.
+- I'm a naughty sweetheart.
+- I want to be as healthy as I can because I'm a mom now.
+- There are certain things that make me relax, like writing my journal. That's the only time that I'm relaxing. It's the only time I really get to examine myself.
+- If I'm going for advice for anything in my life, I go straight to my father because he has the answers.
+- I can talk to my dad like he's my manager, and put 'Dad' on the back burner. We've been doing it since I was 13.
+- I have a huge rib cage, which is why I can hold a note out until I'm blue in the face... because I have such a big lung capacity.
+- I collect lucky pennies that I find on the ground. I keep them in a Ziploc bag.
+- As a woman who has some sort of power, you have to have a man that can take that. It's hard to find those men.
+- I really want to be just a singer-songwriter. That's who I am.
+- Motherhood is a dream. It really is absolutely amazing.
+- I'm big-busted... I can't always wear the cutest bras, and it makes me so mad.
+- All I have to say is: Jessica Simpson is the most beautiful woman on the planet!
+- Is that weird, taking my Louis Vuitton bag camping?
+- You're never going to look perfect to yourself even if you might look perfect to somebody else.
+- I think anything sounds good with a Southern accent.
+- You change with the guys you date.
+- I've come to realize that the more I censor myself, the less people relate to me.
+- Twenty-three is old. It's almost 25, which is like almost mid-20s.
+- The point of launching a maternity line, for me, was to do something different.
+- I don't ever really feel that wearing my wedding ring is what determines me being married or not.
+- I don't want to look like Daisy Duke every day. I don't want to wear a bathing suit every day.
+- I respect knowledge of the psyche. I would be a therapist if I weren't an entertainer.
+- Is this chicken, what I have, or is this fish? I know it's tuna, but it says 'Chicken of the Sea.'
+- I feel like everybody's always out to get me, and that's a weird feeling.
+- I can't deprive myself of things because then I obsess about it and end up eating.
+- Through a huge duration of my life, someone has always picked up after me. And when you're on your own and you're trying to be independent, it's definitely different.
+- I love my curves.
+- When it comes to other celebrity brands, I think a lot of people do a great job, but it can't be all about them. Everybody doesn't want to just look like the celebrity, because they can't. They just want one element of that style.
+- It's important for country fans to know that I'm not just trying to come in and take their money for a CD.
+- I have so much respect for my mom and all the women across the world.
+- I'm very ditsy and a klutz. I've been known to walk on stage and fall over my dress.
+- I want to be a role model.
+- When I walk through an airport and people go, 'You're not fat!' I'm like, 'Thanks. That's great. Good to know I'm not fat today! Thank you!'
+- I would love for the time to come where somebody can talk about me and not have to talk about Britney and Christina in the same sentence.
+- I have a lot of really good handlers.
+- I always wonder if what I'm wearing will be something that people would compliment, or want to wear. I don't ever get ready just for myself, ever.
+- It's been hard, but I've finally come to the realization that it's okay to not be perfect.
+- I don't even have a type! I don't have a physical type. I have an emotional type.
+- I never thought I'd be some fashion mogul!
+- It really is about the heart of a woman that makes her beautiful.
+- I love to be comfortable, but I also love to play up the glamour.
+- I have a flirtatious personality.
+- I have to go... drop some kids in the pool.
+- My style icon really for my whole life has been my mother.
+- I never knew how protective I was until I had my own child. I'm already thinking about intruders coming into the house and what our escape route would be.
+- Image is the most important thing about someone's career and longevity.
+- I'm a woman who wants her chocolate.
+- There's tons of little tricks that that go into making the perfect shoe, but I think color, comfort is really important and different sizes of heels.
+- Weight Watchers is not intimidating. It's not a diet. It's a lifestyle.
+- Both of my grandmothers were diagnosed with breast cancer - one is a survivor and one passed away.
+- Music will always be my No. 1 passion, but I don't have to be doing it professionally. It's not really about that for me anymore. I feel like I don't have to look at it as a career. I can just rest in it and just be.
+- Well I think any designer that can understand what people need to be wearing right now is the biggest and best step that you can take. Instead of putting your ego first, you put the buyer first. And I think that that's a really important thing just to know what the consumer is wanting to wear.
+- My family is my life, and I'll never lose that.
+- There's nothing worse than being disappointed in somebody.
+- I love religion.
+- I'm see-through. And I'm the worst liar of all time.
+- I think there's a difference between ditzy and dumb. Dumb is just not knowing. Ditzy is having the courage to ask!
+- I'm not that kind of publicity, attention-grabber type of artist.
+- It's not fair that women look in the mirror and feel disgust because of what society has made them believe.
+- I made sure no butt cheek hung out. You know, the original Daisy, Catherine Bach's shorts were shorter than mine.
+- I am the first person to go to Barnes & Noble and buy the new self-help book. I like to fill out the surveys, then I get my friends' opinions on how I answered to see if I was being honest with myself or not.
+- I am not a person who tries on in the stores. It drives me crazy. So I buy and take back if I don't like something. I really don't enjoy being in the dressing room. I rather just try it on in my house.
+- I love watching people's dreams come true.
+- When I signed a record deal, I was always told by execs I needed to be like everybody else, that I had to show my midriff, things that would take away from who I want to be as an artist.
+- I don't ever wanna come across too intimidating, so as long as I look like you can come up and give me a hug, that's good.
+- The great thing about Dallas is there's no paparazzi.
+- At school my boobs were bigger than all my friends' and I was afraid to show them. Now, I feel they make my outfits look better. They're like an accessory.
+- My dad takes care of me as a manager and as a dad. That's his job, you know, to take care of me. He has my best interests at heart.
+- I'm very old fashioned.
+- Life is definitely always about expanding. That's how we grow.
+- At 16, every boyfriend I had I was going to marry.
+- I love that I can dream about paisley, and then two months later, someone's wearing it. I'm basically styling America.

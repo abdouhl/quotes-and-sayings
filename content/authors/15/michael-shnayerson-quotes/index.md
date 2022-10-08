@@ -1,0 +1,16 @@
++++
+author = "Michael Shnayerson"
+title = "Michael Shnayerson Quotes"
+quotes_len = "10"
+description = "the best 10 Michael Shnayerson Quotes"
++++
+- For rather particular reasons, the interior-design industry moved more quickly than fashion to cope with AIDS. One reason is that it is made up of generally smaller businesses than fashion. The human losses were more quickly noticed.
+- The story of mountaintop mining - why it happens, and what its consequences are - is still new to most Americans. They have no idea that their country's physical legacy - the purple mountain majesties that are America - is being destroyed at the rate of several ridgetops a week, by three million pounds of explosives every day.
+- There's one place, and one place only, to see polar bears in America. You have to travel to the country's northernmost point, the very apex of Alaska's North Slope, to the permafrost shores that stretch out on either side from the Inupiat town of Kaktovik.
+- Directly after Rock Hudson's death came the fears that gay writers and actors and directors would be denied jobs; who knew if they would live long enough to finish a feature film or television series? And would the unions force directors to give blood tests and ban actors who tested positive?
+- For an acquisitive Wall Streeter, the money saved by choosing a practical car can be put toward the cost of some pricier means of mobility - like a plane.
+- In the hierarchy of public lands, national parks by law have been above the rest: America's most special places, where natural beauty and all its attendant pleasures - quiet waters, the scents of fir and balsam, the hoot of an owl, and the dark of a night sky unsullied by city lights - are sacrosanct.
+- If the '80s were about Christian Lacroix ball gowns, the '90s give us wealthy women who either go to work or pretend to, and want office suits or slip dresses they can wear to dinner parties - ergo, the minimalism of Prada, Jil Sander, and others. But this is minimalism that comes at maximal prices.
+- The fashion industry is often charged with having kept its blinders on as one Seventh Avenue company after another lost employees to AIDS. Consumers, it was feared, would shun the racks of designers whose names were associated with the disease. And to stand up against AIDS would, in many minds, confirm the business's stereotypical image.
+- Forgers can start with the same photographic images Warhol did, and sometimes knock off silkscreens only an expert can distinguish from the originals.
+- In the Eisenhower era, when earnings over $400,000 were subject to 91 percent taxes and the world was a smaller place, you could count the truly wealthy on one hand: Getty, Dupont, Mellon, Rockefeller, though even those fortunes were being dispersed to children as the old robber barons died off.

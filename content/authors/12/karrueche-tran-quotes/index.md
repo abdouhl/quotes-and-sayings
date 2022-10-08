@@ -1,0 +1,104 @@
++++
+author = "Karrueche Tran"
+title = "Karrueche Tran Quotes"
+quotes_len = "98"
+description = "the best 98 Karrueche Tran Quotes"
++++
+- I think it's awesome to have social media as a platform to progress and build. Of course, using it in the most positive and genuine way.
+- Longevity in friendship is very important and one of the keys to the foundation of a happy life.
+- I get really puffy eyes, so I'm all about a good puffy-eye mask.
+- If you like it, wear it.
+- It benefits us all to motivate others.
+- It's easy to just be rude or just be nasty. I think it's actually harder for people to say something positive; it's interesting.
+- I stopped eating carbs and red meat for a month and a half, and I was like, 'Oh, no, I lost my butt!' I have to eat potatoes and rice and meat to bulk up. But I do try not to eat too much fast food.
+- I don't like to see men's toes - especially if they aren't groomed.
+- I work out three times a week with a trainer.
+- I hate the treadmill.
+- People only see you in blogs, and they think they know everything about your life.
+- I try to cook as much as possible, but I love to eat out.
+- Sometimes I hold back from tweeting certain things. Sometimes you're emotional, and you want to tweet a lyric or whatever it may be. I can't do that because if I do, it's, 'Oh, this means this and that she must be going through this...' It's like, what the hell?
+- I think white socks are best with dope kicks, gives a nice clean look to match. Printed socks are okay but sometimes too much.
+- In between acting, I'm still going to be doing modeling and different ventures.
+- Wanting to be better as an actor, model, and person in general motivates me to push myself.
+- When you love yourself and are able to indulge in yourself, and you're grounded in your 'yes' or 'no,' it's nothing to ask a guy on a date.
+- First and foremost, it's important to love yourself.
+- I never expected to become an actor at all. You can do anything you put your mind to it!
+- Diets don't really work for me.
+- Life motivates me.
+- I'm a workaholic, but I also like to vacation.
+- I just want women to come and learn from each other.
+- I lived in L.A., and the possibility out there is endless. I could've done reality TV! It was offered to me plenty of times. But that just wasn't where my heart was. If I wanted quick fame or quick money, I could've taken that route, but it just wasn't settling right with me.
+- We all have our struggles; we have our things that we grow through.
+- I went to community college for graphic design, and I loved it, but I wasn't into the school thing, so that didn't work out.
+- I see the good in people, and I believe in forgiveness.
+- One day, I just hit a point where I was like, 'What am I going to do with my life, with my career?' I have all of these little things going on, but what am I going to really do? And for me, I saw longevity in acting.
+- I'm a mature person.
+- If I crave a burger, I'm like, 'Straight to In-N-Out.'
+- I have so much fun and I'm a better person when I'm happy.
+- I think with 'Claws,' it came at such a perfect time where I really started to focus and to take myself seriously.
+- I love using Mario Badescu Facial Spray while traveling. Sometimes the air circulation on the plane makes my face dry, so it keeps me refreshed and hydrated.
+- I really work on my abs. I'll do crunches, and I work on my butt.
+- I'm not about the drama.
+- We just dated the same guy, and that's kind of what it is. It's always a competition thing, and they compare us, but she is Rihanna. She's a pop star, and she's beautiful - she makes great music - and I'm just me, and I'm growing and working into myself. You can't really compare us. We're two completely different girls.
+- I was every other kid in elementary school. I was eating packaged burritos for lunch... and pizzas - it's not the worst, but not the best.
+- It's a great feeling to have genuine friends who I have known since high school. It's kind of rare, actually, and I love it.
+- Every woman has different needs and wants.
+- I hit a brick wall one day, and I spent a lot of time by myself learning about me and who I am and what I want and don't want.
+- I've grown and I've matured, and I kind of like that.
+- I hate sequins!
+- To have produced a product where I had total creative control and see it flourish is like watching a baby grow.
+- It's a huge turnoff when men have teeth that look like they haven't been brushed in days. Also, bad breath is awful.
+- I loveeeeee a man in a nice pair of sweatpants or even a matching sweat outfit.
+- I really like working with someone one-on-one - my trainer kicks my butt!
+- I can't go anywhere without Chapstick - the store, the gym, traveling. I'm the one person that's, like, putting it on every two seconds.
+- I would've never tried acting. I was at this point in my life where I was like, 'I have this following; what am I gonna do?' I could've done reality TV, but I didn't see any longevity in that. And my manager was like, 'Have you ever acted before?' And I was like, 'No... but I'll try it.' And so I tried it, and I liked it.
+- I do hot oil treatments at home while I'm cleaning my house or whatever.
+- It's so hard to diet because I love food.
+- My main message is for people to live your life through love. That doesn't necessarily mean through a relationship. It could be your friends, your family, your workplace, even just walking down the street and smiling, saying 'Hi!' Embracing positivity!
+- I kind of dated a woman-ish, but there's just something about a man that's just masculine, and just there's things that women don't have that men do.
+- I think marriage scares a lot of men.
+- After I wake up, I take a shower, and that's when I wash my face.
+- I see a lot of girls whose concealer is way too light, or their foundation is way too dark, or I can see when their neck and face color don't match. I think it's very important to find the right foundation and concealers and the right brands that really complement your skin.
+- I want to motivate people to be natural and to embrace their body and who they are.
+- I just want to figure out me and grow within myself.
+- One time, I went to an audition, and I stated my name, and the lady was like, 'Oh, that name sounds really familiar. I've seen you on TMZ.' Her first perception of me was what she had heard.
+- Regardless of what you're put through or what is going on in your life, keep a positive spirit. That will help you get through it.
+- I'm a homebody.
+- I look at myself, I compare myself to other people, but then I make myself humble. You know what? God created you this way. You're you.
+- I'm Vietnamese and Chinese, and I am the year of the dragon in the Chinese zodiac.
+- Honestly, all I want is happiness.
+- Even going back to the haters, it's messed up what they say, but that's made me stronger, and it's built me into who I am today, and I am completely fine with that.
+- I love the light-brown shadow I made with Colourpop. It's a nice matte and neutral color that gives a bit of definition on the lids.
+- In elementary school, I identified more with my Asian side. I had a lot of Korean friends, and then, once middle school hit, it was a little more diverse.
+- I've learned to find happiness within myself.
+- I do tons of squats, jump squats, and fire hydrants.
+- I walk out the house, and there's paparazzi. There's certain things I can't do if I wanted to date or go on a date. It's like, I have to worry about people taking pictures, and it's crazy.
+- I try my best to just ignore the negativity. Which is hard for me because it's a lot to deal with.
+- I wash my face, steam it, and put on a mask right after because the steam opens up your pores. I put the mask on for ten minutes, wash it off, and then melt an ice cube all over my face because that tightens your pores. Then if it's nighttime, I do a night cream or serum or an oil, something to keep your skin moisturized.
+- I remember during my middle and high school days, I would only wear eyeliner, and I had to wear it every day, even if I was just going to the store.
+- Reality TV - I'm not trying to dog it, everybody has their own thing, you know - but I didn't see it for me.
+- I'm fortunate enough to take care of my family and provide for them, and that motivates me to keep going.
+- I think everyone should be their own individualized person.
+- My father is gay.
+- If one person did one thing to be successful, that doesn't necessarily mean that's your story, too.
+- I've been through a lot, and I've been called a lot of names.
+- I like to wear clothes that look the best on my body, which is why I wear a lot of crop tops and high waisted bottoms - it gives me more shape and makes me look taller.
+- I love my brows, but I have to fill them in to look a certain way. And with the eyebrow tint, I don't have to fill them in as much.
+- I'm from L.A. So I move around how I want to move, you know what I'm saying?
+- I'm not the perfect person. I'm not the most happy person. I get angry, and I get mad sometimes, but I try my best to control my thoughts. Because that flows throughout your body.
+- I've always been into volunteer work and charity work.
+- In the morning, I might have fruit or maybe oatmeal at home, or a bagel with coffee.
+- I've discovered myself a little more, personality-wise just being put through certain situations, whether being in the spotlight, heartbreak, friends coming and going, family.
+- Some days I'll put on a face mask for 30 minutes, and then I'll wash it off in the shower.
+- Our hair is forever. We have to take care of it and maintain it.
+- I don't like drama, period.
+- I want to stress to people to be themselves instead of trying to be like others.
+- I feel like all guys are the same.
+- I've had scenes where I had to cry, and by the time I've cried for the 20th time, I'm exhausted.
+- I have a love, hate relationship with social media. I love it, because it's built a platform for many people and many business... However, there is a dark side, which is negative and hateful.
+- I love intense, deep-tissue massages. Any kind of foot massage, body massage, I'm into it.
+- I'm very traditional. I want to have kids. I want to be - not a stay-at-home mom, but to be able to take care of my kids and have a family and cook. A white picket fence and a dog.
+- I always wash my face at night, even if I have to use face wipes.
+- I can't promote fitness tea for the rest of my life.
+- There are things that go public, and everything that comes out is not the truth.
+- I love social media. There are a lot of benefits, and it gives us a platform for what we want to become, but there's always such a negative tone to it. You see a picture, and the first thing you see or think is a negative comment.

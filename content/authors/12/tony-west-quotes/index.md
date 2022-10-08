@@ -1,0 +1,29 @@
++++
+author = "Tony West"
+title = "Tony West Quotes"
+quotes_len = "23"
+description = "the best 23 Tony West Quotes"
++++
+- Contrary to some of the rhetoric we've heard, AB5 does not automatically reclassify any ride-share drivers from independent contractors to employees. AB5 does not provide drivers with benefits, nor does it give drivers the right to organize.
+- I fell in love with this idea that you could press a button and an SUV would show up. That idea of bringing mobility to places where it hadn't been an easy option - that was a pretty compelling mission. It was a huge, huge challenge.
+- I didn't go to law school wanting to be a lawyer.
+- You never want to make big decisions when you are emotionally charged.
+- Drivers' work is outside the usual course of Uber's business, which is serving as a technology platform for several different types of digital marketplace.
+- I was fortunate enough to have this career that spanned the public and private sectors so I thought I was well-prepared to be able to take on some of the challenges that Uber presented.
+- I was always more interested in public service. What I discovered is you could practice law and be a public servant.
+- Uber survives only if people trust us. You have to trust us with your data. You have to trust us with your safety or the safety of your loved ones. And we have to earn that trust every day in the way that we operate.
+- Indeed, there's scarcely a week that goes by where I don't deal with a significant, often controversial national security issue.
+- So I feel comfortable that Uber is a very safe mode of transportation.
+- I think we are, certainly in the Department of Justice, a fan of some of the data-mining techniques that will allow us to more effectively zero in on fraud.
+- Anything else that is not sexual assault or sexual harassment - those will be typically subject to arbitration. And Uber is like most other companies in that regard.
+- Is safety a business imperative? Yes. But is it also the right thing to do? Yes. And it's important for companies to increasingly find that by doing the right thing, they're fulfilling their business imperative.
+- Sexual harassment and gender discrimination is real, it's far more pervasive than I think people have been willing to acknowledge.
+- When you look at the trajectory of autonomous vehicles, I think you can look at the trajectory of other industries whether it's aviation, I think is a really good one to look at, and you'll see there's always an evolution as the technology gets better and better.
+- The only thing I'll say is when or whether Uber goes public, the most important thing is that the company continues to execute and execute at scale.
+- It's become sort of second nature whenever we get into a car to buckle up. It has to be second nature before you get into a car to ask, 'Hey, who are you here to pick up?'
+- I do think there is magic that made Uber possible, made that disruption possible, made that innovation possible, and was critical to its success. I believe you can still have the magic that underlies that and yet be a compliant company.
+- At the scale that Uber operates, we're going to see both the good and the bad that happens in society because we're operating so many trips every single day.
+- Courts are grappling with what it means to be 'part of' al Qaida or the Taliban - every case poses a unique challenge, involving individuals with a different degree and type of connection to these terrorist organizations.
+- And one of the unfortunate-but-sad truths is that sexual assault, sexual violence is far more prevalent in American society than a lot of people recognize.
+- One of the facts about sexual assault is that it is a very underreported offense, and there are a whole lot of reasons why individuals don't report to law enforcement. Uber shouldn't make that choice for survivors. Survivors should make that choice for themselves.
+- Silicon Valley has always been in my blood.

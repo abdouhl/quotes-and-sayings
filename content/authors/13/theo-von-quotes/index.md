@@ -1,0 +1,15 @@
++++
+author = "Theo Von"
+title = "Theo Von Quotes"
+quotes_len = "9"
+description = "the best 9 Theo Von Quotes"
++++
+- As soon as I was tall enough, my dad used to let me drive him 60 miles or 70 miles to work. That was pretty fun. My dad was really old. At the time, he was 82 years old. He said, 'Can you drive?' and I said 'Yes.' I guess I didn't find it to be that crazy.
+- They're just jokes, people. They can't all be funny.
+- If I could have anything, I would probably get an old Ford F-150 from the '70s.
+- Howie Mandel is my favorite. He's so friendly, and he's a family man. For a lot of celebrities, to keep a genuineness about them, I think, can be tough, but he really seems to work hard to do that.
+- When I see somebody in a Prius, sure, you drive a Prius and you get good gas mileage, but you probably feel like you drive a Prius.
+- I could have been a dancer. I just never got my shot at it.
+- I got booed off the stage one time. This was in a University in Florida. The students didn't know that I had to come back out 6 more times, because I was hosting the show. They just thought that I was a comedian opening the show.
+- In Louisiana, you can drive when you're 15 - you could get your driving permit. I remember, during driver's ed, I fell asleep at the wheel one day. I was tired. The guy shook me and switched and said he was getting into the driver's seat. I didn't fail, so I guess you can fall asleep occasionally. It's Louisiana.
+- The 'Road Rules' thing was just something that happened. It was never like when I was little I said, 'I want to be on a reality show when I grow up.' They didn't even have them then, you know?

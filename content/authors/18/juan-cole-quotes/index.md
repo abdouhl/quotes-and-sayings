@@ -1,0 +1,24 @@
++++
+author = "Juan Cole"
+title = "Juan Cole Quotes"
+quotes_len = "18"
+description = "the best 18 Juan Cole Quotes"
++++
+- Administering another country is always a very tricky proposition.
+- My main expertise is in the past, but if I have to extrapolate into the future, I would say: no good news any time soon and an obvious exit strategy is not apparent to me.
+- Public interest in most of the Middle East was slight at that time; the Arab-Israeli conflict was all that people were interested in and that was not my specialty.
+- Take the decision in early March to arrest Muqtada al-Sadr. It was made apparently without knowledge or understanding of the nature of his movement or how widespread it is.
+- I argued that the Bush administration, and the Coalition officials more recently, didn't understand Iraqi society. They thought it was a blank slate, that they could use Iraqis as guinea pigs.
+- I speak Urdu quite a lot, too, and I read a lot of Persian.
+- I think it's really unfortunate that academics have been sidelined in most important policy debates.
+- I think that there's been an unfortunate tendency for right wing think tanks to dominate these discussions. They often produce very shoddy studies and policy recommendations, which are nevertheless taken very seriously.
+- For instance, I was a little surprised that the Shiites didn't rise up against Saddam and the Baath party across most of the country when the Americans moved in March and April of 2003.
+- I don't accept the argument of people like David Horowitz that the government should impose some sort of predetermined political balance on academic research.
+- Did you know that they introduced the 15 percent flat tax on individual and corporate income in Iraq? Something that some politicians very much wanted to push in the United States without success but in Iraq they do it.
+- I believe that the American administration of Iraq has been arrogant, has pursued policies that are illegal in international law and has been ignorant and incompetent. I said this very forthrightly to the senators.
+- But September 11 marked a big change in the sense that the public was suddenly interested, and as a professor at a public university I felt a responsibility to respond to all of the inquiries about the Islamic world.
+- It's not proper for a professor to go before a class and promote one party or another. That's not academic scholarship.
+- Partisan politics has no place in the classroom.
+- I lived in the Muslim world for 10 years.
+- I also argued before the war that the administration was underestimating Arab nationalism and Iraqi nationalism, that it was not going to be as easy to rule Iraq as they thought.
+- An occupying power has no right to make significant alterations in the character of the occupied society, to change the laws all around, without a strong security reason and so forth.

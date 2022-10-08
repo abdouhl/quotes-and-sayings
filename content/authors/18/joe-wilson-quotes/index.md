@@ -1,0 +1,21 @@
++++
+author = "Joe Wilson"
+title = "Joe Wilson Quotes"
+quotes_len = "15"
+description = "the best 15 Joe Wilson Quotes"
++++
+- No longer is there a quest for the truth so much as there is this apparent need to present both sides of an issue even if one is nothing but lies and distortions.
+- Giving the same value to fiction as to fact in the interest of so-called fairness is to mislead the American people and the press has become party to that.
+- I am a gentleman. My natural inclination is to be on my best behavior.
+- We need to be discussing issues specifically to help the American people. And that would not include illegal aliens. These are people - I'm for immigration - legal immigration. I've been an immigration attorney. But people who have come to our country and violated laws, we should not be providing full health care services.
+- Nuclear weapons kill Americans - they don't kill Republicans or Democrats - they kill Americans.
+- We have the new greatest generation. We don't need as large a military due to the technology we have, the equipment we have outfitting our personnel. They really are storm troopers.
+- We need to be discussing issues specifically to help the American people. And that would not include illegal aliens.
+- The government serves the people - not vice-versa.
+- These are people - I'm for immigration - legal immigration. I've been an immigration attorney. But people who have come to our country and violated laws, we should not be providing full health care services.
+- When a government goes to war, particularly a democracy, it is the most solemn and awesome responsibility of our leaders - to decide to send our kids to go off and kill and die for us.
+- One must always keep one's government under control.
+- The war on Iraq was a disaster, clearly carried out under false pretences.
+- I am not a rabid partisan.
+- I think it's time for the people and the press, in particular, to be more vigilant about not giving equal weight to lies as they give the truth.
+- I have long felt that it is readers and viewers of conservative media who could benefit from a more balanced discussion of what is at stake in our policy and the actions of our government.

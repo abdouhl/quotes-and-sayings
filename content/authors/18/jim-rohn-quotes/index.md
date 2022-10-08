@@ -1,0 +1,75 @@
++++
+author = "Jim Rohn"
+title = "Jim Rohn Quotes"
+quotes_len = "69"
+description = "the best 69 Jim Rohn Quotes"
++++
+- Either you run the day or the day runs you.
+- Affirmation without discipline is the beginning of delusion.
+- The reason that fiction is more interesting than any other form of literature, to those who really like to study people, is that in fiction the author can really tell the truth without humiliating himself.
+- We get paid for bringing value to the market place.
+- Labor gives birth to ideas.
+- Time is more value than money. You can get more money, but you cannot get more time.
+- Failure is not a single, cataclysmic event. You don't fail overnight. Instead, failure is a few errors in judgement, repeated every day.
+- Happiness is not something you postpone for the future; it is something you design for the present.
+- Words do two major things: They provide food for the mind and create light for understanding and awareness.
+- Your philosophy determines whether you will go for the disciplines or continue the errors.
+- Without a sense of urgency, desire loses its value.
+- Better understated than overstated. Let people be surprised that it was more than you promised and easier than you said.
+- The major reason for setting a goal is for what it makes of you to accomplish it. What it makes of you will always be the far greater value than what you get.
+- The more you know the less you need to say.
+- There are only 3 colors, 10 digits, and 7 notes; its what we do with them that's important.
+- If you don't design your own life plan, chances are you'll fall into someone else's plan. And guess what they have planned for you? Not much.
+- If you don't like how things are, change it! You're not a tree.
+- It is the set of the sails, not the direction of the wind that determines which way we will go.
+- A good objective of leadership is to help those who are doing poorly to do well and to help those who are doing well to do even better.
+- Learning is the beginning of wealth. Learning is the beginning of health. Learning is the beginning of spirituality. Searching and learning is where the miracle process all begins.
+- Give whatever you are doing and whoever you are with the gift of your attention.
+- The book you don't read won't help.
+- Discipline is the bridge between goals and accomplishment.
+- Success is nothing more than a few simple disciplines, practiced every day.
+- Success is steady progress toward one's personal goals.
+- Character isn't something you were born with and can't change, like your fingerprints. It's something you weren't born with and must take responsibility for forming.
+- Take time to gather up the past so that you will be able to draw from your experience and invest them in the future.
+- Maturity is the ability to reap without apology and not complain when things don't go well.
+- The walls we build around us to keep sadness out also keeps out the joy.
+- Let others lead small lives, but not you. Let others argue over small things, but not you. Let others cry over small hurts, but not you. Let others leave their future in someone else's hands, but not you.
+- Success is neither magical nor mysterious. Success is the natural consequence of consistently applying the basic fundamentals.
+- Take advantage of every opportunity to practice your communication skills so that when important occasions arise, you will have the gift, the style, the sharpness, the clarity, and the emotions to affect other people.
+- Don't just read the easy stuff. You may be entertained by it, but you will never grow from it.
+- If you are not willing to risk the unusual, you will have to settle for the ordinary.
+- The worst thing one can do is not to try, to be aware of what one wants and not give in to it, to spend years in silent hurt wondering if something could have materialized - never knowing.
+- Failure is simply a few errors in judgment, repeated every day.
+- Don't bring your need to the marketplace, bring your skill. If you don't feel well, tell your doctor, but not the marketplace. If you need money, go to the bank, but not the marketplace.
+- Money is usually attracted, not pursued.
+- We must all suffer one of two things: the pain of discipline or the pain of regret or disappointment.
+- The major value in life is not what you get. The major value in life is what you become.
+- Things that I felt absolutely sure of but a few years ago, I do not believe now. This thought makes me see more clearly how foolish it would be to expect all men to agree with me.
+- It doesn't matter which side of the fence you get off on sometimes. What matters most is getting off. You cannot make progress without making decisions.
+- Whatever good things we build end up building us.
+- Success is not to be pursued; it is to be attracted by the person you become.
+- The few who do are the envy of the many who only watch.
+- Part of your heritage in this society is the opportunity to become financially independent.
+- To solve any problem, here are three questions to ask yourself: First, what could I do? Second, what could I read? And third, who could I ask?
+- Work harder on yourself than you do on your job.
+- Make measurable progress in reasonable time.
+- Take care of your body. It's the only place you have to live.
+- Asking is the beginning of receiving. Make sure you don't go to the ocean with a teaspoon. At least take a bucket so the kids won't laugh at you.
+- Formal education will make you a living; self-education will make you a fortune.
+- If you go to work on your goals, your goals will go to work on you. If you go to work on your plan, your plan will go to work on you. Whatever good things we build end up building us.
+- Miss a meal if you have to, but don't miss a book.
+- You don't get paid for the hour. You get paid for the value you bring to the hour.
+- A novel is never anything, but a philosophy put into images.
+- Whoever renders service to many puts himself in line for greatness - great wealth, great return, great satisfaction, great reputation, and great joy.
+- Ideas can be life-changing. Sometimes all you need to open the door is just one more good idea.
+- If someone is going down the wrong road, he doesn't need motivation to speed him up. What he needs is education to turn him around.
+- Some people plant in the spring and leave in the summer. If you're signed up for a season, see it through. You don't have to stay forever, but at least stay until you see it through.
+- Effective communication is 20% what you know and 80% how you feel about what you know.
+- The difficulties you meet will resolve themselves as you advance. Proceed, and light will dawn, and shine with increasing clearness on your path.
+- For every disciplined effort there is a multiple reward.
+- You cannot change your destination overnight, but you can change your direction overnight.
+- When you know what you want, and want it bad enough, you will find a way to get it.
+- Success is doing ordinary things extraordinarily well.
+- Giving is better than receiving because giving starts the receiving process.
+- Don't wish it were easier, wish you were better.
+- You must take personal responsibility. You cannot change the circumstances, the seasons, or the wind, but you can change yourself. That is something you have charge of.

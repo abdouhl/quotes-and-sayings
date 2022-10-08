@@ -1,0 +1,16 @@
++++
+author = "Jay Ryan"
+title = "Jay Ryan Quotes"
+quotes_len = "10"
+description = "the best 10 Jay Ryan Quotes"
++++
+- My family aren't performers. They're just normal people. They don't understand this entertainment world. They just think it's mental. They have no idea what I'm doing in America.
+- The original theme of 'Beauty and the Beast' is don't judge a book by its cover. Love what's inside.
+- I felt more comfortable playing other people than being myself, when I was a kid. And then, the tables turned. Through my performances, I've become more comfortable with who I am, and then I just bring more of myself into the people that I play.
+- I was shooting a mini-series for Sundance/BBC, called 'Top of the Lake,' that was shot by Jane Campion, who's a beautiful native New Zealander and famous film director. The role I was playing was very intense, and they shaved half my hair off. So, I looked like this post-apocalyptic character.
+- I always seem to get parts where I play the sports professional - and that's not me at all!
+- Having glue stuck to your face in winter is not fun. It freezes as it hits the skin.
+- I guess I did get to tick a big one off the bucket list, though, and that was being on a giant billboard smack-bang in the hub of Hollywood Boulevard. That was... well, pretty Hollywood.
+- I was a very hyper-active child and my parents just didn't know what to do with me.
+- The network made me join Twitter. I am very scared of social media, and I don't know how to use it, so it's kind of trial and error.
+- Coming from New Zealand and Australia is like a tough pre-school for Hollywood. And having been on 'Neighbours,' even though the agents I met with hadn't seen it, they knew it's where Russell Crowe and Guy Pearce had come from. It was a foot in the door.

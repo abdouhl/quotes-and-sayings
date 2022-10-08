@@ -1,0 +1,38 @@
++++
+author = "Matt Kuchar"
+title = "Matt Kuchar Quotes"
+quotes_len = "32"
+description = "the best 32 Matt Kuchar Quotes"
++++
+- I have a random array of ball markers in my bag and don't use any specific one. Many are the plastic kind you find at almost any golf course.
+- There are so many aspects of the game that you can work on - you can drive it father, you can drive it straighter, you can hit your irons higher and more consistently, you can get better with your wedges, and you can always putt better. There's never an end to that striving to get better in golf.
+- I had a temper when I played junior golf and had my clubs taken away for slamming them on the ground. I learned very quickly that I didn't want my clubs taken away from me.
+- Even if you finish the year at No. 1 in the world, and Tiger Woods has done this, you can still probably get better.
+- I want to qualify for the Tour Championship. Being a Georgia Tech grad, playing at East Lake would feel like home.
+- I like to challenge myself. There are not many guys on tour who can give me a challenge in Ping-Pong. So I'll throw some points to see if I can come back.
+- I've always been a guy that's liked a crowd and having people around cheering for me. I'm not a guy that will keep his head down or respond negatively to boos or whatever.
+- I went seven years between 2002 and 2009 without winning. Then I did win in '09.
+- I almost didn't turn pro at all. I was tempted to be a career amateur. I worked as an investment banker for nine months after I got out of school, and the money was fantastic and promised to get even more lucrative.
+- I grew up admiring Phil Mickelson. He loves competing, and he loves the fans' support, similar to me. In terms of my playing style, Steve Stricker and I are similar.
+- I was always taught that the first rule of bunker play is to just get the ball out. When you have a steep face in front of you, this rule applies more than ever. Here, you have to get the ball up in the air as quickly as possible.
+- I'm helpless in post-round, hole-by-hole interviews. I can't take you through most of the holes of winning the Players Championship, the U.S. Amateur or Ryder Cup matches. It's like golf amnesia.
+- Golf's a great game, and you meet a lot of people along the way.
+- I was always a guy who wanted to be associated with a brand that meant something to me, something I was proud to be associated with... I always wanted sponsors that felt good to be associated with me as well.
+- I very rarely watch anybody swing. All I do is follow where the ball goes.
+- When I'm really purring it, I feel as if my whole left side - from knee to hip to shoulder - is turning behind me as I swing through the ball.
+- I'd like to see something done about the long putters and belly putters. But I go back and forth on that. I've actually worked with a belly putter.
+- I used to turn my shoulders pretty level, which a lot of golfers think is correct. But that made my swing too shallow coming into impact, so my contact was picky, especially off the turf.
+- I dislike the gym, but I'll chase a tennis ball all day.
+- Golf has always been a game where you have to control both ends of the club.
+- Going to a one-plane swing method has made me a much more consistent player. Even when I'm not on, I never get very far off.
+- I'm always a competitor. I'm not there just to have a good time. I want to play well and perform well.
+- I found an instructor, Chris O'Connell, who helped me. He turned me into the player I am today - a consistent golfer.
+- I'm a decent table tennis player, but if you were to put me up against any of the guys you see on television at the Olympics, I'd be lucky to get a couple of points.
+- Although I'm a scratch Ping-Pong player, there is no possibility of me beating a top professional.
+- As a kid, I wanted to be a pro tennis player. I was pretty good; at the tennis academies I attended, I always 'played up' against older age groups.
+- Sometimes in golf I've got 10,000 people watching me. Cameras are easy. Doing the Jay Leno show was easy.
+- I'm a pretty low-stress guy. I take what the golf course gives me. Some days, when I'm in full control, I'm able to fire at pins with 5-irons. Other days, I'm looking more toward the middle of the green.
+- I'm happiest playing a match with my dad and a couple of college friends, taking a few bucks off them.
+- I felt I could play in maybe a dozen tournaments a year as an amateur.
+- I'm John McEnroe-like. I'm coming forward every opportunity I get. My wingspan covers some ground at the net. My serve is OK. I can move it around enough. My groundstrokes are good enough to hang in a rally with a good player. But generally, my goal is to put away a point quickly.
+- I love getting up to my folks' house and playing golf with Dad. He's very involved with my off-course ventures, and I talk to him every third day.

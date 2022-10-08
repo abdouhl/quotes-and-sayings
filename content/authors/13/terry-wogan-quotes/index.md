@@ -1,0 +1,74 @@
++++
+author = "Terry Wogan"
+title = "Terry Wogan Quotes"
+quotes_len = "68"
+description = "the best 68 Terry Wogan Quotes"
++++
+- People who are successful should never forget that it's 90 per cent luck. You've got to be an eejit to be an egomaniac. I had my glory years - 'Blankety Blank,' the talk show, when I was winning every award going.
+- Age, they say, is only important if you're cheese. or a wine. They also say, if you are stuck behind one on a golf course, that a tree is 90 per cent air. How come, then, that you invariably send your ball crashing into the remaining 10 per cent?
+- I don't do a lot when I'm in Gascony. I swim and play the odd game of golf, but mainly I sit around. We're set an hour-and-a-half from the Pyrenees and an hour-and-a-half from the Bay of Biscay, so we get plenty of storms. But we're surrounded by vines and sunflowers - it's lovely.
+- The BBC is the greatest broadcaster in the world. It's the standard that everyone measures themselves against. If we lose the BBC, it won't be quite as bad as losing the royal family, but an integral part of this country will have gone. But then, I'm an old guy.
+- My life has been a happy accident. Anybody who succeeds in anything should count their lucky stars, because that's the biggest element. It's not hard work; it's not necessarily talent.
+- 'Senior Citizen' and 'Silver Surfer' are the new euphemisms. Unless you're a female presenter on TV, in which case you're ready for the knacker's yard at 35.
+- Places like India can give you a real culture shock because of the poverty you see, and it brings you up sharply.
+- I don't like seeing myself on screen. Whenever I see or hear myself, I think, 'What is that eejet doing now?' I'm in the wrong business. I don't like the limelight.
+- I'm so proud to do it - there's nothing else I do that compares to 'Children in Need.'
+- I will never do 'I'm a Celebrity... Get Me Out of Here!' There are certain things you'll do that you have some control over, but you should do things that leave your fate in the hands of others, too.
+- My parents spent an awful lot of money sending me to the best possible schools, and I came out of my exams and thought, 'I don't really want to do a degree.' I did philosophy with the Jesuits for about a year, and then I joined a bank. While I was there, I saw an ad in an Irish paper for radio announcers.
+- A couple of years before he died, I kissed my father goodbye. He said, 'Son, you haven't kissed me since you were a little boy.' It went straight to my heart, and I kissed him whenever I saw him after that, and my sons and I always kiss whenever we meet.
+- I have great fun with the Togs - Terry's Old Geezers and Gals. They're a group that formed around me over the years of my radio shows. They are loyal to me and I'm loyal to them, so I've been to their conventions - Leicester University gives us their campus.
+- I'd walked away from 'Come Dancing' and gave 'Blankety Blank' the elbow when I felt the public had had enough. But I didn't follow my instinct to escape from 'Wogan,' and was persuaded to continue for another two years. I kind of regret that.
+- They're still advertising the added health-giving advantages of vitamins in your daily diet, although it has long since been shown that you'd be better off eating Smarties.
+- The high spot of my day has always been getting home to have my dinner with my family. It still is: to have my dinner with Helen. It's a cocktail and dinner. I know I'm a tired old geezer, but there you are.
+- Most television could be presented by a dachshund. Radio can't, although there are a lot of dachshunds in there.
+- Why do men think they know how to cook outside when they haven't the smallest idea how to go about it indoors?
+- I was brought up to do my duty. Not to be vain, not to shout from the rooftops about my virtues - to be modest and well-behaved. I'm totally wrong for show business.
+- You have to be aware of your own shortcomings. The main thing I try not to do is lose my temper. Doing live interviews on television, you learn not to say the first thing that comes into your head.
+- Nobody really knows what they look like. The mirror shows you only what you want to see.
+- There's more to life than passing exams, and paper qualifications can only take you so far. A lot depends on luck, and on being in the right place at the right time, which was certainly true in my case.
+- Nobody ever texts me, because they know what I'm like. I'm a constant frustration to my children because I never switch my mobile phone on. I only use it when I need to make a call or when I'm stuck somewhere or lost, then I switch it off again. I've never texted anyone in my life, and I'm not sure I even know how to.
+- I'm not big on the pasty because they say the pastry in the pasty can bring on indigestion.
+- Television contracts the imagination and radio expands it.
+- I've seen my fair share of drama over the years of Children In Need. I had a close brush with mortality in 2009 when a chain collapsed from the studio rigging. I was in mid-spout to camera when I heard an enormous crash behind me - a ton of steel had come hurtling down and smashed to the ground a few feet away.
+- I'm on the university board in Limerick, so I visit the city often.
+- There's nothing to be said for being famous. It's a pain. You can't be rude to people - it's inexcusable not to be nice. Anyway, it's not in my nature. I was trained to be nice.
+- I was born an optimist, as I always say. If I wake up in the morning with a pain in my chest, I'll always assume it's indigestion. It will probably be the end of me! But it's true - that's the kind of person I am.
+- I think if they wanted to get me to leave 'Children in Need,' they'd have to drag me off screaming. It's one thing that's so close to my heart, and I feel passionately about it. I gave up my radio show, with regret, but knowing I'd done it for a long time, the same with Eurovision. But 'Children in Need' is different.
+- I'm asked to do 'Strictly Come Dancing' on a regular basis, but I always say no.
+- A talk show is about having a look at a famous face, a bit of stand-up comedy, knockabout stuff - an interview is what Barbara Walters or Connie Chung does in the States, in-depth, done properly.
+- My father was always slightly bemused by my success. Although he knew that I had reasonable intelligence, he always thought that I was a little bit lazy.
+- I'm never going to write a book like Anthony Sher did, you know, 'The Broadcaster Prepares.' I'm only talking to myself. I'd have liked to be a writer, or a journalist, but if things don't come easy to me I don't do them. I think if you're always thinking how difficult something is, you shouldn't be doing it.
+- Oh, I'm a great believer in the power of the pause. Radio is a bit brasher now. My style was slower. I just used to go in, open the microphone and say the first thing that came into my head.
+- I don't think there's a public in the world who respond like the British to a call for charity.
+- Just as the England football manager starts with bells and flags and balloons and ends up reviled, so do prime ministers. Tony Blair - is there anyone more despised now? Gordon Brown - all right, nobody voted for him but, you know... just think of any of them. Margaret Thatcher. John Major. Steve McLaren. Fabio Capello.
+- I'd have liked to have been a bit more intellectual. I'd have liked to have had more brains.
+- I'm terribly shallow. I don't miss things once I have stopped doing them, and I don't miss people when I stop seeing them.
+- Time flies like an arrow - but fruit flies like a banana.
+- If the present Mrs. Wogan has a fault - and I must tread carefully here - if she has a fault, this gem in the diadem of womanhood is a hoarder. She never throws anything out. Which may explain the longevity of our marriage.
+- Just as you should never confuse the law with common justice, intelligence should not be confused with common sense. Some of the brightest people in the world have no idea how to cross the road.
+- BBC TV gets hold of an idea and beats it to death until we're all heartily sick of it. They buy people without thinking what they're going to do with them. It's the wrong way around. What they should be doing is employing really good ideas people to come up with good ideas.
+- It's only a matter of time before it all starts to fall apart, before things start to fall off. Short legs, long body. The kind of person who in the Middle Ages would come up over the hill on his horse, and they'd say, 'Get Wogan,' and I'd be there with my shield, the first to die.
+- A television chat show is light entertainment, so it is trivial by its very nature. It is hardly the place to get people to reveal their innermost thoughts. Then it becomes sensationalism, and you lower yourself to the level of the popular newspapers.
+- I've never stayed in a tent or a caravan in my life, and I never joined the Boy Scouts. I don't see the point of going on holiday to enjoy less comfort than I have at home.
+- I'm not very good with cars. They rebel against me.
+- I say to my children, the reason that marriage - and having children - is so important is that it stops you thinking about yourself. The way to happiness is to give yourself to others and to think of others before you think of yourself.
+- I've always had an unsentimental view. I don't think the BBC is my auntie. I worked there for years, and you learn that they don't love you for yourself. They'll use you as long as you're popular. You shouldn't wait until it starts to wane. It can sometimes end badly.
+- I get a lot of letters from people saying, 'How do I get into radio, how do I get into telly?' and I wish there was an answer, because there's no ladder. There are no parameters. You've just got to go in wherever you can, make the tea, and slowly make your way up the ladder.
+- Sadly, I can't avoid being 75. Like many people of my age, we are all heading towards the grim reaper, and I am clinging on. I just to have to sharpen my fingernails a little so that I can hang on for longer!
+- What used to be called 'good manners' is now regarded as mere affectation. Open a door for a young woman, and she's likely to call security.
+- I spent my entire Irish Catholic youth in a constant state of guilt over imaginary sins. I learned that nothing is a sin as long as you don't take pleasure from it.
+- I try to swim for 30 minutes and walk for 30 minutes, because if I don't, my finely honed body will slip into its old ways.
+- Go out and face the world secure in the knowledge that everybody else thinks they are better looking than they are as well.
+- Da was a real fisherman. But it wasn't the catch that mattered, it was the skill of the cast, the preparation of the flies. I often think my inability to prepare, my desire to get going, are a direct result of watching my father making all those painstaking preparations before he cast his line.
+- I've always been the kind of person who leaves parties early to catch the last bus home.
+- The BBC knew I was successful from early on, but they weren't sure why, and they still aren't sure. What I do has been unconventional from the beginning, so they've never been sure. It just works. It just does.
+- I have to say, without getting up on a soapbox, I find these reality shows absolutely disgusting.
+- I've never wanted to drive a car fast for the sake of it. I mean, I like nice cars. I've got the Bentley, I've had a Lotus, I've had a Rolls-Royce and a few Jaguars, including an E-type. But I'm not somebody for driving tremendously fast.
+- All reality TV shows are a triumph of voyeurism. They choose contestants who are ill-suited and slightly freakish.
+- All of us are private to ourselves. Nobody ever really knows anybody else. Everybody in the world keeps something to themselves.
+- I have a happy temperament: a bit like 'Rebecca of Sunnybrook Farm.'
+- I've no patience for people who say they never watch television. It's a great way to keep in touch with popular culture, and it's important that children can relate to what their schoolmates are watching.
+- People are not impressed by watching interviewees cry. People recognize chat shows with personalities as the trivial things that they are. They're not designed to be deep. Quite frankly, people in show business don't stand up to in-depth scrutiny.
+- I speak some French, Spanish, a little German and Gaelic.
+- We'll watch 'Britain's Got Talent,' 'X Factor,' 'Come Dine with Me' and 'Masterchef.' But we don't watch 'Big Brother,' which is rubbish. I certainly won't be tuning into the new series of 'Celebrity Big Brother' either. I think it's awful, exploitative and vulgar.
+- Treasure is the kind of thing you dig up... or bury! And when people say, 'Oh, he's an icon,' well, an icon is a very old painting hanging in a Russian church! If you want to say something, say something nice about me. Don't call me a national treasure.

@@ -1,0 +1,73 @@
++++
+author = "John Dorsey"
+title = "John Dorsey Quotes"
+quotes_len = "67"
+description = "the best 67 John Dorsey Quotes"
++++
+- Once you identify positional needs, then I think, then, what you do is, you be very selective on how you go about acquiring those players. You have to look at the resources available on how to acquire those players, and then, if you can, go acquire those assets that can best help this team get over the hump.
+- My faith tells me everybody should have second chances.
+- This great game of football is about challenges every day.
+- I have a lot of respect for Coach Arians.
+- I love the thought of the AAF giving players a chance to earn experience through playing the game of football at a high level. And letting players showcase their skills and continue to develop.
+- I've always liked the history of the game of football, and then, when you mention the Cleveland Browns to me, it brings back vast memories, and I can't just wait to try to build and establish this thing and just move this thing forward.
+- I'm OK with having a really good football player with a chip on his shoulder because he's going to come to prove to not only the people that didn't draft him, but himself, that I'm a pretty good football player.
+- When you mention the Cleveland Browns to me, it brings back vast memories.
+- Guys that are competitive and love to play the game of football and love their teammates, you can't have enough of those guys on your team.
+- I believe there's good in every organization.
+- I believe there's good in everybody.
+- I love football. It's been very generous to me.
+- At the end of the day, you want to do what's best for your organization, present and future.
+- If you can get more team speed, I'm all for it.
+- I've been in the league a lot of years, and I'll know a majority of the coaches, not only in the college ranks but in the professional ranks, both as head coaches, position.
+- The more team speed you have, the better.
+- Any time you get a chance to acquire a really good football player, I'm all about that.
+- I think, in today's football, you have to have a certain degree of technology. If not, you're living in the stone ages.
+- You can't have enough good football players.
+- I believe words mean something. I really do.
+- I hate hype.
+- I have no problems with a young man being allowed to understand the mistakes he makes, and let's move forward. Let's move forward, and let's not do it again. That is how I look at it.
+- I was very proud of my time in Kansas City. I thought we acquired a heck of a roster.
+- Former Secretary of State Condoleezza Rice is a great leader, possesses the highest possible character, and also happens to be a Browns fan.
+- A quarterback wants to come across in the interview process as confident, as having a vast understanding and knowledge of defenses, as being capable of leading a group of men. That's what you've got to convey to the teams.
+- Football is what I know, it is what I love, it is what I have worked my whole career at, and I thrive on every element that goes into building a winning football team.
+- I don't think there's anything good that comes out of 'Hard Knocks,' but we'll see.
+- You always attempt to better yourself by getting good football players.
+- I love everything about this great game of football.
+- I couldn't be prouder to say that I work for the Cleveland Browns, and all I know is this: Jimmy and Dee Haslam, I have immense respect for these people.
+- I believe in a running back by committee. Always have. Always been taught that way.
+- From a planning standpoint, you want to surround a first-year head coach with quality coaches at all levels.
+- Every year, we want to win. That's an overarching goal.
+- A personnel guy always wants to get his pick right. We live that every year. We want to make sure the pick is right.
+- Everybody has different cultures in the National Football League.
+- I bet you that we all learn from our mistakes. I've learned from my mistakes in the past, too.
+- You can't have enough good running backs.
+- I met Paul Brown, and I will never forget it.
+- I just love tradition.
+- I've always said I live in the present, and I build for the future.
+- Good teams win in the fall. They don't win in March.
+- I love the National Football League.
+- Ohio State University puts out some very fine football players.
+- You have to build your core nucleus of your team through your draft. What that does is you basically introduce them to your culture and your environment. Then, as guys begin to perform and play to that level, then you say, 'You know what? You guys deserve an extension, so here it is.'
+- Real is when you go to training camp. Real is when you finally get the guys in pads. Real is those guys in that locker room setting those goals because we have some guys now that can set goals and expectations for those guys in the locker room because, ultimately, who are the Cleveland Browns but those guys in that locker room.
+- Drafting is not only an art, but there's a degree of science as well.
+- I think the most important thing is not only do you want to build a roster, but you also want to establish a culture within any given organization.
+- It's always good when the offensive head coach and the quarterback think like-minded. That's a good thing.
+- I can do my job with the best of my peers in the National Football League.
+- I have a lot of respect with Mike McCarthy and for what he's done.
+- It's always good to see guys perform under adverse situations.
+- I'm the eternal optimist. That's who I am.
+- The fan base for the Cleveland Browns is more passionate than Green Bay Packers fans.
+- In terms of the past, I think we've all learned from the past. I think that's great wisdom.
+- Jamaal Charles is one of the finest running backs that's ever put on a Kansas City Chiefs uniform.
+- Winning is important in this league. Just check your ego at the door. It's all about winning. That's what we all should be striving for.
+- I will talk about Baker Mayfield. I like everything about his makeup. I like how his teammates really rally behind him. I like his eyes downfield. I like his accuracy with his deep throws. I like how he shows that fighter's spirit; when it comes time to come back, he's fighting through to come back, and I applaud those things.
+- Every young man will make a mistake in his life, I bet you.
+- As a person, you like to see young men mature.
+- I always try to look at kids like I'm in the locker room, and I'm a teammate.
+- The National Football League is a very physical game.
+- If it wasn't for Paul Brown, I probably wouldn't have a job because he basically evolved scouting.
+- This is a quarterback-driven league. We all know that, and we all know, to succeed and to go a little bit farther and farther and farther, you need one of those guys.
+- If we continue to win and build and finish strong, that's all you can ask for.
+- Jaelen Strong's big. He runs really good routes. He's got great hands.
+- Any good GM wants to field phone calls from his peers.
+- I happen to love Chase Daniel. I love his competitive zeal, how smart he is, how knowledgeable he is about the game.

@@ -1,0 +1,70 @@
++++
+author = "John Grisham"
+title = "John Grisham Quotes"
+quotes_len = "64"
+description = "the best 64 John Grisham Quotes"
++++
+- I'm not in favor of the death penalty. But I'm in favor of locking these people away in maximum security units where they can never get out. They can never escape. They can never be paroled. Lock the bad ones away. But you gotta rethink everybody else.
+- More than 100 people have been sent to death row who were later exonerated because they weren't guilty or fairly tried. Most criminal defendants do not get adequate representation because there are not enough public defenders to represent them. There is a lot that is wrong.
+- I love piecing together intricate thoughts that people find compulsively readable and they can't put down.
+- I was a lawyer for 10 years - a short time, but it molded me into who I am. My clients were little people fighting big corporations, so it was a natural thing to not only represent the little guy but also to pull for him - it's the American way.
+- I practiced law for 10 years, and I always admired the lawyers who were not afraid to take unpopular cases. And I never had the guts to do that. I was playing it safe. I was trying to make a living. And I just never volunteered for a really tough case, and there were some of them I should've taken. And I admired the lawyers who did.
+- Quite often I can be in a bookshop, standing beneath a great big picture of myself and paying for a book with a credit card clearly marked John Grisham, yet no one recognises me. I often say I'm a famous author in a country where no one reads.
+- Twenty years on, the books are still fun to write and I've still got lots of stories I want to tell, mainly about social injustice and people chewed up by the system.
+- I earned my first steady paycheck watering rose bushes at a nursery for a dollar an hour.
+- I've tried writing with music on, but I find it distracting.
+- I give off rather mixed messages about the law. On the one hand, I can honestly say I don't miss working in a law office. On the other hand I do enjoy watching the law and while the profession may have its problems, I have sold zillions of books out of magnifying them.
+- I learned that lesson a long time ago. When you write popular fiction you're going to get bashed by critics.
+- I always try to tell a good story, one with a compelling plot that will keep the pages turning. That is my first and primary goal. Sometimes I can tackle an issue-homelessness, tobacco litigation, insurance fraud, the death penalty-and wrap a good story around it.
+- Most men cannot write good sex. I tried one time years ago and showed it to my wife, and she felt like laughing.
+- When you work at street level you never know who's going to walk through your door.
+- Keeping a guy in prison costs 50,000 bucks a year. Executing one costs a couple million.
+- We have the crime of the century every six months. So for people like me who enjoy, you know, taking these stories and writing about them, the material is endless.
+- Wrongful convictions happen every week in every state in this country. And they happen for all the same reasons. Sloppy police work. Eyewitness identification is the most - is the worst type almost. Because it's wrong about half the time. Think about that.
+- That's the best way to practice law, is writing about it and not having to be in the courtroom!
+- Best-selling writers should go to bookstores to say thanks to the booksellers, to meet fans, sign autographs, sign books, talk, whatever.
+- We are extremely private, and we really got sort of ambushed by the notoriety.
+- I spend a lot of time outlining before I write the first word.
+- Every morning I wake at 6am or 6.30am, champing at the bit.
+- Nobody wants to read about the honest lawyer down the street who does real estate loans and wills. If you want to sell books, you have to write about the interesting lawyers - the guys who steal all the money and take off. That's the fun stuff.
+- There's always such a rush to judgment. It makes a fair trial hard to get.
+- Still, something about writing made me spend large hours of my free time at my desk.
+- There are three types of words: words we all know, words we should know, and words nobody knows. Don't use the third category.
+- I had never written anything. And I had never studied writing. So my motives were pure: I had a great story... a courtroom drama that I sort of fictionalized, and that became 'A Time to Kill.'
+- Most criminal defendants do not get adequate representation because there are not enough public defenders to represent them. There is a lot that is wrong.
+- I sat down with a yellow legal pad and began writing 'A Time to Kill.' Had no idea what I was doing. It became, over a period of several years, a secret little hobby nobody knew about except my wife, because she was reading chapter by chapter.
+- And that's the mission of The Innocence Project in New York, is to exonerate people who have been wrongfully convicted, and also work from a policy angle with Congress and state legislatures to prevent future wrongful convictions.
+- My clients were always poor folks, working folks, people who were in trouble and couldn't afford to pay a whole lot. I found it very difficult to say no to somebody who needed help, so most of my work turned out to be pro bono. It didn't start out that way, but it turned out that way because I never got paid.
+- I start every morning at 7 or 7:30 in the same place - my little office where it's dark and cozy - with a cup of the same really strong black coffee. It's my little cocoon. There's no phone or fax or Internet. And no music.
+- I wrote a lot of 'A Time to Kill' at the State Capitol in Jackson, Miss., hiding in little committee rooms, killing time waiting for legislation to come to the floor.
+- My name became a brand, and I'd love to say that was the plan from the start. But the only plan was to keep writing books. And I've stuck to that ever since.
+- I like to start with the first chapter, end with chapter 40. No flashbacks, nothing fancy, just a direct storytelling.
+- I can't write - I can't think like a woman... it's not natural, but I've tried.
+- I'm a Christian, and those beliefs occasionally come out in the books.
+- The Deep South has the friendliest people in the world. They will do anything for you. They also want to know what's going on and won't hesitate to ask questions.
+- Prisons are fascinating places, especially when the inmates are educated white-collar types.
+- Right from the start, I loved the works of Mark Twain. Every time I read about Tom Sawyer, I'd go out and do something low-level naughty, just like him.
+- I'm not good at raising money. I don't like to raise money. It's been my experience that when I ask someone for money, it's not long before they return the favor.
+- I always do book signings with the same blue pen. That way, if I add a personalised message to a book I've already signed, it'll be in the same colour as my signature.
+- I used to walk in a bookstore and see all these books on the walls. And I would say, 'Who wants to hear from me? What do I have to add to all of this?'
+- It's hard to read good fiction when I am writing, because if it is really good I catch myself sort of inadvertently imitating a great writer.
+- I have learned not to read reviews. Period. And I hate reviewers. All of them, or at least all but two or three. Life is much simpler ignoring reviews and the nasty people who write them. Critics should find meaningful work.
+- I grew up in a very small, close-knit, Southern Baptist family, where everything was off-limits. So I couldn't wait to get to college and have some fun. And I did for the first two years. And I regret a lot of it, because my grades were in terrible shape. I never got in serious trouble, except for my grades.
+- There are so many colorful characters in Florida. There's a lot of money, development - not all of it good - and corruption.
+- Writing was not a childhood dream of mine. I do not recall longing to write as a student. I wasn't sure how to start.
+- In 1984, when I was a rookie member of the House, there was a bill introduced to make Martin Luther King's birthday a state holiday. It didn't have a chance. As time passed, though, more and more states adopted the holiday. Finally, after about five years, we passed it and, I think, almost unanimously. As I said, change is slow and hard.
+- I don't want to force my politics on my readers.
+- Writing's still the most difficult job I've ever had - but it's worth it.
+- Sometimes I can tackle an issue -homelessness, tobacco litigation, insurance fraud, the death penalty - and wrap a good story around it. These are the best books, the ones with a story and a message.
+- We've sent 130 men to death row to be executed in this country, at least 130 that we know of, who have later have been exonerated because they were either innocent, or they were not fairly tried. That's 130 people that we've locked down on death row. And they've spent years there.
+- I hate prologues because they're kind of gimmicks to suck you in.
+- Your brain is cooked when you write hard for three or four hours.
+- I was a lawyer for 10 years, and several of my clients had the misfortune, through no fault of my own, of going to prison. I visited them occasionally.
+- After I'd been a lawyer for about five or six years, I started playing around with fiction.
+- One thing you really have to watch as a writer is getting on a soapbox or pulpit about anything. You don't want to alienate readers.
+- I seriously doubt I would ever have written the first story had I not been a lawyer. I never dreamed of being a writer. I wrote only after witnessing a trial.
+- I've had nine of my books adapted to film, and almost all were enjoyable. I've been very lucky with Hollywood, and look forward to more movies being adapted. But I don't get involved in that process. I know nothing about making movies and I stay away from it and hope for the best.
+- I'm not itching to sue Amazon or Wal-Mart... they sell a lot of books. But the future is very uncertain with books.
+- I can't change overnight into a serious literary author. You can't compare apples to oranges. William Faulkner was a great literary genius. I am not.
+- Charlottesville is a quiet town with friendly people, good schools, lots of churches, parks, and a bustling, growing community that more or less revolves around one of the country's great public universities. Volunteerism is rampant, and dozens of nonprofits hustle about, solving problems and helping those in need.
+- There are always issues on the front page that need to be explored.

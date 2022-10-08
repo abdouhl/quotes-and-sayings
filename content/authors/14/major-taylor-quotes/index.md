@@ -1,0 +1,25 @@
++++
+author = "Major Taylor"
+title = "Major Taylor Quotes"
+quotes_len = "19"
+description = "the best 19 Major Taylor Quotes"
++++
+- An athlete must have ability to reach the top, but many who have ability and who do not live clean lives never have and never will be champions for obvious reasons.
+- I pray they will carry on in spite of that dreadful monster prejudice, and with patience, courage, fortitude and perseverance achieve success for themselves.
+- There will always be that dreadful monster prejudice to do extra battle against because of their color.
+- In a word I was a pioneer, and therefore had to blaze my own trail.
+- Realizing full well that fine condition and confidence will not in themselves make a champion, it is my belief, however, that they are essential factors.
+- Each great athlete must some day bow to that perennial old champion, Father Time, even as I, for Time eventually wins.
+- Clean living is the cardinal principle in the lives of the world's greatest athletes, as the phenomenal performances of these outstanding characters will obviously show.
+- I know that a good many champions have entertained the thought that the more they discourage youngsters, the longer they would reign. However, this theory never impressed me, and I always made it a point to give youths the benefit of my experience in bicycle racing.
+- These rules may seem simple enough, but it will require great morale and physical courage to adhere to them. But if carried out in the strict sense of the word it will surely lead to a greater success than could otherwise be attained.
+- I would like to cite an instance which proves the efficacy of clean living on the part of an athlete coupled with the inspiration received from a champion which go a long way to making a champion.
+- Modesty should be typical of the success of a champion.
+- As a reward of their clean living and good habits these great stars have been able to withstand the rigorous test of stamina and physical exertion and have thus successfully extended their most remarkable careers over a period of many strenuous years.
+- To these ideals which were instilled in me when I was a youth, I attribute in a large degree the success that was mine on the bicycle tracks of the world.
+- I might go on discussing this subject at great length, but after all is said, done, and written, my own book of experiences will best show what these obstacles are, and how I managed to overcome them to some extent.
+- I can hardly express in words my deep feeling and sympathy for them, knowing as I do, the many serious handicaps and obstacles that will confront them in almost every walk of life.
+- I would advise all youths aspiring to athletic fame or a professional career to practice clean living, fair play and good sportsmanship.
+- In closing I wish to say that while I was sorely beset by a number of white riders in my racing days, I have also enjoyed the friendship of countless thousands of white men whom I class as among my closest friends.
+- The moral turpitude of the boys of today appears to center in their failure to concentrate on any particular objective long enough to obtain their maximum results.
+- I have also noticed that when a rider who had confidence in his ability was defeated, after doing his level best to win, always received an ovation from the gathering.

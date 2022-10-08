@@ -1,0 +1,31 @@
++++
+author = "Jason Sehorn"
+title = "Jason Sehorn Quotes"
+quotes_len = "25"
+description = "the best 25 Jason Sehorn Quotes"
++++
+- I remember my mom would read the newspaper, and if she saw a place that was cheaper in rent, we were gone. She'd pack everything up, move the furniture and we were out of there.
+- My first year with the Giants they cut Phil Simms. That was the best thing to ever happen to me because George Young loved Phil Simms and it just made me realize that it's a business and you can't take it personally.
+- When I say dirt-poor, I mean Mom made maybe $25,000 a year. I remember buying milk with food stamps. Vividly. So, growing up, I was the minority.
+- The more you stick your neck out, the more people are going to take a swing at you when things go bad.
+- You don't last too long in baseball if you can't hit the curveball.
+- Baseball moved too slow for me. I wanted to be out running and jumping.
+- Right after retiring I didn't want to be on the road 16 weeks a year - leaving on a Thursday night and coming home on a Sunday night - it was a little too much.
+- We all have faults in life. Mine is that I sometimes rely on my athletic ability a little too much. When I'm having success and things are going good, that's the lull that I fall into. It's my worst enemy.
+- The overall experience was pretty cool just because if there was a street, it was lined with people. And for something as brutal as a marathon, you're running for three hours, it's just nice to have all those people cheering you on, putting their hands out for high fives - you never feel alone.
+- You're got to be able to be smart enough to put yourself in position to make the play. You have to be able to anticipate and read what the offense is doing and be there beforehand.
+- The fact is football players get beat all the time in the course of a game. But if it happens to a defensive tackle, it's usually 5 or 10 yards. With us, it's 76 yards.
+- You have to build a lot of bridges to the new coaches, show them how hard you work. It's one thing for them to hear about you, but it doesn't matter until they see you.
+- Let's remember, a protest isn't supposed to appease everybody.
+- As professional athletes, we live such a privileged life. We make tons of money, everything goes our way and we play a game for a living. It's hard to stay grounded at times.
+- Too many people think life is a yellow brick road. We learned that hardships make you better and that you have to adapt to your surroundings. And then you understand.
+- Teams don't care how long you have been there or if you are their all-time reception leader. They don't care about that. All they care about is if they can replace you for cheaper.
+- And my mistakes are always the highlights on ESPN's 'SportsCenter.'
+- Rarely will you find a photo of me in the NFL without long sleeves.
+- I said it for a long time I could run a marathon.
+- How am I overrated if I've never gone to the Pro Bowl? To be overrated, you have to be someplace you shouldn't be. I don't see that.
+- When I play in the Super Bowl, the biggest stage we have, I have to give up the first touchdown. To make it worse, I'm running behind the guy, not next to him.
+- Two of the biggest things my mom taught me is that adversity isn't the end of the world and that you have to adapt to succeed.
+- I have a lot of respect for everything my mom had to do. And she made sure I understood how to respect women in ways that some people don't. She opened my eyes.
+- I just think some people don't like me. They don't like what I do or what I stand for or who I am. I catch criticism for doing things off the field and for getting the attention I get for playing in New York.
+- When I as a fan and a viewer tune into ESPN, I don't want politics and I don't want to look at a person and have to think politics.

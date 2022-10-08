@@ -1,0 +1,42 @@
++++
+author = "Andrew Vachss"
+title = "Andrew Vachss Quotes"
+quotes_len = "36"
+description = "the best 36 Andrew Vachss Quotes"
++++
+- Ask any experienced defense lawyer: the real risks are for an accused person who is innocent. A guilty defendant has many more options available.
+- Victimizers of children are the enemies of any so-called society.
+- I think people should be consumers of journalism.
+- I don't take advances for my books.
+- I believe my publisher has shown a great deal of faith in me over a lot of years but I'm not prepared to be so arrogant to say that the long-term literary value of my work would compensate them for a financial failure.
+- I write everything in Courier 12 because I write for publication, not pleasure.
+- Ours is a country where anything can be accomplished if enough people get angry... because, in America, we act on our collective anger.
+- In some neighborhoods, if you want to walk down the streets, you've got two choices - look down, or look hard.
+- There is no Constitutional right to prey on others. The Internet is just a piece of technology, like the telephone. Society has the right to modify its uses.
+- The third person narrator, instead of being omniscient, is like a constantly running surveillance tape.
+- I'm in pursuit of what cannot be achieved: perfection.
+- I don't understand people whose gratification is a BMW. You don't know what joy is until you see a kid who was tortured get adopted by a family.
+- If I ever stopped being angry, I couldn't write anymore. How could I?
+- I didn't start out angry. I started out a young man wanting adventure.
+- While early childhood experiences may impel, they do not compel. In the end, evil is a matter of choice.
+- I don't even use italics or boldface; that's clutter, not clarity. Fancy fonts are fine for blogs, just as calligraphy is fine for diaries. But when you're writing for anyone other than yourself, you want to get as universal as possible.
+- I don't sign contracts for my books.
+- People are pushing against the fabric of society all the time.
+- My life is triage.
+- Without question, I've either got to be a writer, or I fail.
+- We don't protect our young, and we tolerate predators of our own species.
+- A trial is not a search for truth. It is a contest and, often, one that produces no winners.
+- Journalism is the protection between people and any sort of totalitarian rule. That's why my hero, admittedly a flawed one, is a journalist.
+- I did criminal defense work part-time, and that paid the bills for representing abused and neglected children... and for defending in juvenile court those kids the 'child protective system' had missed when it had the chance.
+- All children are born pure egoists. They perceive their needs to the exclusion of all others. Only through socialization do they learn that some forms of gratification must be deferred and others denied.
+- My stuff isn't for everyone.
+- The idea that you're not a writer until you're published is a lie.
+- Courier 12 is the Type-O blood of fonts - works just as good for a 'N.Y. Times' op-ed as a screenplay or a short story.
+- Crime takes the pulse of a culture. It tells us the truth about us as a species.
+- No politician is threatened by the child protective constituency, because it does not exist.
+- I hate bullies. I hate them. I'm not good enough with words to describe how much I hate them.
+- Building a mechanical device for its appearance is like putting lace on a bowling ball.
+- Fighting means you could lose. Bullying means you can't. A bully wants to beat somebody; he doesn't want to fight somebody.
+- A kid in an abusive home has far fewer rights than any POW. There is no Geneva Convention for kids.
+- Journalism is what maintains democracy. It's the force for progressive social change.
+- Anyone who says, 'Books don't change anything,' or - more commonly - that crime fiction is the wrong genre for promoting social change - should take a closer look.

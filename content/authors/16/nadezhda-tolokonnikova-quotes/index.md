@@ -1,0 +1,14 @@
++++
+author = "Nadezhda Tolokonnikova"
+title = "Nadezhda Tolokonnikova Quotes"
+quotes_len = "8"
+description = "the best 8 Nadezhda Tolokonnikova Quotes"
++++
+- Modern capitalism seeks to assure us that it operates according to the principles of free creativity, endless development and diversity. It glosses over its other side in order to hide the reality that millions of people are enslaved by an all-powerful and fantastically stable norm of production. We want to reveal this lie.
+- As a child, I wanted to go into advertising. I had a love affair with the advertising industry.
+- We are the rebels asking for the storm, and believing that truth is only to be found in an endless search. If the 'World Spirit' touches you, do not expect that it will be painless.
+- The words we spoke and our entire punk performance aimed to express our disapproval of a specific political event: the patriarchs' support of Vladimir Putin, who has taken an authoritarian and anti-feminist course.
+- I will not remain silent, resigned to watch as my fellow prisoners collapse under the strain of slavery-like conditions.
+- In May 2013, my lawyer Dmitry Dinze filed a complaint about the conditions at PC-14 with the prosecutor's office. The deputy head of the colony, Lieutenant Colonel Kupriyanov, instantly made conditions at the camp unbearable.
+- It is possible to tolerate anything as long as it only affects you. But the method of collective punishment is bigger than that.
+- Mordovian prisoners are afraid of their own shadows. They are completely terrified.

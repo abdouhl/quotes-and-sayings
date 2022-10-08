@@ -1,0 +1,63 @@
++++
+author = "Niccolo Machiavelli"
+title = "Niccolo Machiavelli Quotes"
+quotes_len = "57"
+description = "the best 57 Niccolo Machiavelli Quotes"
++++
+- Hence it comes about that all armed Prophets have been victorious, and all unarmed Prophets have been destroyed.
+- Severities should be dealt out all at once, so that their suddenness may give less offense; benefits ought to be handed ought drop by drop, so that they may be relished the more.
+- Men ought either to be indulged or utterly destroyed, for if you merely offend them they take vengeance, but if you injure them greatly they are unable to retaliate, so that the injury done to a man ought to be such that vengeance cannot be feared.
+- One change always leaves the way open for the establishment of others.
+- The distinction between children and adults, while probably useful for some purposes, is at bottom a specious one, I feel. There are only individual egos, crazy for love.
+- To understand the nature of the people one must be a prince, and to understand the nature of the prince, one must be of the people.
+- Politics have no relation to morals.
+- I'm not interested in preserving the status quo; I want to overthrow it.
+- Whoever conquers a free town and does not demolish it commits a great error and may expect to be ruined himself.
+- It is necessary for him who lays out a state and arranges laws for it to presuppose that all men are evil and that they are always going to act according to the wickedness of their spirits whenever they have free scope.
+- A return to first principles in a republic is sometimes caused by the simple virtues of one man. His good example has such an influence that the good men strive to imitate him, and the wicked are ashamed to lead a life so contrary to his example.
+- Men rise from one ambition to another: first, they seek to secure themselves against attack, and then they attack others.
+- Benefits should be conferred gradually; and in that way they will taste better.
+- Since it is difficult to join them together, it is safer to be feared than to be loved when one of the two must be lacking.
+- Before all else, be armed.
+- The main foundations of every state, new states as well as ancient or composite ones, are good laws and good arms you cannot have good laws without good arms, and where there are good arms, good laws inevitably follow.
+- War is just when it is necessary; arms are permissible when there is no hope except in arms.
+- Men are so simple and yield so readily to the desires of the moment that he who will trick will always find another who will suffer to be tricked.
+- The wise man does at once what the fool does finally.
+- Men are so simple and so much inclined to obey immediate needs that a deceiver will never lack victims for his deceptions.
+- Never was anything great achieved without danger.
+- A prince never lacks legitimate reasons to break his promise.
+- The more sand has escaped from the hourglass of our life, the clearer we should see through it.
+- It is not titles that honor men, but men that honor titles.
+- One who deceives will always find those who allow themselves to be deceived.
+- There is no avoiding war; it can only be postponed to the advantage of others.
+- Men should be either treated generously or destroyed, because they take revenge for slight injuries - for heavy ones they cannot.
+- Princes and governments are far more dangerous than other elements within society.
+- God is not willing to do everything, and thus take away our free will and that share of glory which belongs to us.
+- He who wishes to be obeyed must know how to command.
+- The promise given was a necessity of the past: the word broken is a necessity of the present.
+- When you disarm the people, you commence to offend them and show that you distrust them either through cowardice or lack of confidence, and both of these opinions generate hatred.
+- Of mankind we may say in general they are fickle, hypocritical, and greedy of gain.
+- The fact is that a man who wants to act virtuously in every way necessarily comes to grief among so many who are not virtuous.
+- It is double pleasure to deceive the deceiver.
+- There are three kinds of intelligence: one kind understands things for itself, the other appreciates what others can understand, the third understands neither for itself nor through others. This first kind is excellent, the second good, and the third kind useless.
+- Men shrink less from offending one who inspires love than one who inspires fear.
+- The one who adapts his policy to the times prospers, and likewise that the one whose policy clashes with the demands of the times does not.
+- Whosoever desires constant success must change his conduct with the times.
+- The first method for estimating the intelligence of a ruler is to look at the men he has around him.
+- A son can bear with equanimity the loss of his father, but the loss of his inheritance may drive him to despair.
+- It is better to be feared than loved, if you cannot be both.
+- For among other evils caused by being disarmed, it renders you contemptible; which is one of those disgraceful things which a prince must guard against.
+- The new ruler must determine all the injuries that he will need to inflict. He must inflict them once and for all.
+- Where the willingness is great, the difficulties cannot be great.
+- It is much more secure to be feared than to be loved.
+- Nature that framed us of four elements, warring within our breasts for regiment, doth teach us all to have aspiring minds.
+- We cannot attribute to fortune or virtue that which is achieved without either.
+- The wish to acquire more is admittedly a very natural and common thing; and when men succeed in this they are always praised rather than condemned. But when they lack the ability to do so and yet want to acquire more at all costs, they deserve condemnation for their mistakes.
+- There is nothing more difficult to take in hand, more perilous to conduct, or more uncertain in its success, than to take the lead in the introduction of a new order of things.
+- War should be the only study of a prince. He should consider peace only as a breathing-time, which gives him leisure to contrive, and furnishes as ability to execute, military plans.
+- Tardiness often robs us opportunity, and the dispatch of our forces.
+- There is no surer sign of decay in a country than to see the rites of religion held in contempt.
+- Hatred is gained as much by good works as by evil.
+- If an injury has to be done to a man it should be so severe that his vengeance need not be feared.
+- A wise ruler ought never to keep faith when by doing so it would be against his interests.
+- No enterprise is more likely to succeed than one concealed from the enemy until it is ripe for execution.

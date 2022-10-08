@@ -1,0 +1,106 @@
++++
+author = "Ainsley Harriott"
+title = "Ainsley Harriott Quotes"
+quotes_len = "100"
+description = "the best 100 Ainsley Harriott Quotes"
++++
+- It's a brilliant place to be. It's rewarding. Gardens are so rewarding.
+- We were lucky as kids - whenever we came home from school, Mum was there.
+- One of the nicest things about taking your kids to a restaurant - Thai or Chinese for example - is having all the dishes in the middle of the table so that you can try a little bit of everything.
+- We were brought up with having a love of your garden, having somewhere you can go in, it's your little sanctuary, you can go there and you can switch off.
+- I do feel that over the years from watching programmes that tell people 'you're not good enough,' I just don't like it.
+- I say time and time again - yes, cooking is wonderful to cook for your loved ones and see them eat the food but the most important thing is getting them all sat around the table together.
+- To me, Caribbean food is about fresh, seasonal produce - using what's in season to create vibrant and great tasting food. The spicing is also important. A dish doesn't necessarily need to be hot, but spice is important to the flavour.
+- I want to help others smile and be kind as often as possible.
+- I don't iron my underwear and socks, but I like things to be organised.
+- The great thing about coming to Melbourne is that people talk about Sydney being the food capital but Melbourne is a lot more; it has that residential feel, a feeling of homeliness. When you go to restaurants, it's known as a creative, artistic city. That's what you get with the food.
+- If I hadn't become a chef I would have loved to be a top tennis player, although I was never good enough so it wasn't really an option. But that has never dimmed my love of the game, which started in childhood when I was lucky enough to be a ball boy at Wimbledon.
+- I'm so fortunate that I've chosen the right career path. Yes, perhaps I could have been out there with my own restaurant earning a load more dosh, but television has been good to me.
+- When you're at the top you have to know how to delegate without putting the fear of God into people.
+- Growing up, a black face on TV was really rare.
+- So I've got mates I've known since I was five years old. Their children know my children. There's something really lovely about it. When you're an immigrant - my parents were immigrants, their brothers and sisters lived all over the world, Florida, Jamaica, some in Europe - it's a grounding thing. That community is critical.
+- People are frightened of the unknown.
+- I don't just loving cooking in a vacuum, as it were; I love cooking for people, with people, and laughing.
+- I'm all about big, bold flavours! Roasts! Cheese! But I do like a neat work surface.
+- Food is an integral part of Caribbean life - it's diverse just like Caribbean culture, with flavour influences from India, Europe, China, South America and Africa.
+- I used to take vitamins, but I think diet is the most important thing. If you have a good diet, there's no need for that stuff.
+- My books are easy to use and real - and guess what, I sometimes use convenience food in my recipes!
+- Bread's so important for me, it makes such a difference. I like it with a lovely bit of cheese on it, sometimes just with butter, or with some fresh soup.
+- It's quite true to say that if you work with marvellous fresh ingredients, the simplest dish is taken to another level.
+- You've got be a good communicator in almost any job nowadays - but if you're enthusiastic and committed in your job, good things will come your way.
+- I must admit that I do love to dance, but doing it in front of the nation is a whole different matter!
+- I was a bit of a show-off at school. I told jokes a lot because I wanted to have friends.
+- I've lost both my parents and I don't think you ever get used to it.
+- It's my nature to be happy, and food is something I'm passionate about.
+- In our house caring about food is pretty instinctive.
+- My mum wanted me to be a doctor because she worked in nursing. So she was quite disappointed when I came back from a holiday in France, and said I wanted to be a chef.
+- I sometimes wish I was 10 years younger.
+- It's important to be dedicated and enthusiastic when you're starting a career. It might take a long time to get established and the money won't flow in straight away.
+- I certainly love a boogie and once the music starts I'm usually one of the first out there on the dance floor.
+- I love energy, I love to give people energy, I love to feed off energy - it makes me happy.
+- Shouting on TV feels like it almost gives viewers licence to do it in real life.
+- I think everyone knows that I'm the type of person who can have a good time without drinking.
+- I'm a warm person and I like people to feel comfortable - if they're comfortable they're going to relax, cook and feel good.
+- I dislike anger so much, I even find it difficult watching 'EastEnders.'
+- My brother, a businessman, is the main cook in his home and my sister teaches cookery. Good food and good music were the mainstays of my childhood.
+- I'm a classic cheddar man, I really do like it, though I don't mind a good Stilton or blue cheese.
+- The kitchen is the place you feel relaxed.
+- All the time I'm trying to evolve, I'm trying to do different things, bring new flavours to people, not just put my name on the something for the sake of it.
+- I studied music at school and played the recorder. Later in life music was a great way of supplementing my income because I was paid really badly as a young chef. Luckily an old friend - we did music at school together - and I formed a duo, The Calypso Beat, which later became the Calypso Twins.
+- Mum and Dad used to do a lot of entertaining. We had quite a nice house, so everybody descended on us at Christmas - aunts and uncles, who weren't even aunts and uncles.
+- Everywhere I have gone in the world, even though we don't speak the same language, food is the same language.
+- Think about your first kiss - if you did it and it was bloody awful, you might not do it again. It's the same with cooking - you start off gradually, you get your confidence, and you build on that. Don't be too adventurous to start with - learn how to cook one dish well.
+- What I like best is showing people how to have fun in the kitchen. And sharing my love of cooking.
+- You can eat interestingly without having to spend a lot of money, with a little bit of preparation.
+- A lot of people go for the serious angle because, ultimately, that's what it's all about. But it doesn't necessarily mean that's the only way of cooking.
+- Our house was always full of friends and family and we would all sit down to enjoy my mum's Caribbean food, which was always a generous and shared experience.
+- Although my family is originally from Jamaica, I grew up in a diverse community in south London. As my parents were immigrants they made every effort to integrate and we used to go to a wonderful church where we befriended families from all over the world.
+- I think anything is good that introduces food to people and brings food to people.
+- When you look at people cooking in Britain - and Dubai, too - they're not that adventurous. They need to be encouraged somehow. And not everybody needs to be shouted at.
+- In my 20s, I was body surfing in Spain and the current dragged me out. I was waving at my friends who thought I was messing about, but I was drowning. I managed to swim in on my back but it scarred me.
+- My dad was a great eater but Mum was the cook.
+- I love the humour of the British and I love the countryside.
+- People know that when they watch an Ainsley programme or get an Ainsley book it's going to be something that is approachable and something that is achievable and ultimately something that is rewarding.
+- Honey's just not honey. There's so many different varieties, so many different flavours.
+- I was one of those that didn't so much go to the discos or the clubs to drink. I went with a towel around my neck. I was ready to sweat!
+- When you come to Jamaica, there's a handful of things you simply have to try that's right on the top of the list, and I think jerk chicken definitely has to be number one.
+- In London, you can visit, in a way, every part of the globe within the span of a few streets. It's truly amazing and, whatever your mood, you're sure to find something to your taste.
+- People can be comfortable, really, once you invite them into the kitchen.
+- I very much consider myself British.
+- I want to have a relationship with my kids. I want them to be free with me, to have a good relationship.
+- To be honest, 'Ready Steady Cook' was a great opportunity, but I did compromise myself. I was stood there quizzing chefs on what they were doing when I knew exactly what they were doing and why.
+- People who drop litter really stress me out. I have been known to chase after people and say, 'Sorry, but you've forgotten something,' and then hand it back to them.
+- I used to quite like the idea of zooming in and out of traffic quite quickly, but when you get a decent car and kids in the back, you become more courteous.
+- When I worked as a chef I had a happy brigade. I didn't run it with a rod of iron because I didn't need to me. I honestly believe that relaxed happy staff will be reflected in the food.
+- My Mum was the main reason why I became a chef. She influenced all of my family to feel free in the kitchen - it was the centre of our home and I have wonderful memories of helping Mum cook and experiencing the love and patience that went into the food.
+- We've become lazy and a bit spoilt and we want our food quickly and easily.
+- My dad Chester was a pianist and later a well-known television entertainer so football was never really something that was on his radar. However when I was a young boy a family friend took me to see an Arsenal game and from that moment on I was totally and utterly hooked.
+- When we talk about foodies, we're talking about less than five per cent of the population who eat nicely. For most people it's just fuel: 'I gotta feed the kids.'
+- People always think I'm this zany character. But I think I just see the funny side of life, I don't see the negative side, and I think that's a very good energy to be around.
+- To a degree and If I'm playing a game, I do my best to win.
+- With me, you know what you get - approachable food.
+- My children are enthusiastic about food, it's great when you see them with girlfriends or boyfriends and they talk about food in a knowledgable way.
+- You don't realise until you do 'Strictly' how obsessed people are.
+- Christmas for me means starting the day with ackee and saltfish, and cornbread muffins.
+- Everybody's got the ability to cook. They just have to be shown.
+- My mum was the most wonderful cook and our house was always full of delicious food and interesting people. I remember dad entertaining the likes of Des O'Connor and Bruce Forsyth. But what really shaped my childhood were the amazing Jamaican dishes that mum produced so effortlessly.
+- I think what balances me out more than anything is long walks and eating well.
+- A typical Sunday meal will be brunch at 11 A.M. I'll probably do muffins, proper scrambled eggs and sweetcorn fritters, which the kids love. Kedgeree's another thing I like, and if any of the West Indian family are over, definitely ackee and saltfish.
+- Cooking is about love, really, and cooking for your children is all about caring for them, building relationships.
+- There have been times when, as a chef, I've bawled at staff because something's not quite right. But later I'd reflect and feel guilty.
+- I like a bit of chocolate as much as the next person, but cheese is a complete world on its own. The sheer variety is staggering and there's always going to be a cheese to tickle your taste buds.
+- People must plan their meals better.
+- I have a young heart.
+- I was quite shy. I found my way, I suppose, with food. It's a confidence builder. How else in life do you get that opportunity for someone to say to you, 'Wow, that's really great'? You put food in front of someone and, 'Ahhh, I really enjoyed that!' It's a lift.
+- Performing has always been instinctive to me. I remember people saying, 'he doesn't know if he's a chef or an entertainer.' But what's wrong with being both? It's like saying you can't run the 100 and the 200 metres.
+- If you want to go way way back, then I'm Scottish. My great great grandfather was Scottish, James Gordon Harriott, and a white Scotsman too.
+- When it comes to cooking, it's a skill you learn and develop.
+- I like introducing people to new dishes and new flavors.
+- Every cookbook can be a bit patronising.
+- I haven't got tinted windows. I get the odd 'Oi, Ains' and 'What's he like,' or 'I do enjoy your programmes,' depending on where you are. That's quite nice.
+- I grew up not being intimidated by the kitchen.
+- I'm always interested in cooking and helping to bring people together.
+- I've propelled myself into the media world and I've been able to get my style of cooking across with my personality.
+- What I've tried to do over the years is to kind of open the door to say 'It's a meal, it's OK, don't panic, don't get worked up about it.'
+- The decline of the Sunday meal is a major concern because it means that family values are being forgotten. Once that creeps into mealtimes, it will begin creeping into other areas.
+- Mum passed on her cooking skills to all her children.

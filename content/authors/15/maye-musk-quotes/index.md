@@ -1,0 +1,106 @@
++++
+author = "Maye Musk"
+title = "Maye Musk Quotes"
+quotes_len = "100"
+description = "the best 100 Maye Musk Quotes"
++++
+- I was a perfect mother.
+- Almond milk is not a milk; it's not a beverage, really.
+- My kids do very extraordinary things that make sense.
+- Makeup transforms me. I feel like I'm in disguise when I walk my dog without makeup on.
+- At 15, I was modeling. I had to do my own hair and makeup. I also made my own clothes because I grew up in South Africa, where fashion was six months behind because of the seasons.
+- My mother worked as an artist until she was 96.
+- For fifty years, I was a part-time model, but basically, I'm a nutritionist, a teacher, a mother.
+- I have to plan all my meals and snacks every day, or the wheels come off, and I gain weight.
+- I don't like gluten-free foods - they're processed and unnecessary.
+- I don't do a lot of fad diets or supplements and don't recommend that.
+- When you have confidence, you do feel like you're much younger.
+- Get your nutritional information from registered dieticians, not miracle healers. You'll be happier, and it's less expensive.
+- I was a nerdy student.
+- My best piece of style advice is to keep your wardrobe small and love everything in it.
+- I never helped my kids. I was working too hard. My kids had to be responsible for themselves.
+- I never thought I'd be a Covergirl at almost 70.
+- I always said, as a dietician, age doesn't matter. As long as you're doing good research and helping people eat well, it doesn't matter what age you are.
+- I just think a big smile and feeling confident makes you beautiful.
+- I just want to work.
+- For most of my adult life, I always had this pain in my gut, but because I had to survive, and I had to pay the rent, I needed the roof over our head and food for us to eat and some clothes.
+- You have to know your trigger foods, and for me, it's sweet foods.
+- My personal style icons are Diane Von Furstenberg and Linda Fargo. For strength and their own style, Christine Lagarde and Angela Merkel.
+- The beehives from the '60s were gorgeous. The big hair from the '80s wasn't.
+- I don't care why a client books me, as long as they book me.
+- People always want to know what I fed my kids. I gave them real food, not frozen pizza.
+- When the kids were growing up, they learned to be independent. I told them, 'As long as you're doing something good, it's worth pursuing.' That's why I invested in them in the first place and gave them as much as I could for their first company, Zip2.
+- My parents were the only people to go to South Africa from Australia in a single engine plane... the two of them, no radio... you had to fly down low to see the street signs to know which city you were in... most people couldn't speak English.
+- I've always had my own business as a dietician, so I eat well.
+- Poverty makes you work really hard.
+- You have to stay active; it keeps the bones flexible.
+- I grew up in the happiest home - my parents were really adventurous, and I was very lucky.
+- If somebody says, 'That's Elon's mum,' which happens quite a bit, they are usually stunned; sometimes they cry. I'm flattered because, I mean, to them, he's saving the world. They just feel he's the only hope.
+- If you try to hold onto the old trends, then you'll look old.
+- I pretty much eat when I'm hungry, and I don't eat when I'm not hungry. That is my best philosophy for maintaining my weight.
+- I try not to give advice unless people ask me.
+- I don't go in the sun, and I wear SPF daily. I'll wear a hat and cover my hands, too.
+- I eat the basic food groups: fruits and vegetables, whole grains, low-fat dairy, good fats and oils. I do have butter on my bread because it's delicious. I eat meat, especially chicken, sparingly, because I'm not a good cook.
+- I don't dye my hair. It's so fabulous. I had brown hair for so long. I was always getting my roots done. Sometimes I did it myself because I couldn't afford to go to a hair salon. When I turned 60, I decided to see what color I am underneath. I started dyeing my hair a very light blond and then I let it grow out. I cut it very short.
+- Eating well gives me a lot of my energy.
+- I just think everything my kids do is fabulous.
+- I follow science and common sense. Science says you should eat a variety of foods and eat more fruits and vegetables - I do that.
+- I take 12-bean soup mixes, soak the beans overnight, boil them up, add tomatoes and flavoring, and freeze it. I'll have a cup a day. It's very nutritious.
+- I eat vegetarian at home, so I always have yogurt and milk, eggs, whole wheat bread, whole grains. Lots of vegetables and fruit. Cereals and oatmeal. That type of thing.
+- Looking back, letting my hair go natural was an amazing decision because I started getting major ad campaigns. I also signed with agencies in Europe and travelled to many different cities, which I loved. People would stop me in the street and say they loved my hair!
+- I love a massage - I should go more often, but I think I go once a month.
+- With wearing makeup a part of my job as a model, one might think I'd get tired of it, but I absolutely love it.
+- Gluten is so ridiculous. Don't invite me to a dinner with someone who is gluten-free. I ruin the party.
+- When I go to shoots, the young models are excited to see me. It proves they can have long and successful careers, too.
+- I'm always just happy to see when models are working hard, doing well, and really, above all else, doing good things. I love when they work for charities or inspire education. Look at Karlie Kloss promoting education - that's wonderful.
+- I started doing runway work when I was 15, and I remember meeting a model who was 30 - ancient, for the industry - and everyone was so happy to see her. As I've gotten older, I've experience the same thing. People are just thrilled to see me modeling!
+- I was a science nerd. I have two science degrees. I enjoyed the sciences, nutrition, so I always modeled part time, thinking it would end.
+- Steer clear of fad diets.
+- I would say 20 percent of my time is alone, which I love.
+- I don't accept bad manners, so all my grandchildren are very well behaved, just like my kids.
+- I like to tweet out nutrition research because I did my bachelor of science degree in dietetics.
+- If there's foods I don't like, like kale, it doesn't mean that I'm not efficient in my diet; it just means I can eat broccoli and other green vegetables. That's what people don't understand, is that as long as you're having a variety of foods in your diet, you don't have to have the food of the week that's everyone going crazy about.
+- I have to avoid sweet food because it's my weakness, and it's really hard. What you eat will definitely affect your skin, so I really try to stay away from sweets.
+- I'm considered a huge model because I'm a size six. But... I had a standard body size for catalogues.
+- Aging doesn't scare me at all. You can handle the bumps each year. They're traumatic when you're younger, and they're hurtful, and you go through some terrible times, and you feel terrible.
+- I don't like exercise. I'm not good at it.
+- My parents were very famous, but they were never snobs.
+- Makeup does a lot for your confidence. When I put makeup on, I walk taller. I smile more. I feel good. I know I look prettier. Even if I just put day makeup on.
+- I love smokey eyes and glossy lips.
+- I always have snack-y foods with me, like nuts and individually wrapped prunes. I don't like getting hungry. When you're hungry, you'll look for foods, and it's never salad; it's always muffins!
+- I cap my shoe collection at 40.
+- When Elon was 17 and my daughter was 15, they really wanted to move to Canada, where my family is from. I said no, because I wanted to do a Ph.D. in Johannesburg, and I was getting lots of modeling work there. But Elon and I went over to visit, and while I was gone my daughter sold my home and my car and had a big garage sale with all my furniture.
+- I'm not such a huge hater of anti-aging things because when I put makeup on, I look younger. You can brighten up your eyes and look more glamorous and more confident.
+- I think that's one thing that's kept me working in this industry for so long: my interest in self-representation. It's a big part of my role as a dietitian, too - helping people feel happy, healthy, and confident exactly as they are.
+- When I got divorced, I knew I needed to step it up, so I taught nutrition at a college, modeled, and built my dietitian practice all over Canada.
+- After divorcing, I left South Africa to live in Toronto. They were tough years. On my own with three young children and no income. I'd cry when they spilt milk because I didn't have the money to buy any more.
+- If I had a modelling job and then it became a poster, it meant that my kids and I could have turkey for Christmas dinner. Otherwise, we had chicken.
+- Ralph Lauren is wonderful.
+- I'm so flattered that at 69, people are booking me and finding me on Instagram.
+- I'm not good at sports, but I do exercise because we have to move. Besides walking my dog four times a day, I go to the gym and do 30 minutes on a stationary bike while reading a book because I get bored, then 10 minutes of weights and 10 of stretches.
+- When I was younger, I was mousey brown and started putting in highlights with each child. By the time I had my third baby, I was pretty much a blonde, and I stayed that way until I was in my late 50s.
+- I've been on social media for quite a long time, maybe because I've been sending out nutrition information.
+- I've never been scared of aging.
+- I don't recommend being gluten-free unless you have sensitivity.
+- I spend three hours a day working on my social network profiles. I think about the right people to tag, the ones who might generate new leads. It's my work, my self-promotion.
+- First of all, the skin is the largest organ in the body, so if you're going to eat well for your heart or for your kidneys or for your liver, then, pretty much, that will help your skin as well.
+- My dog wakes me at 6:30 in the morning, so pretty much, I have to get up.
+- I would model when they wanted me, and as I got older, they wanted an older model. I was quite willing to be mother of the bride at 28. I was quite happy to be on the cover of a grandparents' magazine at 42; I have no ego about that.
+- I would say, anyone who knows me says they don't envy my life. I've just been through very hard times, yes.
+- I never told my kids, 'You've got to work hard.' I just worked hard, and they followed my example.
+- It's been amazing to see how brands, magazines, and designers are focusing on real stories from older women.
+- They were responsible. I had very good kids. I was very lucky.
+- I don't like kale, so I don't eat it.
+- I was the oldest model in South Africa - I grew up in South Africa, but I was born in Canada - and then when I moved back to Canada, to Toronto, at 42, I was a grandmother doing front covers. I was the oldest model in Canada.
+- I'll continue working as long as people want to hire me.
+- I definitely think the beauty industry is wising up. We are seeing a lot more representation and different people.
+- All three of my kids grew up seeing me on posters.
+- I live by the seat of my pants.
+- When I go out on the runway, I can feel the audience vibrate.
+- I'm a U.K. size 8, so not skinny.
+- I just wanted to be the best dietician in the world - but then modeling took over.
+- I had two brilliant children and one genius. Elon could figure out things when he was very young and was always advanced for his age. He could hold a conversation about something that was way beyond his years, and he read voraciously.
+- If you can eat five fruits and vegetables a day, that alone can totally change your diet.
+- I don't take supplements - I get nutrition from food.
+- Peter Lindbergh is the most charming man - I did a Gap commercial for him, and he was just so sweet.
+- All my kids are brilliant.

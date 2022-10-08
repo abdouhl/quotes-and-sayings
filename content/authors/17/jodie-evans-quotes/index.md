@@ -1,0 +1,15 @@
++++
+author = "Jodie Evans"
+title = "Jodie Evans Quotes"
+quotes_len = "9"
+description = "the best 9 Jodie Evans Quotes"
++++
+- In my fifties, I was still in creation mode. Now I have more of a responsibility to step back and mentor and offer wisdom, offer sign posts on the path.
+- In 2008, I was one of millions united for hope and change. As 2010 dawns, change looks to me like more of the same. Instead of peace, we got more war. Instead of health care reform, we have an industry win that requires Americans to buy health insurance without any real cost controls.
+- If we continue to create a world where there is poverty and disrespect, there will continue to be terrorism.
+- Since the start of the Occupy Wall Street movement, CODEPINK activists have joined the frontlines of the non-violent Occupy movement across the country.
+- What causes terrorism is disrespect, a lack of justice, and poverty.
+- George W. Bush presided over an international network of torture chambers and, with the help of a compliant Congress and press, launched a war of aggression that killed hundreds of thousands of men, women and children.
+- For us, the death of Osama bin Laden is a time of profound reflection. With his death, we remember and mourn all the lives lost on September 11. We remember and mourn all the lives lost in Iraq, Afghanistan, Pakistan. We remember and mourn the death of our soldiers.
+- For me, feminism is about equality. So, when someone works for a Wall Street firm and says they're a feminist, my eyes are going to roll.
+- I feel truth, beauty, love, grief, anger, intimacy & alive in my body... Women in the global south live in their bodies much more than we in the global north. Not as distracted by patriarchy's controlling images - They know power is in their bodies. I am deeply grateful for the women who showed me the way home.

@@ -1,0 +1,54 @@
++++
+author = "M.I.A."
+title = "M.I.A. Quotes"
+quotes_len = "48"
+description = "the best 48 M.I.A. Quotes"
++++
+- You have to constantly redefine who you are.
+- In India, you see the way they embrace color in the culture - it's very celebratory of the existence of color. There's no rule of what color belongs together or doesn't belong together. They're not precious about it. It's very full-on.
+- I don't intentionally go: 'Ooh, what is provocative,' and try to do that. I just do stuff, and people go: 'Ooh, that's provocative.'
+- I have no ties to my dad. I had no communications with him; it didn't shape who I am or anything like that. I'm actually a product of my mom.
+- Matangi's mantra is aim, which is MIA backwards. She fights for freedom of speech and stands for truth, and lives in the ghetto because her dad was the first person in Hindu mythology who came from the 'hood, but had gained enlightenment through not being a Brahmin.
+- 'Paper Planes' was an accident. It wasn't a song we made for the masses. It took two years to get popular, and there were many fights about censoring the gunshot sounds.
+- I don't consider myself a musician. I'm an artist.
+- Madonna did amazing songs. She had an amazing sense of style, without a stylist. And she was flawed, and sometimes she admitted it. I'll fight the fight for Madonna. I think she should send me some chocolates or something to thank me.
+- It's interesting, because I named my first album after my dad because I wanted to find him. My second album was named after my mom because I felt like I learned all my creative talents I learned from her. All the survival stuff, too. And then the next album is 'Maya,' which is not my real name. It's fake.
+- I feel like people either love me or hate me, which is good, because that was the point of what I do. The point of M.I.A. is to be - it's either to be loved or hated. At least you evoke that much of a strong opinion about music.
+- I'm just so grateful for the 10 years that I had in Sri Lanka when it was in the middle of a war and I was getting shot at, because now and again I remember glimpses of those times, and I just go, 'Wow, I'll never, ever see that again in my life. And I'm never gonna feel that, and I'm never gonna feel for a human being like that.'
+- It's a bit weird, because I don't really know what people expect or think being political is; I just don't get it. What am I supposed to do as a pop star-stroke-revolutionary? Get up and put my balaclava on, go to the grocery store and then invent some Google viruses, and then go to rob a bank to fund my revolution on YouTube?
+- The theme of counterfeits, of those that produce and sell them, has always been part of the culture of M.I.A. When I was contacted by Versace, it seemed a great idea to invert the circle. Versace's designs have always been copied; now it's Versace that copies the copies, so those that copy must copy the copies. So this will continue.
+- In New York, everyone's really neurotic and talks about themselves all the time.
+- My father had no influence on my political beliefs, and to imply otherwise is wrong and irresponsible.
+- I remember taking my demo to every dance person in London. People were like, 'We don't know what this is!' The first people to champion me were a club in Manchester.
+- Before the Greeks were the Tamils. The Tamils are one of the oldest civilizations that's still surviving.
+- My record label always says you shouldn't talk about money because it makes people extremely uncomfortable. Refugees can't talk about money. Rappers can talk about money; refugees can't talk about money.
+- It is a coincidence that Mathangi is the Goddess of Music and the spoken word, which can be rap.
+- Tamils all over the world have a sense of belonging to the world itself, but our ancient roots come from India. I would like to explore India. I will keep coming back. This is the closest I can get to home.
+- The first 10 years of my life, I lived as 'Matangi.' When I came to England in '86, my first week of school was terrible because I would put my hand up to answer things, and no one would choose me because they couldn't say my name. My auntie came from Europe to visit us, and she was like, 'Just call yourself something else.'
+- I don't like the idea of spirituality done the way it's done. The only way I could understand it was through creativity, not by going to an Ashram, or finding a guru or joining a temple. I made work out of it.
+- Human beings around the world have to be taught to go, 'Tamil equals Tamil civilians first, and the Tamil Tiger is a separate thing.' And both of those groups are different. It's like a square and a circle.
+- I never pigeonhole myself into any religion, but I feel it has found me. I am trying to make sense of it... the essence of the Mathangi concept.
+- Sri Lanka is an island off the coast of India. There's two ethnicities there; one the Sinhalese, which is the majority and the government, and the minority, who are the Tamils. That's where I'm from. And my lifetime sort of began there; I spent 10 years, and I was there during when the war started and fled as a refugee to England.
+- At first, I found the music I was making really hard to find a home for. I felt like my attitude was really British, but not the actual sounds I was making. Back in 2003, when I made 'Galang,' there were no clubs that had an 'anything and everything' attitude.
+- Basically, when I went to school in Sri Lanka from age five onward, the classes there were sometimes sorted into a hierarchy of your skin tone. So the fairer-skinned kids sat at the front row, and the darker-skinned kids sat at the back by the poor ones who played out in the street all day long.
+- Me, it was always about being able to bounce around to where I wanna be. Like, with 'Arular,' people always say it's so political, but I think 50 per cent of the album is not very political at all. It's just really a shouty, shouty girl thing.
+- In my head, I actually think my songs are pop songs. I think, 'Damn, that's a pop song!' I can practice in front of the mirror with my hairbrush for as long as I want to. But when it finally comes out, it sounds avant-garde to people.
+- I don't understand why people make me want to make music that's a join-the-dots thing by numbers. I find it really difficult when people say, 'Aw, you should have made a really big hip hop record, that would have been really good for you' or, 'You should have made a song like Lily Allen, that would have been so great.'
+- Manhattan seems pretty developed, you know what I mean? Like, it has peaked in culture.
+- You have, in America, you have gang signs. Well, 5,000 years ago, there was thing called a mudra, which is your sitting position when you do yoga or you're meditating or you're praying or whatever. And there's not a lot of them that are named after gods and goddesses, but the middle-finger is specifically named the Matangi mudra.
+- When I first came out, I was a film student, and my mom sewed clothes. I was already doing a million things then, whatever it took to survive. If I had to braid someone's hair to get one pound for my lunch money, that's what I did.
+- I don't think immigrants are that threatening to society at all. They're just happy they've survived some war somewhere.
+- As an artist, you want to play around with mediums and see if you can get the point across in different way.
+- I was part of the generation that pushed the Internet. In fact, I broke as an artist in the U.S.A. because of the Internet.
+- I was shot at for being a Tamil in Sri Lanka, and then, everyone was calling me a Paki in London, and I'm not even Pakistani.
+- When I started off in England, HMV or Tower Records would come to meetings and be, like, 'We just don't know what this genre is.' I don't really fit in between Rihanna and Beyonce.
+- In 2004, I went onstage for the first time. They put a mike in my hand and pushed me out the door into the crowd. I did the three songs I had recorded and got out. It was the worst day of my life.
+- I don't support terrorism and never have. As a Sri Lankan that fled war and bombings, my music is the voice of the civilian refugee.
+- My uncle was the first brown person to have a market stall on Petticoat Lane in the 1960s. He worked his way up from the street. He was homeless, but eventually he got a car so he could sell from the boot. And by the 1980s, he was a millionaire wholesaling to companies like Topshop. So in a way, fashion put me in England.
+- I feel like a mirror reflecting back everyone's perception of me.
+- My dad grew up in a mud hut and studied by candlelight. He was 14 when he got a scholarship to Russia. He was super clever - the cleverest person. He landed in 5ft of snow, and was alone at 14, studying science and engineering. He didn't have a bed, and he slept on a table.
+- Versace designs have always been bootlegged. Now it's Versace bootlegging the bootleg for the bootleggers to bootleg the bootleg.
+- Nike is the uniform for kids all over the world, and African design has been killed by Nike. Africans no longer want to wear their own designs.
+- I am the bridge between the East and the West. I don't want to abandon one for the other.
+- When we moved to England in 1986, I was ten years old and I didn't know anything about punk or hip hop. The only words I knew in English were 'dance' and 'Michael Jackson.' We got put in a flat in Mitchum, and the council gave us second hand furniture, second hand clothes and a second hand radio that I took to bed with me every night.
+- My giving birth was nothing when I think about all the people in Sri Lanka that have to give birth in a concentration camp.

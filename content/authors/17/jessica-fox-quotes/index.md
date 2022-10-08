@@ -1,0 +1,16 @@
++++
+author = "Jessica Fox"
+title = "Jessica Fox Quotes"
+quotes_len = "10"
+description = "the best 10 Jessica Fox Quotes"
++++
+- I'm definitely Australian and wouldn't have it any other way. I've been formed as an athlete in Australia.
+- At the end of the day, the priority is to perform, and the priority is to know that even if women aren't in the spotlight or in the limelight the whole time, we're still bringing in results, and we're still doing what we do best. For me, I'm doing what I love: I love training, I love kayaking and racing, and I'm getting results. Life is good.
+- I was so driven in high school but did sometimes wish I could go out with friends, go to parties, and be a normal teenager. But having mum as my coach at home meant I couldn't sneak around.
+- There is such a rich sporting culture in Western Sydney, one that nurtured my sporting aspirations. Having Penrith Whitewater Stadium right at my doorstep was such an amazing advantage. It was a springboard to my success as an athlete, and I feel really fortunate to have grown up in this part of the world.
+- I feel a lot of support from the people of Penrith and the Blue Mountains and will always remember the amazing welcome home I received after the London Olympics. But more importantly, it's during hard times that Westies come together.
+- People like to watch surfing, but maybe the girls get the wrong kind of promotion and the wrong kind of press. I might be called a feminist for saying it, but it's like the girls are promoted sexually rather than what they're achieving.
+- I read Leisel Jones' book. She said she retired at 27 and said, 'Now what?' because swimming was the biggest part of her life. So for me, that's why I'm keeping up my studies on the side even if it's going to take a bit longer than normal, but at least I'll have it.
+- Women's sport is genuine, it's pure and it's raw... we don't do it for the money.
+- At the end of the day, if we don't show female sports on TV, how are sponsors going to want to sponsor women? And if we don't support the women, how do you expect us to get results? It's a bit of a catch-22.
+- When you surround yourself with like-minded athletes who are all going through the same thing as you, it gives you more drive and strength to get through those moments when you don't want to do it any more, when you think it's hard.

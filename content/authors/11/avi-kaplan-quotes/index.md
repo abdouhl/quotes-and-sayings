@@ -1,0 +1,31 @@
++++
+author = "Avi Kaplan"
+title = "Avi Kaplan Quotes"
+quotes_len = "25"
+description = "the best 25 Avi Kaplan Quotes"
++++
+- Our body is our instrument so it's really important for us to treat it right.
+- Signing with Fantasy is an absolute dream come true. It's such a blessing to work with a label that truly cares about the soul of the music and to be on the same roster as artists that I've looked up to for as long as I can remember.
+- I don't really think there's a genre that we couldn't do, but it wouldn't sound like that genre, if that makes sense. I think we could take any song, but it would sound like us. If you're doing a country song, it could maybe sound a little bit country, but it's going to sound like Pentatonix.
+- I love vocals and what they can do, and the different layers they can create, and I really want to bring that into folk music in terms of arrangements and stuff.
+- It's really important for me that the people who listen to my music get something that can hopefully help them get through whatever they're going through. Music is the only thing that's able to help sooth my soul in that way, and my goal is to always put things out there that that do the same thing for other people.
+- I know for me, music was the best drug for anxiety. So that's why I wanted to write the music that I do, because it always suits my anxiety. It's a huge part of my life, and being able to make music that can help people with their anxiety is a huge thing for me.
+- We were the choir nerds.
+- We didn't want to just be a cover group, we wanted to do our music, to be a band. Once we were able to do it, it was a little scary, but it was also something inspiring - something new, fresh for us to get into. It was amazing to see the reaction of our fans.
+- I get on my porch with my guitar, look at my trees, and write a song.
+- I think it would be awesome for us to do collaborations and to try to gel with the mainstream.
+- We really can't go out and party every night like a lot of bands do - we have to keep our voices right for the show. It's a bummer, but you gotta do what you gotta do to live the dream.
+- We know how to convey exactly what we want to convey. We know how it makes us feel and we know exactly how to show our fans how to feel the same way.
+- I mean four hours of rehearsal done, trying out for 'The Sing-Off,' and now winning is just a dream come true for all of us.
+- I feel like we're always going to be the underdog, but we like that. It's a really cool thing and it inspires us. It pushes us.
+- I go by 'Avi' because it's easier, but Avriel is my full name, and the Sequoias, that represents my home. So it's the truest version of me, it's where I came from.
+- I knew I wanted to do music, but leaving such a successful career one would think I'd kind of shot myself in the foot. I knew I made the right decision, and at the end of the day it's up to me to get where I want to go, but it's a lot to take on.
+- Folk music is very honest, it's very humble, it's very organic, and the voice is exactly that. And so I'm very excited to put the two together.
+- I always loved touring in Pentatonix; really the only reason it was tough was the pace and no breaks.
+- It's extremely important, a cappella groups get so easily pigeonholed into essentially just being a cover band, and we want to be at the forefront to show it's its own art form and just a different way to have a band. Only we just use our voices.
+- I feel like people have been so used to listening to choirs during Christmas, so they love voices when it comes to Christmas, and that is exactly what we are.
+- That's really always been the music that I've been in love with, always the music that I've written growing up. Even through Pentatonix, folk music has been really my heart and soul.
+- Obviously when you write songs you've got to record them, but just writing the songs is one of my favorite things to do.
+- If you're going to start a group, make sure the people you're starting it with are in sync.
+- For all the different videos that we got to dress up in, I love fantasy stuff, so for 'Radioactive,' I felt like I was a warrior, and for 'Daft Punk,' I felt like I was a space warrior.
+- Being in Pentatonix, we basically toured year round, so it was tough to just get a break.

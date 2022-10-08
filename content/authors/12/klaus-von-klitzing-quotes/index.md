@@ -1,0 +1,14 @@
++++
+author = "Klaus Von Klitzing"
+title = "Klaus Von Klitzing Quotes"
+quotes_len = "8"
+description = "the best 8 Klaus Von Klitzing Quotes"
++++
+- Semiconductor research and the Nobel Prize in physics seem to be contradictory since one may come to the conclusion that such a complicated system like a semiconductor is not useful for very fundamental discoveries.
+- The publicity of the Nobel Prize has made clear that the research work connected with the Quantum Hall Effect was so successful because a tremendous large number of institutions and individuals supported this activity.
+- The discovery of the Quantized Hall Effect (QHE) was the result of systematic measurements on silicon field effect transistors - the most important device in microelectronics.
+- The Nobel prize is unquestionably the most famous prize in the world, and very often, the prize is an object of prestige not only for a person but also for a research center, a country, or for a particular area of interest.
+- I've always wanted to answer all the questions that nature posed for us.
+- I am happy that I have so many friends all over the world who contributed to my research work, and I believe that also in the future, basic research offers the best opportunity of reaching across borders and overcoming ideological barriers.
+- I believe that every Nobel Laureate has the feeling that this prize is really a gift - because nobody can or should work just for this prize.
+- I am certain that our Max Planck Institute in Stuttgart will increasingly be an international meeting place open to scientists of all countries.

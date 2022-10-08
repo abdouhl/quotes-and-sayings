@@ -1,0 +1,106 @@
++++
+author = "Joey Jordison"
+title = "Joey Jordison Quotes"
+quotes_len = "100"
+description = "the best 100 Joey Jordison Quotes"
++++
+- I play guitar all the time, and I'm constantly thinking of songs... Every time I pick up a guitar, I come up with different riffs, all different bands I've been in. Sometimes there is a song or riff that could only belong with Slipknot, and I just can't use it for anything else, regardless of whatever happened.
+- I lie more with drums and the more heavy and darker aspects of music.
+- I'm not more into one scene than any other, and that's why I feel very lucky to be able to go into two different styles of music and be successful at both.
+- When everyone tells you, 'No, no, no,' your creative forces get a little twisted and turn into something more apocalyptic than ever.
+- When someone's in the hospital - be it a family member or anyone that has something wrong with them - if you love 'em, then you visit them.
+- What better to get all the anger and stuff out for what I do in Slipknot than to play the drums? You're punching everything, really fast, concentrated.
+- Playing drums is how I communicate. It's how I speak to people. That's my God-given gift.
+- When I first heard Korn, they blew me away, and I've been a fan ever since.
+- Without Metallica, I wouldn't be doing what I am doing. I have every Metallica record, of course, and I would spend hours on drums in my parents' basement with the stereo behind me, cranking those records and learning Lars' drum beats, beat by beat.
+- That's where I learned, basically, all my skills from the drumming that I do - most of my style comes straight from death metal.
+- I got over the transverse myelitis stuff; I'm walking great, and I'm playing faster; I mean, I'm just playing all the time. I have to, just as exercise.
+- Proper Sabbath is Sabbath with Bill Ward. I'm sorry, it just is.
+- The riffs, lyrics, and drums of 'Open Your Omen' will tell you a lot.
+- A great drum record has to sound good; in fact, it should sound special. It should capture the richness and the actual tones of the drums themselves, regardless of who is playing.
+- If you only play metal, it's going to be very apparent that you're a one-dimensional drummer.
+- You can't give up in life. You just can't do it, no matter what it is that is going on.
+- The simplest beats, on what rock music or any music has been formed on, can be the toughest beats to execute and perform, because it's really easy to not respect a simple 4/4 beat, because people always want to play fast.
+- Metal music is a very fan-oriented, fan-protected music - very sacred.
+- Every day, I look at life different; I don't take things for granted.
+- Every day is a good day above ground, and especially being able to play metal and being able to your craft and everything. You've gotta respect that, because it's something that can be taken away from you really quick.
+- Basically, death metal, as a musician on my part, it just changed everything as far as the technicality and where you could take music.
+- A lot of the time, I will write a guitar riff first. I don't write drum riffs first.
+- I'm constantly writing music and keeping myself busy somehow.
+- I sleep music. I wake up, and there's a riff in my head. Every step I take, there's a riff, a beat, or something.
+- There is no such thing as an easy Slipknot show. It doesn't exist. It's tough, but we wouldn't like it if it was easy.
+- How I found out is, I landed in Des Moines from a plane ride back from the Rob Zombie tour. I was, like, 'Okay, cool, I'm home. I can finally get some rest.' Once I landed, I turned my phone on, and my manager rang, and I'm, like, 'Oh, what?' He said, 'Paul Gray just died.'
+- The first mask I had was an original pale-white kabuki mask.
+- I suffered from asthma when I was a kid.
+- I've got so much material; like, it feels as if every day I'm coming up with so many riffs.
+- With me, I would never lose my sight of music.
+- I'm always in the right headspace! I live pretty much in isolation, so there are really no distractions. That's not a manufactured thing; it's just the way I live.
+- I'd been working on new Slipknot material since the end of the 'All Hope Is Gone' tour cycle, but I ended up with so much stuff, I had to take a step back and stop working on it.
+- I just can't bring myself to see Sabbath without Bill Ward, because he was such an integral part of that band.
+- 'Blood Host' is super heavy. Especially on the verses, it has an industrial stomp. It's one of my favourite tracks just because the plot of it is so heavy. It's a total crushing tune; it doesn't get any heavier than that main riff, just a straight quarter-note powerhouse.
+- It's not about the names or the faces: it's about the music we are creating.
+- I'm used to living out of a suitcase.
+- I got 'Reign In Blood' for Easter one year - how ironic is that?
+- People lump us into the nu-metal category, and there might be a hint of that stuff, but if you really listen to a nu-metal band and then listen to Slipknot, it's so apples and oranges that it's retarded.
+- Life takes you down weird paths.
+- I got really, really sick with a horrible disease called transverse myelitis; I lost my legs. I couldn't play anymore. It was a form of multiple sclerosis, which I wouldn't wish on my worst enemy.
+- I pretty much use the same stuff live that I use in the studio. I don't like the feel to change too much.
+- The power of music, and the power of your determination in life, especially when you're playing extreme metal like this... it just conquers. It conquers everything.
+- Slipknot's not about who's in the band. It's a lifeblood. It's a force. It's about a connection between a bunch of people.
+- Slipknot is hard work; I don't care what anybody says.
+- What made me want to play drums in the first place was Led Zeppelin and The Who. My parents had their records, and I grew up listening to them with the stereo cranked.
+- 'Vol. 3' is the most pleasing of our albums to me. And I want to keep making albums that are different from each other. And you can bet all our albums will have that twist that only Slipknot can do.
+- I'm so excited 'Doctor Who''s coming back. It's a great show, wild and exciting. I watched it as a kid, and it freaked me out.
+- That's the way a musician is. You're isolated, in a weird way, because music is haunting you as much as it's loving you. It's non-stop.
+- 'Master of Reality' rules; it's one of my favorite records of all time. It has some of the most evil riffs on it - and some of the sexiest riffs as well.
+- Always try and play with as many people as possible, even if it's not your style of music, because you will learn a lot.
+- I was in band all the way through high school, and I played in jazz competitions all across Iowa.
+- I've been into 3IOB since 'Battle Cry Under a Winter's Sun.' I've wanted to work with them since.
+- Playing drums, for me, is like breathing. It's like thinking. It's like eating. It's like walking.
+- First and foremost, I make music to satisfy my creative urges, but at the same time, I know my fans are waiting, so they're the ones that push me to keep going.
+- Heavy music is really getting its due. With nu-metal fallen by the wayside, real metal has started to surface.
+- I don't pay attention to critics.
+- The drum records that I like are ones on which the drumming didn't repeat itself. The players didn't stick to a format or formula.
+- The communication within Sinsaenum is really, really cool. As extreme as the music is, you might not realize how much we respect each other and how much we coach each other and how well we communicate.
+- I'm just as much into Emperor as I am Alice Cooper.
+- You can't think about what other people think. You just can't. It's stupid. You've got to look inside yourself.
+- I think that no matter how old you get, you are always learning about yourself.
+- I have a ton of Slipknot demos that I have at home. Maybe some day they'll surface; maybe they'll never be heard, but I don't translate them to any other band: they still stay in the Slipknot safe. I won't use them for anyone else besides Slipknot, if that ever happens again.
+- I love listening to old records. Stuff from the '70s, even disco and funk records and a lot of early rock albums - what's great about those recordings is that you can actually hear the true tones of the drums themselves.
+- 'My Swan Song' - that song is so depressing but uplifting at the same time, you know what I mean?
+- Without blood and pain, there is no Slipknot.
+- I'm lucky to have had the opportunity to perform with bands that have influenced me as a musician over the years.
+- Without Slipknot, I would not necessarily be where I am today.
+- The doctors said I might not be able to walk again. Today, I can almost run, but back then, I couldn't even stand up. I was bed-ridden. If I wanted to turn over in bed, I had to move my legs with my hands. I was in and out of the hospital for months.
+- You meet people, and you realize that you can never judge a book by its cover.
+- I'm writing music that people can grasp and hold on to... something that resonates. If you don't have that, then you have nothing.
+- I wasn't worried about flash or persona... It's all about writing a good, solid song.
+- The mask is a pain thing. It's clammy, and your body is moving all over, and you're locked into this thing, and you can't get out.
+- Without Metallica, I wouldn't play the way that I do.
+- Keith Moon was amazing as a drummer, but he was also a nut, and it reflected in his drumming. And the great thing about Who records is that you can almost get hold of the vinyl and feel his heart.
+- Slipknot will never die. As long as we're together, it just won't. When it's time for us to end, we'll know when it's time.
+- Slipknot is my baby. It is my life. It means everything. Everything I do means the world to me, but when it comes down to it, Slipknot... that's my blood.
+- What's cool about making music is when you create a record, it comes from somewhere.
+- There was a time when I was beat down, and I lost my way.
+- No matter what comes your way, being a musician, you will never, ever learn to play it all.
+- I actually played guitar before I played drums. And I always play guitar on the Slipknot albums as well, as well as being responsible for a lot of the songwriting.
+- Any kind of idea of fame - that has been shelved.
+- Modifidious was my first real band.
+- Without Metallica, we wouldn't have a lot of the bands that we have now.
+- I've been using Pearl for so long, ever since I was a kid. Same thing with Paiste. They have both taken such great care of me, and I can't thank them enough.
+- I've been a fan of Zombie's since the beginning. I've toured with them and have always wanted to play for them.
+- When you have the power of music within your soul and your heart, nothing can stop you.
+- My advice always is to start very simple and master your timing and master the most simple beats that you can, and you just keep elevating from that. Trying to go right into playing fast is not necessarily the best way to go about it, because if you don't have your foundation locked in, it's hard to progress.
+- There is nothing whatsoever friendly about Slipknot. Corey may have a singing voice, but it's always been done with so much passion that it's always been brutal.
+- I saw Kiss on 'The Dick Clark Show' in, like, 1980 or something, and 'Kiss Alive!' was the first record of theirs I had.
+- Slipknot's music is very technical and intense, and it's not easy to play, but that's what makes it special. What's so gratifying about playing a show that is that intense is when you get off the stage, and you know you really delivered at the top of your ability and performance; that is what makes it all worthwhile.
+- The music has always been the first and foremost element in our career.
+- The heart bleeds music no matter what, and it bleeds different types of music.
+- Making the 'Sulfur' video continued our quest to make a video different and visually stimulating.
+- One of the things I love about this job is meeting different people.
+- I didn't quit Slipknot. I would never have quit Slipknot, ever.
+- I don't use a Beatmap; I don't use any click track. Any time I count off, it's just in my heart. Sometimes I'll go off the feel of a crowd, like if they way they're bouncing is a little quicker than the song, I might kick up the tempo a little bit. I see where the crowd is at. It's nothing drastic, but all the tempos are from my internal clock.
+- I want to get out as much art as I can while I'm here, and I seem to get better the more that I do it.
+- 'Vol. 3' has broken down more barriers for us. We worked with different styles on this album. It's more musically mature in arrangement and is conceptual.
+- Man, failure was not an option whatsoever, 'cause I'm here to play music - that's what I've been put on earth for.
+- On the records that I grew up with and loved, every song was unique - it's almost as if you had a different journey every time - and the drums were big part of that story.

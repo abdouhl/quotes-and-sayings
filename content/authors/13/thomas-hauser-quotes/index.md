@@ -1,0 +1,64 @@
++++
+author = "Thomas Hauser"
+title = "Thomas Hauser Quotes"
+quotes_len = "58"
+description = "the best 58 Thomas Hauser Quotes"
++++
+- One can construct a strong legal and ethical argument for minimizing the fees that are paid to world sanctioning organizations in conjunction with championship bouts. It's not uncommon for skilled fighters to be denied championship opportunities while less-talented but better-connected boxers fight for belts.
+- Women's boxing has received a major boost from the success of 'Million Dollar Baby.'
+- Marciano was an idol in a simpler era, when professional athletes were heroes and sportswriters were complicit in building legends rather than exposing them. To the public, all that really mattered was that Rocky had 49 wins in 49 fights and retired in 1956 as the undefeated heavyweight champion of the world.
+- As a general rule, the only way people pay $7,500 a table for club fights is when a significant portion of the proceeds is earmarked for charity.
+- It's not fun to get punched in the face. It's hard, and there's no glory in it.
+- I researched and wrote 'Muhammad Ali: His Life And Times' for two years.
+- Most people have been on a baseball diamond and a basketball court. At least once in their life, they've walked across a football field. But relatively few people have ever set foot inside a boxing ring.
+- Yankee Stadium played host to the most important prizefight ever when Joe Louis knocked out Max Schmeling in 1938.
+- A boxing ring looks different from the inside, particularly when it's shared with another man who is intent upon rendering you unconscious. There's no place to hide. Once a fighter climbs the stairs, he's roped in, unable to leave until his night's work is done.
+- Baseball is a game of tradition. It lives, in large measure, on its past.
+- If a Hollywood studio needed a fighter to play the hero in an old-time boxing movie, the search could begin and end with John Duddy.
+- Boxing has a problem - a big one. Think of it as a monster that's hiding under the bed. Eventually, the monster is going to come out and take a big chunk out of the sport. Fighters, trainers, managers, promoters, even government regulators can legally bet on fights. They can also bet on fights they're involved with.
+- The heavyweight championship of the world was the most coveted title in sports. Everyone knew who the heavyweight champion was. And not only when it was Muhammad Ali or Rocky Marciano: they knew when it was Ingemar Johansson.
+- The standard publishing contract is replete with clauses that strip authors of control over their books.
+- Young fighters dream of the future. Old fighters seek to recapture the past.
+- Crossroads fights are an important part of boxing. The winner goes on to bigger and better things, while the loser squanders a significant career opportunity.
+- As a general rule, Las Vegas sports books take boxing bets only on major fights.The same is true of most Internet gaming sites. Within that framework, not only does boxing allow participants to bet on their own bouts, it sometimes encourages them to do so.
+- It's unlikely that Arturo Gatti will ever be in a boring fight.
+- To make it big, a fighter needs power. Otherwise, sooner or later, he'll fall victim to opponents who force the issue and take two or three punches to land one.
+- When something in the sweet science doesn't look right, most likely it isn't.
+- As well-intentioned as it might be, the Ali Act suffers from glaring flaws.
+- Even when the heavyweight champion was a fighter of limited ability, he was still the heavyweight champion of the world.
+- Mike Tyson has become larger than life.
+- The bloodsuckers around Tyson are always looking for one more payday, and some people will always be willing to pay to see Iron Mike fight.
+- Most major sports benefit from the fact that betting by the general public fuels fan interest and boosts television ratings. The Super Bowl and 'March Madness' are prime examples. But sports other than boxing draw a clear line where betting by participants is concerned.
+- In the 1940s, boxing was a mainstream sport and deeply ingrained the fabric of Harlem. Joe Louis ruled the world, but the local icon was Sugar Ray Robinson.
+- Trinidad is a great fighter; he's exciting, and he goes in tough. His roster of opponents includes Pernell Whitaker, Oscar De La Hoya, David Reid, Fernando Vargas, and Hopkins. It's hard to imagine Felix being in a boring fight.
+- In boxing, if a fighter doesn't leave the sport on time, something bad is likely to happen.
+- In boxing, as with other government-regulated activity, the integrity of public records should be preserved.
+- The single most important thing that sports fans want is competition building to a meaningful championship.
+- Every time a fighter steps into the ring, he's borrowing against his future well-being.
+- There are hundreds of young fighters whose handlers believe them to be a future world champion or the next great heavyweight or another Sugar Ray Robinson. The young men who inspire these beliefs are known as 'prospects.'
+- Three of my childhood dreams went unfulfilled. I never saw a no-hitter, never saw a triple play, and never caught a ball that had been hit into the stands. But I did see the Yankees beat the Brooklyn Dodgers in a World Series game when I was 10.
+- In 1996, Muhammad Ali and I co-authored a short book about bigotry and prejudice that was keyed to religious and racial divisions. To spread the message, we visited schools in a half dozen cities across the country, talking with students about the need for tolerance and understanding.
+- I've learned over the years that big-name writers might be treated fairly by the media conglomerates that dominate publishing today. But the average author isn't.
+- Presidential election campaigns offer a unique opportunity to educate the public and engage in an intelligent dialogue on issues of national importance.
+- The Antitrust Division of the United States Department of Justice should take a long, hard look at the standard publishing contract.
+- In 1946, the year I was born, Yankee Stadium was only 23 years old. But from my perspective as a boy, it had been around forever. At age seven, I saw it for the first time. As I grew older and was allowed to navigate the city's subway system on my own, I went to Sunday doubleheaders with friends on a regular basis.
+- For thousands of years, the most physically imposing buildings on earth were temples, churches, and mosques. But in the 20th century, new houses of worship came to dominate the landscape. Yankee Stadium is the most storied of these contemporary shrines.
+- Boxing is systemically corrupt.
+- I'm old enough to have lived through a time when Martin Luther King Jr., Medgar Evers, Viola Liuzzo, Andrew Goodman, Michael Schwerner, James Chaney, and others died so people of color could vote.
+- Laila Ali is boxing's real-life million-dollar baby.
+- David Tua was an elite and world class heavyweight, I believe David Tua would have knocked Joseph Parker out in a handful of rounds.
+- When Roy Jones was young, he glowed. There was an aura about him, and words came out of his mouth like bursts of machine-gun fire.
+- Being a good police officer is one of the most difficult, dangerous, idealistic jobs in the world.
+- The ultimate goal of any athlete in any sport is to become a true world champion.
+- Not voting is disrespecting the best of what this nation stands for.
+- Unlike most sports playing fields, a boxing ring is a temporary structure.
+- My personal relationship with Ali began in 1988, when we met in New York to explore the possibility of my writing the book that ultimately became 'Muhammad Ali: His Life and Times.'
+- Publishing is a business. It's about squeezing every last dollar out of every available source, and the most vulnerable source is the author. No clearer proof of that exists than the 'standard' book contract.
+- Betting by insiders has a corrosive effect. It breeds suspicion, adds to the appearance of corruption, invites more corruption, and, in a sport like boxing, puts lives at risk.
+- There's a difference between world-class fighters and club fighters. It's similar to the distinction between a Grammy Award nominee and a guy who sings in Holiday Inn cocktail lounges.
+- Boxing is allowed to exist as an exception to state laws against violence on the premise that it will be regulated in a manner that protects the combatants physically and financially.
+- No brawler in boxing is more crowd-pleasing than Arturo Gatti.
+- Few fighters reach Mike Tyson's level, of course.
+- I'm sure there is an infinite number of men who Ann Wolfe can knock out. I'm one of them.
+- Interest in a sport peaks during its championship season. That's when even casual observers turn on their television sets, and lifelong fans are born.
+- Professional fights between men and women send the message that violence between men and women is appropriate. In most homes, that's not a fair fight, which is why I'm against intergender boxing.

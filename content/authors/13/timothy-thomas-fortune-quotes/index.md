@@ -1,0 +1,13 @@
++++
+author = "Timothy Thomas Fortune"
+title = "Timothy Thomas Fortune Quotes"
+quotes_len = "7"
+description = "the best 7 Timothy Thomas Fortune Quotes"
++++
+- We are African in origin and American in birth.
+- I do not inveigh against higher education, I simply maintain that the sort of education the colored people of the South stand most in need of, is elementary and industrial. They should be instructed for the work to be done.
+- The colored man is in the South to stay there. He will not leave it voluntarily and he cannot be driven out. He had no voice in being carried into the South, but he will have a very loud voice in any attempt to put him out.
+- Mob law is the most forcible expression of an abnormal public opinion; it shows that society is rotten to the core.
+- Men may be spoiled by education, even as they are spoiled by illiteracy. Education is the preparation of the mind for future work, hence men should be educated with special reference to the work.
+- It is not safe in the republican form of government that clannishness should exist either by compulsory or voluntary reason. It is not good for the government and it is not good for the individual.
+- The white men of the South had better make up their minds that the blacks will remain in the South just as long as corn will tassel and cotton will bloom into whiteness.

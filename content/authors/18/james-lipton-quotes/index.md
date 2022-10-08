@@ -1,0 +1,33 @@
++++
+author = "James Lipton"
+title = "James Lipton Quotes"
+quotes_len = "27"
+description = "the best 27 James Lipton Quotes"
++++
+- I was originally going to be a lawyer, and the only thing I remember from the art of cross-examination is - you can see this one coming up Sixth Avenue - never ask a question the answer to which you do not know.
+- I was dealing with craft, and that's the surprising thing, the number of people who have literally broken down on our stage, because when you're talking about the thing that is most important to someone, they're liable to feel something strong.
+- Because - Bobby Lewis said this once to us in class, the better you get, the less credit you'll get. Because the better you are, the more it looks like walking and talking and everybody thinks they can walk and talk.
+- It can be summed up in one sentence. Does this person have something to teach my students? No one has ever let us down.
+- When it began I wrote this passionate letter to people I knew, studio members, of course, and other people with whom we have worked over the years and I said come and teach our students.
+- Hackman is able to live in the moment which means there is nothing for him at that split second than what is occurring in the scene.
+- What I didn't know that by sticking to craft we would blow open some doors that I never saw opened before.
+- We are the only school in America, drama school in America that trains actors, writers and directors side by side for three years in a master's degree program, and we want them - to expose them to everything.
+- I think that anybody's craft is fascinating. A taxi driver talking about taxi driving is going to be very, very interesting.
+- I criticize those critics. The reason being that they're doing one of the worst things that ever can be done to an actor, which is to say, Look, you do what we like you to do or else.
+- I did get Tom Hanks to say, Life is just a box of chocolates.
+- If I were to ask you for example right now to go back with me and define those moments in your life that shaped you as a person and you began to reexamine them, something would happen.
+- The difference - the fundamental difference between theater acting and film acting is that film acting is disjunctive.
+- I had something called the back of the chair test. Where I sit, we don't sit like you and I do. I can see a sliver right behind them and they come out and they sit like this like god students and they don't touch the back of the chair.
+- Geniuses always think it's easier than we make it out to be.
+- I wanted when we began this to have a conversation, the kind that you're able to have, and the only way I knew how to do it was not to have a pre-interview.
+- And I thought if I don't pre-interview - first of all, we couldn't afford it - but the second thing was it would force me to do my own research, which takes two weeks.
+- The studio is meant to be always a place where, first of all, they can be out of spotlight, and second, where they could work with a peer group on parts that they might not have played otherwise.
+- Comedians don't laugh. They're too busy analyzing why it's funny or not.
+- I thought we would have at most an audience of 5,000 devotees because I made the decision to stick to craft, not to gossip, not to be interested in any of the juicy stuff that they talk about on other shows, but stick to the question of craft.
+- The definition of genius, really, should be that that person can do what the rest of us have to learn how to do.
+- I'll tell you why, I don't invite the ones I don't like.
+- They will take a role that scares them over a role that doesn't. That's another thing I like about actors.
+- And I thought, my God, there's an off chance that they will say something that's really worth preserving and there is one way to do that and I knew what it was because I come from television.
+- The foundation for film acting is stage acting.
+- Olivier was another case of a genius, who couldn't understand why anybody would have any trouble doing this, because for him it came so easily.
+- They change. They're different. There are no two alike, that's the miracle of it. But if they have something to teach the students. You can see them writing during the show.

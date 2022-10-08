@@ -1,0 +1,183 @@
++++
+author = "Tracy Morgan"
+title = "Tracy Morgan Quotes"
+quotes_len = "177"
+description = "the best 177 Tracy Morgan Quotes"
++++
+- It gets scary when you're dealing with people who don't know how to separate fact from fiction.
+- I would love to try action films.
+- I think the word 'pregnant' is funny.
+- I had a great time working on 'Saturday Night Live.' It was one of the important times in my life.
+- My life growing up was a twisted Bronx version of 'The Color Purple.' It had a much different soundtrack and no trees, but that desperation was the same.
+- Michael's the ultimate entertainer. After Michael Jackson, it's Elvis Presley, Frank Sinatra, and Bruce Lee.
+- Even when I'm sitting up in this glass castle, I still got my street soldiers telling me what's happening.
+- The only person who knows what's in my wallet is my wife.
+- My sense of humor is a turkey, and I pull it out of the oven and baste it in reality.
+- My father was funnier than me. My father was Richard Pryor-funny. I'm just a better businessman.
+- I have my Lucky Charms in the morning, and I feel magical.
+- All you single fathers got to man up.
+- Stand-up is the foundation to my career. It's what I started out doing.
+- Reality is the scary thing. Not my work, not comedy.
+- Stand-up is my foundation. That's where it started at. And I love it because it's personal. It's mine. It's all me. It's my experience in life.
+- If I make fun of somebody at my show, believe me, it's something we can all laugh at.
+- Who's coming with me? I don't know where I'm going, but who's coming with me?
+- You get somebody to crack a smile, that's a beautiful thing.
+- My older brother was born, who was a cripple, then I was born, and my sister was born, the only girl. So I was between the only girl and the crippled guy. I was the middle guy.
+- The most romantic thing I ever did to my woman? I painted her toenails!
+- Growing up in the ghetto is pretty hard. It's poverty; it's frustration.
+- Tracy Morgan is subdued. I'm cool. I'm chilled out.
+- When Richard Pryor did comedy, it was like he was having a conversation.
+- If I had to describe my sense of humor, I would say it's contemporary wit, you know what I'm saying?
+- Welcome to post-racial America. I'm the face of post-racial America.
+- When you're in the spotlight, people want to dissect you and then put you back together the way they want you.
+- I'm not getting any younger. You're not getting any younger, so yeah. You age.
+- The version of me you see on TV now and in my feature films is a pretty happy guy, isn't he?
+- Some people believe everything they see on TV. People, it's called tel-lie-vision!
+- If she's not spoken for, and you come at her correctly, like a man, she'll get with you.
+- When you look at the artists who have come up through 'Billboard' over the years, it's incredible.
+- White women love me 'cause of my edge. And I love white women.
+- I don't have a hateful bone in my body. I don't believe anyone should be bullied or made to feel bad about who they are.
+- A stand-up's job is to hold the mirror up to society and to look at what we're afraid of. That's why we had shows like 'All in the Family' and 'The Jeffersons.' We made fun of ourselves then.
+- In my heart, I really don't care who you love, same sex or not; as long as you have the ability to love, that's the important thing here.
+- There's nothing in the world like live entertainment. With TV, you have to wait for your results; with live entertainment, people let you know right then and there. That relationship is established in 30 seconds. The first 30 seconds, they'll let you know whether they like you or not.
+- Where I came from, people couldn't afford to go to the theatre.
+- I know how bad bullying can hurt. I was bullied when I was a kid.
+- When you see me on the street, act like you know me.
+- I don't control the line of 'funny,' 'funny,' 'funny,' 'not funny.'
+- I was never a big comic book fan. I was always more into the baseball cards.
+- I have snakes, three sharks, moray eels, piranhas, five scorpions and a bird spider. All of them are predators. They are dangerous but it's cool to have strong and powerful pets.
+- Everybody's out to get something from somebody. 'Gold diggers' doesn't just mean money, it can mean time, it can mean feelings. It can mean anything when you're taking and not giving. When people don't know how to reciprocate.
+- I love working with Alec Baldwin. He's one of the five greatest actors ever to live.
+- People bring camera phones into comedy shows and clubs and concerts, and sound bites never come out right.
+- My voice is very distinct. People hear Tracy Morgan's voice, and they know Tracy Morgan right off the bat because I've been in their homes for so many years.
+- What I have learned over the years is to try to stay in the moment.
+- Life smacks Tracy Morgan in the face, and I don't mean to talk in third party, but no, it doesn't stop raining when I come outside, no, absolutely not. I'm very in touch.
+- I'm glad I dropped out of high school, man. I wouldn't be where I'm at. I would have had a net. I'm glad I didn't have anything to fall back on, man, because that made me go for my dreams that much harder.
+- If I don't offend somebody, then I'm probably not funny.
+- In New York, we get down. In L.A., everybody's pretty much standing around like they're at a keg stand. You got to get the party started, so I just take my shirt off.
+- If I gamble, I'll play roulette. My wife and I will play roulette, and that's about it. I'm not a heavy gambler.
+- I've still got family members living below the poverty line in New York.
+- It's like going to the zoo when you come to my house. I have snakes, three sharks, moray eels, piranhas, five scorpions and a bird spider.
+- I was like any other inner-city kid with a chip on his shoulder because his daddy and his mommy wasn't together.
+- We have freedom of speech, but you got to watch what you say.
+- Having boys is different. Boys, you put sneakers on, and they're out, they're ready. Girls, you gotta pay a little bit more attention to them.
+- It's just, people recognize you for your work, you know? They love you for your work, and they judge you for your work. It's awesome to have people quoting you. I love it.
+- I don't do drama. I'm a comedian.
+- I know who I am. When I look in the mirror, I see me.
+- Cool is the enemy of funny. You can't be cool and be funny at the same time. Only Eddie Murphy could do that.
+- To me, politics is a pile of tricks.
+- It's very important to be in your child's life and know what's going on and be there with them.
+- I think hip hop is dead. It's all pop now. If you call it hip hop, then you need to stop. Hip hop was a movement. Hip hop was a culture. Hip hop was a way of life. It's all commercial now.
+- No one set that I ever do is the same. I mean, if I go to a comedy club, and I perform three sets, all three sets are different because anything can happen in between sets.
+- As a child, I was able to know that I wanted a better life.
+- Comedians are the monkeys of acting. When you go to the zoo, everybody loves the monkey exhibit.
+- I think people would want to see Tracy Morgan host 'Saturday Night Live.'
+- Bad news travels at the speed of light; good news travels like molasses.
+- My fans would love to see Brian Fellow come back. I love my fans. And they like my edge.
+- The paparazzi do what they do, man. They have a job, too.
+- People are just way too sensitive. You couldn't have a show like 'Archie Bunker' on TV. People would go crazy; they would lose their minds.
+- If there's one thing I've learned in my life, it's that curiosity might kill cats, but it doesn't kill people.
+- So I think all comedians are earning their wings into heaven. We're all going to heaven, but everybody's not going to get their wings. Some people are just going to be regular angels. Doing cleanup, janitor work. In heaven, I'm going to sit on the couch with Oprah.
+- The truth is, I've never thought of myself as the Michael Jordan of comedy. And that's a good thing. You know why? Because I'm not. Wasn't that Richard Pryor? Yes, it was. I know what I am: I'm funny!
+- I grew up in the projects in Brooklyn, and I consider myself lucky and blessed to be where I am - just working.
+- I don't need no stool and mike stand. I don't need all of that to be funny. I've been funny my whole life. This is a gift God gave me. I spread love wherever I'm at. I'm like Marvin Gaye.
+- Ladies are honest. They're my motivation. They know what's funny, and the dudes just follow.
+- For my first gig, I got $75. I could make money being funny, so I pursued it as a career and have turned it into a lucrative business.
+- You can't hold me to the same standard as the president or a school teacher. I'm just a comedian. My job is like Archie Bunker.
+- My heart is committed to giving everyone the same rights that I deserve for myself.
+- Whatever I did on 'Saturday Night Live' is going to stay and remain on 'Saturday Night Live.'
+- I love my mother. My mother made sure, her stubbornness - she made sure we was going to eat. She made sure we had Christmases. That was my mother. My father wasn't there for that.
+- Most people don't know what's happening around them because they're just speeding through life. And before they know it, they're just old. So I just try to slow it down.
+- I'm no Jerry Seinfeld. I wasn't raised with some backyard with a creek and trees and all that.
+- If you're the kind of person who likes numbers and statistics, I'm the long shot - the Lotto Powerball winner. I'm the mutation in the DNA that makes evolution a reality. I am the new black.
+- You will be surprised but I do a lot of studying and I watch National Geographic.
+- I have friends who are black, white, purple, gay, straight, Martian, yellow, old, and young. I have friends who are animals and a few who I believe to be robots. All of them are people to me. In my mind, it's not about what you look like or what you do; it's about who you are inside.
+- And when I was angry, when I was younger, I was in a cocoon. Now I'm a beautiful, black butterfly.
+- Listen, Bruce Lee fought out of anger. That's why they call it the 'Fists of Fury.' Michael Jackson danced with fury. I do stand up out of fury. I'm not mad at anybody. I'm not mad at any human being because I'm a human being.
+- On 'Saturday Night Live,' I never really wrote. You know, I would just - I would let the writers cast me into the show. So my strength - and I put all my energies into performance. I just couldn't deal with the rejection, you know, getting your sketches cut, and it was hard for me.
+- Parents should support and love their kids no matter what.
+- I don't get on the phone and prank people and things like that on the phone with people, no.
+- There's ups and downs of any job. If you worked at the post office, there's ups and downs. You have your good days, and you have your bad days. If you're a housewife, you have your good days, and you have your bad days.
+- I've been funny my whole life. This is a gift God gave me.
+- I come from where Mike Tyson came from. I come from right across the street from Jay-Z. I didn't have a pond in my backyard. I saw violence.
+- If you can survive 'Saturday Night Live,' then you're good as far as show business is concerned.
+- I have a heart. I want people to see me with their heart and not their eyes.
+- Being funny wasn't a career choice growing up, it was my way out of situations; a way to survive another day.
+- I believe gay, straight, anybody, everybody's supposed to be happy in this world, man.
+- I love animals, but I don't want to talk to them. I'd rather be able to talk to other people on other continents and understand them.
+- What I have learned over the years is to try to stay in the moment. I want to feel it all because I've realized nothing lasts.
+- I'm around my kids every day. I'm regular. We're a regular family. My wife cooks, she washes clothes, I read books, I pump my own gas, I get my own hair cut.
+- I do my best creating on stage.
+- What am I afraid of? The IRS. That's it. I don't want those people knockin' on my door, man.
+- Stand-up don't get no respect - it's the hardest thing to do in show business. You don't have no band and there's no music.
+- I want to be an example of a guy who made something of himself out of nothing. A guy who overcame the odds of a tough childhood, who worked hard, who didn't let his surroundings get the best of him and lead him to jail or the graveyard. Where I ended up - being a comedian, a TV star, and a movie actor - might be unique, but my story is not.
+- Of all the sicknesses, there is probably none more abusive than homophobia.
+- I've got friends who want money but don't want to do anything to earn it.
+- Martin Lawrence is one of my comedic heroes, and he's a genius.
+- You gotta understand, my great-grandfather was German and Irish. My grandmother was Indian, and my grandfather was African-American, so we all got a little something in us.
+- America doesn't like to hear about things like welfare. 'Don't talk about that. We don't like what it did to people!' Yeah, but it happened.
+- I'm a black man in America, so I'm going to be misunderstood.
+- No matter what, if my son was gay, I'd treat him like a king.
+- The sexiest part of a woman's body is the back of her kneecaps.
+- I guess I'm entertaining; I guess I'm interesting. I guess the things that I say sell papers. I guess they sell magazines. I don't know.
+- There's nothing wrong with looking at a woman's kneecaps.
+- I'm art. You're art. We are God's greatest works, simple as that.
+- I'm not a child star, but you could say that I've grown up on TV. I went from being an unknown, down-and-out comic from Brooklyn and the Bronx to being a regular character on a major network comedy called 'Martin.' From there I went on to become the most notable black comic on 'Saturday Night Live' since Eddie Murphy.
+- Comedy should be easy, not laboured.
+- 'Saturday Night Live' was the joy of my life.
+- You have to be highly intelligent to get away with a dumb joke. That takes a pretty smart fella.
+- They say that every Jewish person is supposed to love one black person in his life. I'm glad Lorne Michaels chose me.
+- People walked out on Richard Pryor and he's the funniest man alive.
+- Rock bottom for some people is death. Some people never learn from their mistakes. They don't learn from other people's mistakes.
+- I don't have anything against Jimmy Fallon. I love Jimmy Fallon. He's my dude.
+- I don't believe in storks. I know they don't deliver babies; they deliver pickles.
+- If you can get your life down to one minute at a time, you don't miss anything. You have total abundance of information and material.
+- I've played outrageous characters my whole career.
+- I do stand up sometimes out of anger. Sometimes the greatest stuff comes from a dark place.
+- I have the person at home, the person who has his privacy, too. Michael Jackson didn't do the moonwalk in his kitchen.
+- I've gone through my trials and tribulations, and sure, it's gotten bumpy and all that, but I'm here. OK?
+- Having a daughter makes you see things in a different way. You have to see how you're carrying yourself because there's a little girl. There's not a little boy, there's a little girl. I think I'm a little more overprotective.
+- That's a gift God's given us: the ability to work together in collaborations.
+- I don't even read the newspaper; I don't read that crap.
+- People live too much of their lives on email or the Internet or text messages these days. We're losing all of our communication skills.
+- You have to give a wound time to heal and think of other people's feelings.
+- I think it's good that I get scared because, if you never get scared, you don't have any need for guts.
+- We need to learn to laugh at ourselves because when you don't laugh, you cry. And I don't feel like crying.
+- When I want to work on my material, I go to Benihana or the barbershop.
+- Sometimes I think we're exposed to things we shouldn't be exposed to too early. I think that sets the tone to a person's whole life. Trauma.
+- God gave us dreams, but he gave us kids to make all those dreams worthwhile. And when I look at all my kids, I say everything that I've ever went through in my life was worthwhile.
+- If I get some Bruce Lee nun-chucks that he actually used in a movie, those are going in the case. Those will never be used. Those will never be touched.
+- I'm a big, big movie fan. I watch 'The Ten Commandments' and the original 'Planet of the Apes' every night.
+- I have a pretty diverse audience, and that makes me happy - laughter is universal, and I don't differentiate between people at all. Why should I? People are people. There's no reason why one person can't relate to any other person on this planet in some way or another.
+- Comedy clubs are sacred ground. That's where anything goes.
+- I do comedy for real people.
+- I spread love wherever I'm at. I'm like Marvin Gaye.
+- I have a nice following in Boston. The Boston crowd is very hip.
+- When a child is born, it's born with a heart of gold, but the way of this world can turn that heart cold. I'm still a good person, and I thank God for that - He's working with me on it.
+- 'Saturday Night Live' is live television. Nothing can compare to that.
+- I know my spirit is not mean, and I have a very good spirit and a funny spirit.
+- What you have to understand is that my thing is not glamour. I love stretch marks and C-section scars and all of that. I'm a grown man. You don't gotta put on no makeup with me.
+- I got five kids - I claim three for income tax purposes.
+- I love '30 Rock' because Tina Fey allows me to fly over the cuckoo nest once a week.
+- Anybody who's lived in the ghetto knows that you don't move during the daytime. Here's why: You don't want anyone to know you're leaving, and you don't want anyone knowing where you're going.
+- I'm not perfect, but I strive for it.
+- I just want to be funny, I just want to do comedy.
+- I'm a human being. I feel all emotions. I'm not just happy all the time. Sometimes, I'm sad and feel the blues. Sometimes I even want to feel the blues. Sometimes, you want to feel down.
+- Most creative thing I've ever done? Got somebody pregnant.
+- Working with Bruce Willis makes my career authentic. I may not get an Oscar, but I worked with Bruce Willis. That matters more to me.
+- If we all had a little bit of Michael Jackson in us, I think it would make the world a better place.
+- Yeah, race exists. Racism is still here, and it's doing well. Turn on the news. I don't think me and my comedy can really change that.
+- I mellowed out; my daughter mellowed me out, and I don't get mad at anyone.
+- I don't see myself as angry, although other people see that. I just see myself as a short, dumpy guy with bad feet, and I'm passionate.
+- My father was the role model I looked up to. My dad was an entertainer, too. I patterned my life after him. He wanted me to do better than he did. He never sold a record in his life, but to me, he was still a rock star.
+- I deal with my sons like young men. If they have a problem with something, they come to me. I am the type of dad that will drop everything I am doing for them, and always tell them to talk to me about it.
+- I know how people are. We fixate on controversy and all that.
+- I'm human, I feel, I understand. That's the highest level of love, is understanding - when you can understand someone, when you can love them with their flaws and their faults. So I understand, I consider. I may speak the truth, but I'll consider your feelings, too.
+- All women like to look up to their men.
+- I remember when I was on 'Saturday Night Live' my first year, and I wasn't getting much. I was down; I was ready to quit.
+- Whenever I perform, people get me because I'm talking about things that people can identify with and relate to. I'm not just up there doing jokey, jokey, joke.
+- Black people dance well because we start early - there's music being played everywhere. White people? They don't start dancing until they get to college, and by then, it's too late; the bottom don't move with the top no matter how hard they try.
+- There aren't a lot of guys out there keeping it real. Everybody's been branded. Everybody's been bought and sold.
+- The further you go, what, I'm gonna wait til I'm 80? Naw, I'm tellin' my story now. I was just moved. I was moved to tell my story. You know? People write books all the time.
+- I want to show the world my humor.
+- 'Saturday Night Live' was like a university for funny.

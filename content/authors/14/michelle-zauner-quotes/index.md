@@ -1,0 +1,106 @@
++++
+author = "Michelle Zauner"
+title = "Michelle Zauner Quotes"
+quotes_len = "100"
+description = "the best 100 Michelle Zauner Quotes"
++++
+- I don't really listen to podcasts - I like one podcast and it's called Song Exploder.
+- I feel like it's a really natural part of writing: You lose perspective, and you have to let it go sometimes in order to come back to it and see that it's pretty alright.
+- When I'm in America, everyone thinks of me as the Asian girl. When I go to Korea, everyone thinks of me as an American.
+- My dad and I actually don't speak anymore. It's still something that I'm trying to figure out and I definitely don't have all of the answers to.
+- Initially it was so important for me to be credited as a producer, play all these instruments and be the sole writer on everything. I think especially as a woman, you want to be taken seriously as a musician, as a producer.
+- I've been working with my stylist for a long time, Cece Liu. We've gone from buying and returning clothing, to this point where maybe finally a designer will dress me without me having to buy and return it.
+- I had seen an image of these hanging persimmons that are dried during the winter and turned into sweet, dried fruit. And I really like the idea of this very bitter, hard fruit before it's ripened - on display and slowly maturing and turning sweeter and letting its environment impact it. It felt like a very fitting metaphor for where I've come from.
+- Sometimes I can really agonize over a creative project and forget that it's essentially professional play, you know?
+- I struggle to learn a Dolly Parton cover with three key changes, but boy does it make me happy. I dare you to listen to 'Here You Come Again' without smiling.
+- You know, I never went to music school, and it's always seen as this very proper, serious thing to compose a string arrangement.
+- I try to not beat myself up about anything. I think that's the biggest thing.
+- I don't think a lot of Korean people even make kimchi. My mom certainly didn't, so it's a very extra thing to do in the same way that I guess baking bread can be an even longer process that you're unsure about for a long time.
+- But I love listening to my own songs and I know they're working well if I'm not thinking too much about them technically.
+- Persimmons are pretty present in a lot of Asian cultures, as gifts that you give to people.
+- The most Korean thing you can eat that's so easy is Shin Ramyun with an egg cracked into it and kimchi on the side. I feel like every Korean person eats that at nighttime or for a snack.
+- I feel like there are a number of indie artists... as they grow, it makes the most sense for them to pivot to pop, to become bigger artists. And I feel like that's when people get really bad, you know? I didn't want to fall into that pitfall.
+- I feel so overwhelmed by the kind of double hitter of a successful book and record. I just assumed at least one of them... would hopefully stick. So it's nice that both did so well.
+- With Jubilee I had a natural interest to write about something on the opposite end of human experience - a real celebration of release and joy, which is in some ways an unexpected theme for the indie rock genre in general.
+- I think that 'Psychopomp' is very much a Eugene, Oregon record.
+- I started going to chess clubs when I was in fourth grade. From fourth grade to seventh grade, I was in chess club.
+- I never made kimchi before. I talk about my first time making it in the book, and I'm not a big baker, but I imagine it's like a similar kind of feeling for a lot of people who are bakers where it's just something that takes time. There's so much space to be reflective and meditative.
+- I'm a very impatient person. I like things to be done. So I complete a lot of projects, but it helps to partner or collaborate with someone who's the opposite because they can tell me when to slow down.
+- I love kitchenware. I'm very frugal and I don't buy a lot of things, but I'm frivolous when it comes to buying groceries and kitchenware.
+- When my mom was sick and in the hospital, I did for the first time feel really bad that a lot of men aren't taught how to take care of other people very well. It's not as important of a skill for them as other things, in the same way that I really resent not being given a toolbox when I was younger.
+- I love Pico Iyer's 'A Beginner's Guide to Japan', which again is not about Korea, but so full of clever observations from the point of view of a foreigner in a new city, it's just delightful.
+- I'm a huge fan of the Korean attitude toward service and infrastructure, which is shaped by a preference for speed and efficiency, values I truly yearn for in the US.
+- I've always felt like I needed to experience some type of anguish in order to feel productive as an artist.
+- A lot of water and air signs that are just like, trying to have a lowkey conversation. Fire sign enters the room with no chill. I just have no chill.
+- Once death was really close to me, I suddenly became very fearful of it. I think that lit a fire in me like, 'What do you have to say before it happens?'
+- I only wanted to play the guitar so I could write music. As soon as I learned my first three chords I wrote my first song. It was just a tool to get me to be able to do the thing that I wanted to do.
+- Maybe it's because I'm an only child or just an extroverted person, and I'm a kind of a ham, you know?
+- When I was growing up, I didn't realize that the idiosyncrasies of my mother's character had something to do with our culture. After growing up and reflecting and making more Asian-American friends, I learned that a lot this is something a lot of people grow up with.
+- So chess is kind of this nice thing that I have no real aspiration for. It's just a frivolous thing I can enjoy.
+- I do really love New York. I feel like there are more Asian restaurants. Philly has a sick food scene, I don't want to diss it at all. But New York is so much bigger and there are more options.
+- One thing that was pretty eye-opening to me was that red pepper came from the New World in the 15th or 16th century. So these things that we think of as inherently Korean actually have an even longer history than that.
+- I can't enjoy the rush of how magical of an experience it is to have people listen to you, and relate to you, and have this type of attention and understanding.
+- Even as a teenager, when I made mix CDs for people, it all had this sort of track flow: I like to start off very in-your-face, and kind of chill out towards the end and have this almost, like, denouement.
+- Soft Sounds' was really hard for me. I was petrified of the 'sophomore slump' so I created an environment to best combat that self-doubt and feelings that my first album was a real fluke.
+- The biggest takeaway from a memoir is that you have to play fair. Within the first draft, I was writing very angrily because I had a lot of resentment and a lot to process. Through revision is where a lot of learning happened and a lot of forgiveness happened.
+- But I still definitely go to H Mart probably like once or twice a week to get my groceries. It's a very special place to me.
+- My favorite thing that I'm learning, in particular, is that the type of love between an immigrant parent and their child growing up in America is a particular nuanced type of love.
+- Then, in high school, I had a kind of mental breakdown; I didn't want to go to school anymore. It felt pointless. It was around the same time that I became really interested in music.
+- I read Lorrie Moore and Marilynne Robinson and Jhumpa Lahiri and Richard Ford, John Updike, Anton Chekhov, Vladimir Nabokov - all of whom I really fell in love with.
+- My records have a lot of collaborators on them, and when you're writing a book, it's a very insular process that's very confusing and dark. It's a lot of writing and rewriting in a way that I don't do so much when I'm writing songs.
+- My mom always made me believe that people with only talent didn't go very far. Hard work was what made things possible.
+- Food in general is really important for any diaspora, and it's really important for Korean people. This was a connection my mom and I could always have together that made her feel like I was more hers.
+- One thing that's nice about writing a book about food is - unless it's from a specific place - you can revisit things easily by preparing the dish. The sensory detail that comes from interacting with that is something that can be recreated pretty easily.
+- When I started doing press after college, I never got asked about my racial identity; I was asked more about being a girl in music.
+- I'd always struggled with being a very depressed and anxious person in high school. If I had let that kind of dark moment consume me, I wouldn't be able to climb out of it. So I became a bit of a shark.
+- Soft Sounds' was about disassociating to preserve my mental health.
+- I grew up playing video games, since I was probably five years old.
+- My main memory of 'Soft Sounds' was that I was so convinced that 'Psychopomp' was this fluke - I had this real pressure of avoiding the sophomore slump.
+- There was a chapter of the pandemic where I was going all out for themed meals and watching a variety of YouTube vloggers that gave a window into their world of cooking.
+- I was always being told to calm down, to chill out, to slow down. I was a bad toddler, I was a bad child, I was a bad teenager.
+- I knew that I wanted my third album to be the most drama and the strongest foot forward - every muscle flexing and using all the tools that you have in the toolbox.
+- If you wrote a crummy line or maybe didn't sing to the best of your ability, there's layers of 10 different instruments all working to convey something. In writing prose for the memoir, if it's not working, it's just not working. It's harder to figure out how to fix it.
+- A lot of cookbooks also have incredible food writing, even though I feel like a lot of cookbook authors don't necessarily identify with being writers.
+- I got married two weeks before my mom passed away, and then a year later, I was receiving some kind of artistic success that I'd never had. All of these really beautiful things happened where I was in love and I had a career I loved, but it was all kind of under the shadow of this really dark and painful thing.
+- There's this thing where Asian parents force you to play an instrument at an early age, but god forbid you like it and want to pursue it professionally! But, as a kid, I never did choir, and didn't sing.
+- My career has exceeded beyond all fantasy and expectations that I ever held.
+- I can't be into plants. I'm never at home.
+- I just have to live my life knowing that there could be a good chance that I might die in middle age.
+- I had this idea of writing a sci-fi musical about a woman who falls in love with a robot and realizes it's a love that can't be, and enlists in the Mars One project.
+- I have naturally always been a grossly oversharing type of person.
+- When I write a song, that process is sort of entwined with a lyric or a chord progression that suits the vibe, and that'll work off each other.
+- There are so many different things that lend themselves to what makes a song magical, that go beyond just the lyrics or the composition. But arrangement and production and performance have such huge stakes in what makes that sort of lightning-in-a-bottle moment.
+- I really love MFK Fisher's food writing, and obviously Anthony Bourdain's food writing is exceptional, in particular 'A Cook's Tour'. I really love the short story that he writes about revisiting the coastal town in France of his childhood and the memories that he has of his father.
+- But for a song like 'Paprika,' I typically feel like I need to experience anguish a lot of the time to feel like I've put in enough hard work.
+- One of my more recent favorite memories is of traveling to Jeonju with my aunt and uncle. After my mother passed away, my aunt and I became a lot closer, and I've really grown to cherish the relationship we formed together as adults.
+- I just miss the heartbeat of the band and crew. Watching everyone have their individualized tasks, and it all coming together to accomplish something huge every single night. Of course, seeing the kids and having songs that you wrote some back to you and yeah, just getting to do it all.
+- I finished the rough draft of 'Crying in H Mart' in July of 2020. My editor had it for five to six months, so I was free from it for a little while. I decided to take that time to start working on a new album.
+- Being a caretaker for someone who's dying was really, really hard at 25.
+- I love food. It's been such a huge part of my life. In a way, I think I didn't even realize it until I wrote this book. Food brings me this great joy.
+- I've never felt so physically and emotionally and mentally drained than I have on our shoots.
+- My relationship to music is such an essential part of who I am, and was a big part of my relationship with my mom.
+- I think something I explore a little bit in my music is how there's this majestic, natural beauty in the Pacific Northwest, but also this kind of underlying eeriness.
+- I was very much a work horse my whole life.
+- I tried to be a musician for seven years and I'd given it my all, but no one was really interested or it wasn't enough.
+- My mom would frequently tell me to save your tears for when your mother dies.
+- I quit music and decided I was going to work a 9-to-5 job in advertising... which in New York City is more like, 8-to-7.
+- Growing up, there were stereotypes being put onto me as an Asian person that I had no control over, and that made me extremely uncomfortable.
+- I never really wanted to be a journalist, honestly. I always wanted to be a writer, and I thought the only way to apply that interest was with journalism - when you're young and you want to be a writer, it seems like the most practical thing to do with those types of ambitions.
+- It was really difficult to tour on 'Psychopomp' for a year and do the press cycle and talk to people three or four times a day about my mom dying.
+- I think growing up, I didn't ever attempt to define my Koreanness. It was just this intrinsic part of me.
+- I would love to play an H Mart parking lot.
+- I was a late bloomer when it came to reading. My parents didn't really read. Neither one of my parents went to college. I did not grow up with any literature in the house at all.
+- I think with any art making, there's a sense of urgency that you have for people to understand you.
+- I was completely shocked - two Grammy nominations. I've said it out loud to myself about 100 times.
+- English was always my favorite subject in middle school and high school.
+- One thing that I really love about making records is that you can flow through fiction and non-fiction but, ultimately, everything's a commentary on real life in some way.
+- I used to shower every day, but I've been trying to shower less frequently for my hair health.
+- I'm obviously a poptimist. I especially like pop music that isn't formulaic and has depth to it.
+- When my mother died of cancer in 2014, my father was quick to reinvent himself. Within a year, he moved to Thailand, became obsessed with scuba diving and consumer-grade underwater photography, and proposed to a Burmese woman in her mid-30s, an engagement he broke off within a year or two.
+- I was always interested in being a writer. Yet, at the time, it somehow seemed more unfeasible to be a writer than a musician.
+- One thing that I've always tried to do is create lifts - the moment that you have a rush of feelings. That's always something that I'm trying to communicate in music, and particularly the style of music that I write for Japanese Breakfast: I'm always trying to build things up into each other.
+- I never thought I would be able to play in Seoul, the city where my mother was raised and I was born, and I was able to perform for my aunt.
+- I felt like I could never write nonfiction, because I would have to spend so many pages explaining my ethnic background, and that wasn't really the story that I ever was interested in telling.
+- There was a couple weeks when I was like, I'm going vegan and gluten free. Then I was trying all these weird diets because I think there was this element of control over my surroundings that that gave me.
+- When you're looking back at your ancestral history or the cultural context of your identity, it's natural to search for that in the food.
+- I've been lucky to come up when there's such a huge explosion of women, and especially Asian women, in music.

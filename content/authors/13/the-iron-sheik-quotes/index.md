@@ -1,0 +1,96 @@
++++
+author = "The Iron Sheik"
+title = "The Iron Sheik Quotes"
+quotes_len = "90"
+description = "the best 90 The Iron Sheik Quotes"
++++
+- Chris Jericho know Iron Sheik the legend. He know if he get smart with me, I break his back.
+- Rob Ford is a jabroni.
+- I never close the door on my company. WWE always there for the legend, and I love my boss the Mr. Vince Kennedy McMahon forever. He always show me that I am part of WWE family.
+- A lot of people think the wrestling is easy. I have bad knee... almost no walk. Look at the Jerry Lawler with his heart. We still get involve with the sport because we have the pride and the heart. Sometime we get hurt and sometime we don't.
+- Katy Perry look like Kermit the Frog.
+- I am open-minded guy.
+- Never give up or you are big time jabroni.
+- I love wrestling and I would do it all again. But it is a very, very hard business. There is nothing about it that is easy.
+- To represent Iran in the Olympics feel great.
+- Every day I live above the ground, I happy.
+- Everybody know I sold out the Madison Square Garden and I most famous American Iranian in the world.
+- I come from oldest country in the world and everybody know when Iron Sheik see the bad person like the OJ Simpson or jabroni Chris Brown or the good man like the Ray Lewis, I respect them or break their back.
+- I am Shia Muslim.
+- The Brodus Clay have gimmick good for the kids and make the people happy.
+- Mr. McMahon was the first promoter in the world give me a break at World Championship. I cannot double-cross that company.
+- When I see someone who do the good or the bad, I let the world know because Iron Sheik always talk his mind.
+- I am a real Iranian, and I'm in entertainment but still I was a 100 per-cent wrestler.
+- I live my life on the mat.
+- A pencil has eraser because it make mistake.
+- I hope people get to see the real me.
+- Never cut the hand that feed you, otherwise you are no-good piece of garbage.
+- The Iron Sheik come from Iran where I went to Olympics in Greco-Roman wrestling.
+- I come to the America to live America dream like the Dusty Rhodes. I come to America and I become most famous Iranian in the world.
+- I was the most hated wrestler in WWE, No. 1 company in the world.
+- Football players cannot be wrestlers. Wrestling is a much tougher sport.
+- We do Greco-Roman, freestyle. The Old Country way. No gimmick wrestling in my house.
+- I love the WrestleMania, and I love my family WWE. The WWE know I am the legend forever.
+- Every hundred year, mother make baby like Iron Sheik, Michael Jordan and the Jesus. Only one chance to prove you are the real in a lifetime.
+- Being a wrestler is not an easy life. It's very hard on the body. I loved it, but it is a hard life to live.
+- I only work with the real Punk, like the CM Punk or the Chance the Rapper.
+- I beat Angelo Mosca, one of the great football players - nobody beat him - I beat him at Maple Leaf Gardens. I became champion and I cannot forget Maple Leaf Gardens.
+- U.S.A. greatest country in world. Sheikie-baby live in the America. I live in Atlanta, the L.A. and the New York City - greatest city in the world.
+- I love my family - wife, daughter, grandchildren. All them are my life. I love them because they know I am the legend but they are my legends because they are my heart.
+- Mr. McMahon is a genius, and he know how to give the people good match from first match to the last match.
+- My best match, draw me lot of money and make me world famous, is the boot-camp match with the Sergeant Slaughter. He was hottest thing in the wrestling, and when Iron Sheik come we make the world news.
+- John Cena real because Mr. McMahon love him and put him on the TV to be top star.
+- Wrestling toughest sport. We never take day off. We never have the offseason like the hockey or the football. We work year-round, and we never complain because you fight to be with biggest company in the world and you never ask for the time to rest.
+- When I see someone who don't respect the people, I break their back old-country way on the Twitter. I am the law of the Twitter.
+- I love the people to see me as gold medal, Hall of Fame, world champion that knows how to make the world news and how to come from oldest counrty in the world to be most famous Iranian in the history.
+- I love New York. Any time I come to New York, people see me and they recognize me, they come talk to me and take a picture.
+- I am the greatest heel, which means the bad guy in the wrestling history.
+- In Sheikie's day, we wrestle. We not use gimmick like the table chair.
+- Life on the road not easy. You live in the cold arena, hotel, airport day after day, you get tired, lonely very quick.
+- I very easily could have broke Hulk Hogan leg because I was the real shooter. Hulk was the bodybuilder guitar player.
+- I'm the legend. I always be the legend.
+- Some days I'm in a good mood and sometimes I'm bad.
+- I cannot be phony.
+- I make it to the hall of fame. I pay for my due.
+- The Rock now the hottest thing. He come from wrestling background. Father, mother, grandfather all from wrestling business: 2-3 generations. I watch his movie. He great movie star, and I be wrestling with his father Rocky Johnson. I love them.
+- Mark Henry my black brother. I love him and his family.
+- I was three times AAU All-American World Champion and I had rough time. I was broke, no money and everything was bad for me until WWE.
+- World champion always say 'yes please' - never hold back when someone need humble.
+- I usually do not travel with my enemies.
+- Sheikie love the music that make me happy when I eat the kebob. I love the old generation - the Frank Sinatra, Bob Marley - he legend.
+- God bless my intelligent fans for their support.
+- Impossible for wrestler to become doctor or the mechanic. All they know is the wrestling and forever they do this job.
+- If I see the... Hulk Hogan or the Donald Trump, I break their back - make them humble.
+- John Cena I respect, but he know he never get out of my camel clutch and I can break his back.
+- Anthony Bourdain. He make the food, he make the world news. He know who is the real gold medal. He know what I can do. I know what he can do. He like the Jesus. He the best.
+- It hard to be real heel, like Iron Sheik-class.
+- For me, America was good.
+- All my life I am in the gym, stay healthy, and I know how to party and make the world news.
+- I love the Kanye West, I respect the Kanye West, but his wife look like fat penguin. She eat too much cheeseburger and she have no moderation.
+- You don't forget who the real Iron Sheik is. Who the real world champion, hall of fame Jesus of the twitter is. Only one Iron Sheik.
+- For the boxing, Muhammad Ali and the Michael Tyson both Iron Sheik class.
+- I have a lot of respect for Olivia Chow because she is a real excellent lady and honoured Iron Sheik's friend.
+- Dusty Rhodes play good-man gimmick. He party with me long, long time in the Florida.
+- Triple H the new Vince Kennedy McMahon. He smart to know who good for business.
+- Ultimate Warrior? No! No! The Ultimate never a good person in the business. He never respect the people.
+- Like everybody know, six years, nobody beat Mr. Bob Backlund. I beat him in most famous arena in the world, Madison Square Garden.
+- Brock Lesnar from the Minnesota. He is one of the best wrestling background, like Iron Sheik and like the Kurt Angle, Dan Gable. He the real freestyle wrestling.
+- I knew I had to leave. If Iran was not good for eh-Takhti, it was not good for me.
+- Rob Thomas, the Action Bronson and the Riff Raff. Both the musicians, they know who I am and they know I come from oldest country in the world and if I want my words like the music. I forever love them like the Frank Sinatra.
+- Chris Brown, he biggest jabroni. He have good name before he made a lot of money now he mess it up. What kind of man that beat the women? He no-good low life.
+- Gene Mean. He come to my wedding. He always make the Sheikie Baby look No. 1 on the promo. He know the camera zoom... it make the legend the real. Forever nobody better than the Gene Mean. I love him forever.
+- I make Hulk Hogan to be Hulkamania. Because I was a champion before him, I lost my belt to him.
+- The Ric Flair, I am his teacher from the Minnesota. We work together. He great performer, he great talker.
+- The CM Punk is No. 1 in the world, bubba. He work hard. He love the wrestling business.
+- I do 'The Howard Stern,' make me happy. Also I sold out Comedy Store in the Los Angeles for my roast. This way everybody know I make the people laugh and happy. I love it.
+- Flying Squirrel remind me of Ultimate Warrior because he a little rat when he jump in ring like that idiot Jose Canseco or Mel Gibson.
+- I work hard all my life and now I show the people how I come from oldest country in the world to live the America dream.
+- Your fans you never disrespect, but if they look like jabroni than you humble them till they respect you.
+- The Vince McMahon tell me I am the best Middle Eastern wrestler ever. He tell me I need new name to show how strong I am like the iron. He want me to become like the Shah. He call me the Sheik.
+- Respect to the Smashing Pumpkin the Black Key and the King of the Leon. They all have the real heart and work to make the people happy.
+- Bubba, in my old day I party on the road with all my friends. Now, I respect my family I respect the world and I don't do anything anymore.
+- I very proud I drug free.
+- Sheikie the legend angry they remove wrestling from the Olympics.
+- Why documentary about Iron Sheik? Lotta people, they ask me about my story. They ask me how the legend come from oldest country in the world, the Iran, to come to the America to become the legend.
+- Only few people have same level as Iron Sheik - the Brock Lesnar and the Kurt Angle. Back in the day, they both be good opponent for me. They know I could break their ankle if I want.
+- I leave the Iran because bad things happening there when I was greatest Greco-Roman wrestler in the world.

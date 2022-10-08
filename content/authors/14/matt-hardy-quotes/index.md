@@ -1,0 +1,105 @@
++++
+author = "Matt Hardy"
+title = "Matt Hardy Quotes"
+quotes_len = "99"
+description = "the best 99 Matt Hardy Quotes"
++++
+- Eric Young is an excellent heel. I think Eric Young is a really, really good heel because he does things intentionally so that you don't want to cheer him, you don't want to get behind him, and you don't want to support him.
+- My brokenness has made me become more primal, more instinctual.
+- It is amazing that, whenever a ladder match is announced, people automatically think of the Hardys.
+- All I can say is that 'Raw' is an amazing show.
+- The most important thing in the professional wrestling industry in this day and age of technology and the Internet and social media is to be able to make wrestling unpredictable.
+- There are many hard truths that we must face in life.
+- I want to be one of the wrestlers that actually gave back, that actually cared about the industry. That's very important to me.
+- King Maxel is the greatest soul ever known to mankind.
+- I feel, as I get older and now a father, I try to be a little more conscious of the things I would say and do. I try to be more creative as opposed to using a cheap word, cursing, or something vulgar to get a reaction.
+- Things that I had created or morphed into, I almost became. I felt like a broken man having to go back to plain old Matt Hardy in many ways.
+- My goal is go out, try and be an entertainer, try to have the best match I can but be smart about it. If people are enjoying it, enjoying what I'm doing, then that's awesome because I'm enjoying what I'm doing, and I'm very passionate about what I'm doing.
+- I'll never forget the reaction the WWE Universe gave me at 'WrestleMania 33' and my return - it was truly one of the greatest moments of my career.
+- I don't have an end game. Being a celestial being, I live for the moment to fight the Great War, and that is to light the darkness.
+- Father Time is the enemy none of us can beat.
+- As you evolve, you learn that wrestling is not necessarily about stunts or spots. You need to go out and show the audience that they can love you for the persona you are - not because of the risk you're willing to take or the jeopardy you're willing to put your body in.
+- I think the wrestling world needs TNA. I think the wrestlers need TNA. I think the fans need TNA.
+- You know that if you come to WWE and want to maintain a certain level of success, you're going to be busy and gone a lot. It's part of the deal.
+- My wife is an incredible pianist. I don't think there's anything my wife can't do, in all actuality.
+- I've always gotten along pretty well with people.
+- I think TNA has been an excellent locker room. They have a good mentality, they have a good work ethic, and they try really hard. They're obviously really passionate about wrestling, and there's a huge amount of talent.
+- The only things that matter to me are the TNA World Heavyweight Title, my bank accounts, my family, and those who support me.
+- My broken brilliance will shine a light in the darkness.
+- There's so much information accessible to everyone now because the Internet is so powerful; social media is so powerful.
+- I was brought up poor, but I've earned every cent in my bank account.
+- To have the canvas of something like an Impact Wrestling, something that had TV and be able to be a creative input guy and come up with stuff, I would love to, and I would be up for that challenge.
+- People keep saying EC3 is the heart and soul of TNA: that he's this homegrown star, and he is going to be this big star. But fans don't understand that I'm the true star - I came off Vince McMahon's TV.
+- That's usually what I indulge in if I play some games - pinball.
+- 'Wrestlemania 34' was a great moment, winning that Andre the Giant Battle Royal, and I got to bring my creation - the Ultimate Deletion - to 'Raw' in the main event slot. Lot of cool stuff I've got to do.
+- I try to keep up with everything - all wrestling across the board. I want to know what the competition is doing, what the up-n-comers are doing.
+- I like Dixie Carter as a person a lot. I think she's great.
+- TNA has had a lot of great periods - Hulk Hogan even came in, but I don't think he was beneficial to TNA. They spent a lot of money on him, but made a lot of mistakes. They should have saved that money for me.
+- Personally, I am very glad that Jeremy Borash is here in WWE. He's got a great mind - a very creative person, a good friend of mine - and he just deserves to work here.
+- If I don't lift weights, I don't feel healthy.
+- I'm very level-headed and business minded.
+- I must admit I have never told anyone this before, but Sister Abigail is older than my essence.
+- I am willing to do business and I'm willing to play ball with anyone, for I am very open-minded.
+- My initial goal was not really cater to the hardcore wrestling fans or the smarter wrestling fans. It was to cater to casual wrestling fans.
+- If I'm going somewhere to work, I'm there to work as hard as I can, put out the best product possible, and help any way I can along the way.
+- Love isn't a switch you can turn on and off. You just can't get rid of it, regardless of the circumstances, if you truly love someone.
+- I actually find fondness and appreciation for the Bray Wyatt. I see that he is driven by a higher power, much like I am driven and motivated and inspired and given strength by the Seven Deities.
+- One of the fun things about wrestling is that you can do a move and leave your stamp on the business forever.
+- I really want to be creative. I want to innovate. I want to be innovative, and I want to do things that are different.
+- Many people found 'Mattitude' absolutely delightful. As time went on, it was a constant evolution of change.
+- I got a lot of great years on WWE TV and I made a lot of money throughout the business. So, if I don't do anything else, I'm good. I can kind of do what I want to, which is a very nice feeling to have.
+- Once we went off into the singles world, I noticed there is something very unique about Brother Nero. People are drawn to him, and he has intangibles and charisma that cannot be emulated or duplicated.
+- When the Seven Deities let me know what I must do to be complete again - even though I will be stronger and more than just a regular mortal man - I will fulfill that mission and become whole once more.
+- I love wrestling. That's not going to change.
+- When everything is stripped away in life, everybody is a human being that has problems, that has issues, has flaws, that isn't perfect. It doesn't make a difference what your sex is, what your sexual preference is, what your race is or what your background is. If you're a good person, you're OK in my book.
+- I just want to enjoy every moment and try to be present in the moment of whatever I'm doing at that time.
+- At the end of the day, I'm a SmackDown Superstar.
+- I've accomplished everything I ever wanted to do in my career.
+- When you are dealing with Broken Matt Hardy, and the Brother Nero, and the Broken Hardyz, anything is possible. Anything.
+- Everyone is broken; every mortal man or woman is broken in some way, shape, or form.
+- Life is like a wrestling match: a lot of times, things are looking good, and then something happens, and you're fighting from underneath.
+- Everything we do in the 'Woken' universe is so fantastical that wrestling fans, especially younger kids, who only know Matt Hardy from tag team matches or Team Xtreme or whatnot, they need to learn what I am before we can start expanding.
+- Since the beginning of time, evil has try to capture the magic of the Hardy Compound and the nucleus of its magic, Excalibur.
+- Every night you go out there, you get hurt. It's really the easiest way to say it. People can describe wrestling however they want to, but your body is flesh and bone, and it's not meant to be slammed on wood and steel.
+- A dream match, for me, would be to bring Brock Lesnar and Paul Heyman to the Hardy compound and face them in the Beastly Deletion.
+- I don't ever want to be that guy who gets too big to take time to sign an autograph or take a picture, because I just know, without those fans, I'm nobody. A lot of people forget that fact when they make it.
+- To know you're truly alive in wrestling, you have to constantly challenge yourself. You constantly have to do things that you're unsure you can do.
+- My soul existed in an African vessel hundreds of years ago as the leader of a tribe, and my tribe fought for honor.
+- Living in the age of information and technology, everything gets out so easy and so, so quickly.
+- My Destroyed Universe is very similar to that of the 'Guardians of the Galaxy.'
+- When Jeff and I were first starting out and trying to make a name for ourselves, we were doing indy shows, and would take whatever we could get just to have as much in-ring time as we could.
+- People make mistakes, and either you fall from your mistakes, or you learn from them.
+- Honestly, it's such a personal issue, I really don't think my feud with Edge will ever end. It's almost comparable to the Bret Hart/Shawn Michaels thing. There is just such legit hatred between the two guys.
+- I would delete Donald Trump. I would delete Hillary Clinton. I would delete the man who was responsible for Brexit.
+- I just understand that life is a constant change and a constant evolution.
+- I'm one of those people who want to give back and see other people do better.
+- When you really believe something, you need to stand up for it.
+- House Hardy - myself and Brother Nero - are pioneers. My style of booking during early independent bookings was very similar to what 'Ring of Honor' later became, which is what WWE later became.
+- Whatever you have as a dream, don't let anyone tell you it can't happen; give it your all.
+- TNA has been extraordinary to me, nothing but professional.
+- I, first and foremost, want to make sure that I am personally healthy and happy in my life.
+- The most important thing any broken individual can do is keep their chin up and keep moving forward.
+- One thing I try to live by is to not have an end game. Just kind of live for the moment.
+- I am often able to hear what people are thinking.
+- It is very rewarding to be allowed to have my broken universe fill the two hours of Impact Wrestling.
+- I want to take chances. I want to kind of step out of my comfort zone, whatever that may be.
+- I do all that I can to surprise people and make things unpredictable because that is what makes wrestling fun.
+- We must all learn how to separate reality from fantasy.
+- It's real easy to be in the WWE and let your passion or your pain or the schedule put you in a bad place.
+- Wrestling isn't easy. It's like a car crash. I wish they would give guys a few weeks off. I think guys need to take mandatory time off. I know it's tough when they need to promote the key names, but they need to keep guys healthy.
+- A McDonald's cheeseburger with no mustard is my guilty pleasure.
+- I wouldn't have been so successful if I didn't have such a tremendous groundswell in support from my fans.
+- If the fans have an opinion, the wrestling universe has to listen.
+- With 'Total Nonstop Deletion,' my main goal is to give people the two hours of the most fun wrestling they have ever seen.
+- In 2009, I was on top of the world. It was truly the greatest year of my life, both personally and professionally. In 2010, it was the furthest thing from that. It was the most terrible year of my life, both personally and professionally.
+- If it wasn't for the Internet, I might never have left WWE. Then again, if it wasn't for the Internet, I probably wouldn't have been brought back.
+- One thing that is very exciting and unpredictable about professional wrestling is that anything can happen.
+- Once you have a small child who depends on you for every little thing, you're responsible for him. It's a huge responsibility. For me, it makes me into a more responsible person.
+- A lot of fans don't accept me because I became a star in the WWE, but that adds credibility and equity to the TNA title.
+- The fear that ultimately leads to hate is something we need to change, and I want to do whatever I can to make the world a better place.
+- I like Batista very much, and we have been friends in the past.
+- When I wrestle as a tag team with my brother, it's always great because we realize as our bodies, our vessels, age, we know we can't do this forever.
+- When you're doing a television production, or you're with a company, there is some stress; there is pressure to perform, and it's a little tougher, but it also comes with the benefits of having huge television exposure and wrestling in front of a bigger crowd.
+- One thing I have to admit, regardless of what my character thinks, is that EC3 is a very talented individual. He is going to be a cornerstone of Impact Wrestling for a long time.
+- Your true friends will tell you what they believe is true.
+- Every day is great when your name is Matt Hardy.

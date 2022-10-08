@@ -1,0 +1,69 @@
++++
+author = "Atif Aslam"
+title = "Atif Aslam Quotes"
+quotes_len = "63"
+description = "the best 63 Atif Aslam Quotes"
++++
+- I know that out of the thousands of people who show up, maybe nine of them will actually understand what's going on stage, music-wise. But no one should be sitting down in my concert.
+- Talent should always be recognized - no one can keep it; no one owns it.
+- Music is something that should give you peace.
+- My intention now, more than anything, is to promote kids and deserving musicians. Because the time I've seen, I want them to see a better one.
+- I have realized that there is no point making plans, because it'll never end; you're never going to win the world. I thought at one point in time I am going to do that, but you cannot. So I am just enjoying myself.
+- When one gets time duration, one becomes very restricted, and hence, creativity suffers.
+- I didn't have to express myself to anybody; I would just sing. And most of the times, when I initially used to sing, I used to get scared of my own voice.
+- People come to me and thank me for being there during their breakups or matchups. It seems awkward, but I'm glad to be of assistance during their light or dark moods.
+- I don't consider myself to be a great musician, but my first album was a record hit in Pakistan.
+- It feels good that a lot of people from Pakistan have had a good experience in India.
+- I feel it's quite important to have a band but what's more vital is to be friends with the members of the band. If there's not a bond there, you won't be able to jam. Apart from that, it's also vital to have the same vibe.
+- To be very honest, my reason for getting away from 'Pepsi Battle of the Bands' was because I was on tour. I wanted to be on tour, and the amount I was asking for, they said that they couldn't pay it.
+- There was no music at all during my childhood. The first time we heard music was when my eldest brother bought a tape recorder. Even then, only he was allowed to touch it. But in our house, we listened to legends such as Muhammad Rafi, Mehdi Hasan, Noor Jehan, Attaullah Khan Esakhelvi.
+- If my music has power, I don't have to hashtag anything. If it has to connect with someone, it will. That has been my experience.
+- I think have my own style; no one has ever tried playback singing before. I might release a punk rock song that perhaps other won't appreciate, but I like doing my own thing. I make music for my own satisfaction, not for money or fame.
+- I have been very successful in handling people who hurl abuse simply by being patient. Ignoring them is the best policy because afterwards, it's the fans that criticise these so-called celebrities for their bad conduct.
+- I started doing Bollywood and film music, and now, it has come to a point where I've started to say no. I want to do my own music. I have been there and done that, so I am not there to achieve that any more. I just want to put my music out there, and if people listen it, okay; if they don't, then fine.
+- I got a call from Shoaib Mansoor, and he asked if I'd be interested in doing the music of 'Bol.' I said, 'Why not?' and suggested we meet. When we did, to my surprise, he offered me the chance to act in the lead role. After reading the script, I was even more interested in doing it.
+- Acting in a music video is basically about lip syncing songs and giving expressions that represent what the song is about. While acting for the silver screen, you have to deliver dialogues, remember them, and you have to be in a certain frame of mind.
+- I have seen really happy people in my life sing really well. Yes, when people get fame, then there's depression.
+- Personally, I don't think of myself as a style icon. It's basically because the public loves me so much.
+- I am not obsessed with social media fame, but I do think that it's a great tool by which I can stay in touch with my fans.
+- I've heard legends and maestros praise my voice. It's overwhelming. I'm a nobody who shouldn't be at the receiving end of the such comments, and I'm extremely humbled.
+- Before becoming a father, I wanted to be No.1, but now I feel that there is no such thing. I just want to do my job and entertain as long as I can, because that's the best way to win people over.
+- I think I've been able to connect with people and their emotions through my songs. I feel honoured that despite having so many talented singers around, my work is always appreciated.
+- I can't force myself to make up a song. Music comes to me naturally.
+- You are thinking about the music, about the mathematics of it. It's time-consuming and energy-consuming at the same time. That's why I take my time off, my family time, as inspirational. I cool off.
+- Insecure people don't stage comebacks, since they don't leave the scene.
+- The reality television shows are a big hit with the masses with their Bollywood songs. Even if these TV shows are scripted, people are watching them.
+- I don't have a personal Facebook or Twitter account.
+- I don't listen to my songs. The only time I do it is when someone points out a flaw in the end product.
+- Our parents were very prim and proper, but we always got one toy every day. That was a ritual. The money didn't really matter.
+- In the beginning, it was quite challenging because I had zero acting experience, and delivering dialogues was the most difficult thing for me to do. But after I began to act, I grew as an artiste.
+- For me, lyrics are the most important thing in a song. And if they don't have meaning, I would never sing them - unless and until someone who loves your work asks me to do so.
+- Making music is what drives me - not awards, not Internet fame, not even exorbitant amounts of money. My fans call themselves 'Aadeez,' and they are the most loyal lot. I make my music for them. I love them.
+- I have performed all over the world to packed audiences. I don't have to be a trained musician to prove my singing abilities to my critics.
+- I've sung a lot for the Tauranis in the last six years. Now that my contract with them is over, I'm free to sing for others. If 'Race 3' is made by another producer, I will.
+- People just get to see me onstage, and they don't get whole of me.
+- I love India and Mumbai and would love to buy a house here.
+- My parents keep me grounded. I've spent a lot of time on my own in my life, and I've learnt the hard way.
+- I have never composed a song keeping in mind that I should touch any social issues.
+- I really miss my youth. I'm not being ungrateful, but there was an Atif who used to roam the streets, who didn't care whether his photograph was taken or not, who used to hang out without people staring at him. I miss that carefree life and would give anything for it, even if it only lasts a few moments.
+- Fatherhood has changed me and my perspective towards life.
+- I started taking part in college competitions... my first-ever performance with a band was in McDonald's, and I got Rs 500. I still have the note.
+- We all die. The goal isn't to live forever. It is to create something that will.
+- I've been offered roles in Indian films, but I wanted my debut film to be from Pakistan. A lot of people think that I've made my music career from India, but that's not true. I made it big in Pakistan, and then I went across the border.
+- Most of the songs I've written have painted a picture on how I have evolved, what I see in people, what inspires me.
+- If you're at the top, people worship you wherever you go. But when you're dying down, it's difficult to sell tickets!
+- I never thought about making music because it has to be a hit. There are so many better singers out there who are better trained in music, but I am probably the chosen one... I have not discovered any formula for staying relevant.
+- I am not inspired by anyone. I don't have any idol. I just follow the people around me and try and learn a few things.
+- I have a crazy work schedule, I don't eat good food, and I often work through nights, but I am just doing what I love.
+- The point of teaming up with American musicians was that there was no better way than that of music to let people from both the sides know what either of them thinks about the other.
+- The industry can choose to ignore my work if they want, but my fans won't.
+- I am making good music, and I want people to listen to it.
+- Yes, I think I am like the sea. I appear calm on the surface, but there's a lot going on within. Many a times, I may not react to certain things, but that doesn't mean that I don't care or I don't have emotions.
+- I have learnt from experience that being insecure never helps, and neither does pulling anyone's leg.
+- Yes, everybody has bullied me. They kept saying I was nasal and what not.
+- I've been told that my voice is very distinctive. I've been told people feel extremely connected to it.
+- I wanted to try everything. I learnt a lot from playback singing. But at heart, I'm a pop rock singer; I'm a stage performer.
+- I don't like controversies. I try to understand where a person comes from and where he is.
+- If I get an interesting script, I will surely do it. I just don't want to do cliche films.
+- I really enjoyed performing there. Dubai is a very rocking place.
+- It is very overwhelming to find that you are loved by people belonging to different provinces and cultures. They give me the energy.

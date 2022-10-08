@@ -1,0 +1,12 @@
++++
+author = "Matt Flynn"
+title = "Matt Flynn Quotes"
+quotes_len = "6"
+description = "the best 6 Matt Flynn Quotes"
++++
+- I try to have the motto of living life with no regrets.
+- I'm in control of what I'm doing physically and mentally. I feel good. I've always felt confident and comfortable going into seasons, but each year I feel like I'm getting better and better.
+- I feel like, if the guys can look at me in the huddle and see a calm and collected face, that they're going to relax a little bit. The way I look at it, leadership and being that guy is, don't be someone you're not. Don't be a hoorah guy jumping around and clapping your hands if you're not that guy.
+- I think there's nothing that's not important. Everything you do - from how you connect with the guys in the locker room, to how you learn, to how you play on the field - everything's important; everything goes with the position.
+- I love preseason games. They are fun to me because you get to go out there with guys that are on the NFL field for the first time and playing against guys who are going to be on the field for the first time.
+- Preseason game plans are always about fundamentals and playing football. You're not trying to out-scheme anybody, you're just trying to beat people and out-execute people. That's what's fun to me.

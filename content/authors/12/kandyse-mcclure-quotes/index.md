@@ -1,0 +1,16 @@
++++
+author = "Kandyse Mcclure"
+title = "Kandyse Mcclure Quotes"
+quotes_len = "10"
+description = "the best 10 Kandyse Mcclure Quotes"
++++
+- I lived in South Africa until I was 11 when we first immigrated. My mom had sent me back there when I was 14 for summer vacation. I wasn't doing very well in school, my grades were slipping. I called my mom one day and told her that I wasn't coming back. I ended up staying there until I was 17 before coming back to North America.
+- The very first role I ever played was as a 17-year old South African girl who dreamed of being a star and left home to meet her mother in the big city so that she could pursue that dream. I left South Africa and met my mother in Vancouver and not long after that was given the opportunity to perform on the stage and have people chant my name.
+- I read that when cats are cuddling and kneading you, and you think it's cute, they're really just checking your vitals for weak spots.
+- I'd love a werebear. But I guess you need that seductive element of danger. And though bears can be dangerous, when you say werebear it just sounds kind of cuddly. Probably has a rainbow on his belly.
+- Living here in North America - I have been Americanized. When I go back home now, there are things that I have far less tolerance for in South Africa. We've come such a long way in terms of race relations and the economy as well as people's willingness to move on. There are still a lot of things that are frustrating about being in South Africa.
+- I have to say, as a young woman of color, and this may sound controversial, in sci-fi, anything is possible. In sci-fi I can belong to the military. In sci-fi I can have an interracial love affair; I can be a revolutionary.
+- Candice is the original spelling of my name. I changed it to Kandyse when I was really young and first starting out in the business as kind of a joke. I didn't realize it would stick! I did consider changing it, but then it seemed too confusing, so then I asked them to change it back. Not too soon, however!
+- I'm always preparing for a regular life.
+- I've always loved the power of stories to transport me to another world, to imagine extraordinary possibilities, to experience things I may not have access to in my regular life - like being a superhero! Also, I would always put on shows for my family and the neighbors; I guess I was an actor before I even knew it.
+- This is going to sound pretentious and esoteric, but I truly mean it from the bottom of my heart. Acting has always been a spiritual journey for me. The very first project I ever acted on paralleled my experience so perfectly even before I was aware of it.

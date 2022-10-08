@@ -1,0 +1,31 @@
++++
+author = "Kathryn Stockett"
+title = "Kathryn Stockett Quotes"
+quotes_len = "25"
+description = "the best 25 Kathryn Stockett Quotes"
++++
+- When I grew older and awkward, when my parents divorced and life had gone all to hell, Demetrie stood me at the wardrobe mirror and told me over and over, 'You are beautiful. You are smart. You are important.' It was an incredible gift to give a child who thinks nothing of herself.
+- When Demetrie got sick, we knew it was our responsibility to take care of her and pay her medical bills. And we embraced that. But the tricky part is, like so many families in the South, we also expected her to use a separate bathroom, to use separate utensils.
+- As I wrote, I found that Aibileen had some things to say that really weren't in her character. She was older, soft-spoken, and she started showing some attitude.
+- But certainly in my grandmother's time - and when I was growing up, yeah, Demetrie's bathroom was on the side of the house, it was a separate door. Still, to this day, I've never been in that room.
+- I grew up in the 1970s, but I don't think a whole lot had changed from the '60s. Oh, it had changed in the law books - but not in the kitchens of white homes.
+- What a dichotomy. What conflicting ideas that we love and embrace these women, and entrust them to raise our children and to feed us and to bathe us, but we keep something as silly as a bathroom separate.
+- Having a separate bathroom for the black domestic was just the way things were done. It had faded out in new homes by the time the '70s and '80s rolled up.
+- I started writing it the day after Sept. 11. I was living in New York City. We didn't have any phone service and we didn't have any mail. Like a lot of writers do, I started to write in a voice that I missed.
+- I was born in Jackson, Mississippi, in 1969, in a time and place where no one was saying, 'Look how far we've come,' because we hadn't come very far, to say the least. Although Jackson's population was half white and half black, I didn't have a single black friend or a black neighbor or even a black person in my school.
+- I have never been more proud of the United States than I am this year. We have elected an African-American president. We have the stellar Michelle Obama setting the standard for American women. I simply cannot say it enough: look how far we've come.
+- Demetrie came to wait on my grandmother in 1955 and stayed for 32 years. It was common, in Mississippi, to have a black domestic cleaning the kitchen, cooking the meals, looking after the white children.
+- I'm really incredibly stubborn - you can ask my ex-husband. I think when you tell me 'no', if it's something I really want, I'm just going to push harder.
+- What conflicting ideas that we love and embrace these women, and entrust them to raise our children and to feed us and to bathe us, but we keep something as silly as a bathroom separate.
+- I'm a Southerner - I never take satisfaction in touching a nerve. I guess if I'm forced to find a good side, I'm glad that people are talking about an issue that hasn't really been discussed all that much. I'm glad that people are talking about it from the black perspective and the white perspective.
+- On the one hand I wonder, Was this really my story to tell? On the other hand, I just wanted the story to be told. But the truth is that I didn't think anybody was going to read it.
+- Some readers tell me, 'We always treated our maid like she was a member of the family.' You know, that's interesting, but I wonder what your maid's perspective was on that.
+- I think if you're president, color goes away completely: you're president and it doesn't matter if you're white, green or purple.
+- Your white uniform as a black domestic was your ticket anywhere in town.
+- That white uniform was her 'pass' to get into white places with us - the grocery store, the state fair, the movies. Even though this was the 70s and the segregation laws had changed, the 'rules' had not.
+- As children, we looked up to our maids and our nannies, who were playing in some ways the role of our mothers. They were paid to be nice to us, to look after us, teach us things and take time out of their day to be with us. As a child you think of these people as an extension of your mother.
+- I'm a Southerner - I never take satisfaction in touching a nerve.
+- The first book you write because of the way it makes you feel. The second one you can't help but wonder how it's going to make the reader feel.
+- It can be really powerful to write something when you're sad.
+- I do wish that people talked about the subject of race, especially in the South.
+- I sit in my little office and I feel like I've got all my readers staring at me.

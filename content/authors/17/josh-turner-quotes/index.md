@@ -1,0 +1,73 @@
++++
+author = "Josh Turner"
+title = "Josh Turner Quotes"
+quotes_len = "67"
+description = "the best 67 Josh Turner Quotes"
++++
+- You hear about quality time a lot but I really think that quantity time with a person is really what strengthens a relationship. That's when you really get to know somebody. You get to know their strengths and their weaknesses and that brings you closer. That's what 'Time Is Love' is all about.
+- I have a nice boat that I got a couple of years ago that's a Skeeter brand that's 20-foot, center-console. I have it set up for saltwater and for fresh water, so it's been a nice boat.
+- I'm not much of a water skier, my legs are too skinny for that, so I just try to tube and have fun, just ride.
+- Life is a series of punches. It presents a lot of challenges. It presents a lot of hardship, but the people that are able to take those punches and able to move forward are the ones that really do have a lot of success and have a lot of joy in their life and have a lot of stories to tell, too.
+- You have to take time and make time for each other. My current single 'Time Is Love' gives a lot of advice in that area, just spending quantity time with the one you love and the one you care about because that's when you really develop a relationship.
+- When I'm up on stage, I'm thinking more about my fans and about myself as a singer and an artist. When I'm at home being a daddy, the last thing I'm thinking about is being an artist. It is two things that I never really put together.
+- My dream was to go to Nashville. I had my sights set on my dream. I used to have an '89 Toyota Ford truck. On the front of the truck, I had this license plate with cowboy boots and a guitar that I had airbrushed at Wal-Mart. It said 'Chasin' A Dream.' That was kind of my motto.
+- 'Firecracker' was such a fun song to write and to perform.
+- 'Long Black Train' was inspired by a vision that I had of a long, black train running down this track way out in the middle of nowhere. I could see people standing out to the sides of this track watching this train go by. As I was walking, experiencing this vision, I kept asking myself, 'What does this vision mean and what is this train?'
+- I'm definitely not going to go and sing a song that condones certain things.
+- I was trying to learn how to deal with the freedom that I had away from home for the first time. 'Long Black Train,' the song and the album, are very special to me. It was just one of those things that I felt like God gave to me for a purpose, and I've been out here promoting that purpose.
+- What I did to celebrate was I went home to my 535-square-foot apartment by myself and ate supper by myself. That was how I celebrated getting a record deal.
+- I love Jesus Christ with all my heart and everything He stands for. I think that sums up everything that I want for my life, everything I want for my family, everything I want for my career. I want it to be entertaining. I want people to smile and tap their toes, but I want it to be meaningful when the day is done.
+- I grew up like a lot of country boys and girls do - amongst the pine trees, dirt roads, farms, mules and people who were real.
+- Each day I feel a little differently; some times I try to write something that's fictitious and then there's other times where I try to write something that's true.
+- I haven't always been the guy that walks into a room and automatically the attention is on me. I'm normally the guy that stands off in the corner.
+- Who's not a fan of Don Williams? He's the gentle giant.
+- I've listened to a lot of outside stuff and just haven't really heard anything that moves me. I don't know if I'm getting old and crotchety or what.
+- 'All Over Me' is a song that I really got fired up the first time I heard it: it just really moved and it really had a lot of energy.
+- I care about my legacy that I'm leaving, not only for my fans, but for my wife and my children and my grandchildren. I want them to look back and say, 'He did it right and he stood up for what is right.'
+- I don't feel like God called me to be a gospel singer. He didn't call me to be a Christian singer; he called me to be a country singer, and I just happen to be a Christian.
+- Not only am I trying to be a daddy, but also a friend, not be the old fogey that's slowing everybody else down... not for a while, at least.
+- 'Haywire' is full of different kinds of love songs. It's definitely country and a little something for everybody. I feel like the subject matter goes a little deeper about love and relationships.
+- Singing allowed me to express myself in ways that I wouldn't be able to do otherwise.
+- I'm such a perfectionist and I like to have everything just right, but at the same time I try to be as real and as genuine as I can be in my life and in my career.
+- When I first started out in this business, it was easy because nobody wanted anything from me. But now everyone wants something from me, so it's hard to break away and just be a songwriter.
+- Don't let your children take priority over your marriage and your work and everything else.
+- I came from a rural background, and I didn't come in contact with a lot of wealthy people.
+- Raising three boys is a huge responsibility for me, especially in this day and time when I look around and there's a lack of good, strong, upstanding Christian men who are not afraid to be men and just own up to their responsibility.
+- I play basketball all the time. Me and my band play every week on the road. That's something that I've never really given up since high school.
+- I didn't rebel in the way a lot of people do.
+- I love the Country Music Hall of Fame. I don't think it's just a hall of fame and it's not just a museum. It's a schoolhouse. It's a place where people from all across the world can come and learn about this great genre that we're making a living out of.
+- I may never know what type of effect I have on my sons, just like Granny never knew the effect she had on me. So I just try and make the best decisions that I can, be the best father that I can.
+- We all have those days when you feel like you're against the world, every little thing goes wrong and your blood pressure is up. And you feel like punching somebody!
+- My first full year of touring, I did 300 days on the road. That was not including the travel time or publicity or anything else - that was just dates. I was home probably less than 50 days that year.
+- I'm always showing pictures off. I have to be careful who I show them to because of who I am, obviously, but I'm a proud father.
+- I love deeply, and when it comes to singing love songs and something that I have no problem doing, I put all of my heart and soul into these love songs. I know my fans out there are listening, taking these songs to heart. Like I say, they're relating these songs to their lives, too, and their relationships.
+- We're blessed to be at a level in my career where I can afford to take out a bus of my own and bring my whole family with me, so that's great, too. The boys are out with us all the time, and it's just great to be able to turn around onstage and see my wife back there behind me.
+- I remember those days right after I graduated from college. All I had to do was wake up in the morning and think about writing songs. It's not like that anymore, needless to say.
+- I'm thankful to have Jesus as my Savior. My relationship with God has always been one to where I'm talking to him all day, every day, about anything and everything. It's just a continuous ongoing conversation that I have with the Lord, and I feel like that's brought me closer to Him.
+- There were only 75 people in my graduating class at the school I attended in Hannah, S.C. It was a small school and that translated into not a lot of opportunities when it came to music. We had academic and sports programs but we never had a consistent music program. We would have a band one year, and a chorus one year, but nothing ever lasted.
+- I feel like the live record thing is something that I've been getting used to as the years go by and with this being my second one, I'm continuing to learn what works and what doesn't work. A live record is an example of that authenticity and that realness that you find in imperfection and you can hear that in this record.
+- I like to fish when it's not too hot.
+- I grew up around people that enjoyed life day to day and found pleasure in simple things.
+- I don't ever land on an album title until I know exactly what's going on the record, because you never know until it's all said and done.
+- One of my favorite places is Seattle. Growing up, I never thought I'd be able to go to Seattle. I grew up in eastern South Carolina, so that's as far as you can get from Seattle, unless I lived in Miami.
+- It's hard sometimes to capture magic when it comes to live records.
+- You have to make a lot of sacrifices, and the main thing you have to sacrifice is your privacy. It's funny because when I was growing up, my daddy was and still is an insurance agent in our home town. He couldn't go anywhere without somebody recognizing him or needing something from him.
+- I've found throughout the years that I needed a place where I can go with no TV, no computer, no phone and just have no distractions and just be able to sit and think and just not be disturbed.
+- I've never had the patience of a teacher.
+- When you get married and have children, and you start having hits and success and your business starts growing, there's less and less time for songwriting.
+- In today's time, writing stuff that actually happened is touch-and-go, because you don't want to be too personal. If you are, then it probably won't relate to a mass audience. A lot of times you have to make it sound like it's about everybody else, but you really went through it.
+- I've known from a very early age that singing was what I was supposed to do. There was this unmistaken, undeniable passion within me to sing country music.
+- I come from big families. My momma was the oldest of three and my daddy was one of six - and I've always loved children. They bring a lot of joy to the world and they make us adults look at things in a better way.
+- Sometimes it feels like I've been in the business forever, but then other times, it feels like kind of a flash. Growing up, all I wanted to do was sing. All I wanted to do was get on a bus and ride around the country and sing for people and be a household name.
+- I love my boys. I love watching them growing up. I love seeing them develop, and I'm always looking forward to seeing what they're going to become and what they're going to be interested in later in life.
+- My granddaddy on my momma's side, he was a romantic. He loved love songs. Every Valentine's Day, I remember him buying a red carnation for my grandmomma, my momma and my sister. That was something you could count on every year.
+- I'm a sinner just like everybody else and I have my faults and I've been through my dark times in my life to where I wasn't walking the walk and talking the talk, or I may have been talking the talk, but I wasn't walking the walk.
+- A No. 1 record is hard to come by.
+- I grew up going to a real small missionary baptist church. We would sing a lot of the old standards... the hymns and everything. Those songs are still my favorite and are pretty timeless.
+- The coolest gift I've ever gotten from a fan was from the Franklin Mint. It was a knife, and it had a picture of General Wade Hampton, who my oldest son is named after. It's a collector's item and came with a case and a stand and everything.
+- To think that my heart and my words and my music saved somebody's life, it takes a while to just sink in with me. But it proves to me that music is powerful.
+- I love Tennessee, but they don't have the pine trees and the sandy soil and the black water that I grew up around.
+- It's so cool for me to do what I love to do for a living and meet people from all over the world.
+- I didn't have any expectations of what my family life would end up being like. But I've been very blessed in my life to have a wife who loves me and supports me and is able to be in my band and travel with me.
+- My manager came up with the idea of taking a Pro Tool rig out on the road to record every night and I thought it was a great idea. I felt like it would be good to record over a certain period of time and then take the best performances of that collection of recordings. It appealed to me that it wasn't going to be from just one location.
+- I've been mocked a lot. I've been made fun of, you know, of the standards that I keep out, and that I hold out on the road and the way I conduct my business and myself and the way I behave in this business.

@@ -1,0 +1,31 @@
++++
+author = "Mickey Mantle"
+title = "Mickey Mantle Quotes"
+quotes_len = "25"
+description = "the best 25 Mickey Mantle Quotes"
++++
+- Today's Little Leaguers, and there are millions of them each year, pick up how to hit and throw and field just by watching games on TV. By the time they're out of high school, the good ones are almost ready to play professional ball.
+- The only thing I can do is play baseball. I have to play ball. It's the only thing I know.
+- Somebody once asked me if I ever went up to the plate trying to hit a home run. I said, 'Sure, every time.'
+- I don't care who you are, you hear those boos.
+- As far as I'm concerned, Aaron is the best ball player of my era. He is to baseball of the last fifteen years what Joe DiMaggio was before him. He's never received the credit he's due.
+- Heroes are people who are all good with no bad in them. That's the way I always saw Joe DiMaggio. He was beyond question one of the greatest players of the century.
+- Well, baseball was my whole life. Nothing's ever been as fun as baseball.
+- Roger Maris was as good a man and as good a ballplayer as there ever was.
+- It's unbelievable how much you don't know about the game you've been playing all your life.
+- A team is where a boy can prove his courage on his own. A gang is where a coward goes to hide.
+- I could never be a manager. All I have is natural ability.
+- I'll play baseball for the Army or fight for it, whatever they want me to do.
+- The biggest game I ever played in was probably Don Larsen's perfect game.
+- It was all I lived for, to play baseball.
+- He who has the fastest golf cart never has a bad lie.
+- My views are just about the same as Casey's.
+- You don't realize how easy this game is until you get up in that broadcasting booth.
+- I guess you could say I'm what this country is all about.
+- If I knew I was going to live this long, I'd have taken better care of myself.
+- When I hit a home run I usually didn't care where it went. So long as it was a home run was all that mattered.
+- Sometimes I think if I had the same body and the same natural ability and someone else's brain, who knows how good a player I might have been.
+- To play 18 years in Yankee Stadium is the best thing that could ever happen to a ballplayer.
+- After I hit a home run I had a habit of running the bases with my head down. I figured the pitcher already felt bad enough without me showing him up rounding the bases.
+- I always loved the game, but when my legs weren't hurting it was a lot easier to love.
+- Hitting the ball was easy. Running around the bases was the tough part.

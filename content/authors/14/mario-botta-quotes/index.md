@@ -1,0 +1,22 @@
++++
+author = "Mario Botta"
+title = "Mario Botta Quotes"
+quotes_len = "16"
+description = "the best 16 Mario Botta Quotes"
++++
+- For me, architecture is not just creating a space to protect people but to make them dream as well.
+- Artificial light is used because you can control it better. Technically, it is more homogeneous, more delicate, and less damaging to artwork. But I think it's interesting when the visitor can see variations in the light, when it is not only technical or suitable.
+- Buildings in modern cities have lost their metaphoric aspect. Much contemporary architecture is very fragmented and busy on the outside. It's like a skin or a skull, but you don't know what's inside.
+- To me it was fascinating, the idea of going to university and studying a subject - architecture - that I had already faced in building some small houses.
+- There's no point in us designing synthetic laboratories that could just as well be in Dusseldorf or Helsinki. San Francisco has its light, which must be used.
+- Church architecture describes visually the idea of the sacred, which is a fundamental need of man.
+- The Academy of Architecture in Mendrisio comes from afar. Our land has a millennial history of emigrations: master masons, architects, builders, decorators, plasterers, artists from the world of building.
+- Great architecture of the past was always clear. SFMOMA is still a simple building to understand.
+- I want to modernize the ancient. I prefer to work with materials formed naturally over thousands of years.
+- It was very useful to learn the history, the theory, and the art of building from a practical background.
+- The architect aspires to build in a city as the artist aspires to exhibit his works in a museum.
+- The architect works in the territory of memory.
+- I wanted to design a museum in which everything would seem clear.
+- A museum is a spiritual place. People lower their voices when they get close to art.
+- In 1996, I took advantage of some favourable circumstances to propose to the state of the Ticino Canton the foundation of the Academy of Architecture and, with it, an Italian-speaking university in Switzerland.
+- There is great mystery in a church. For me, there is a great privilege to be confronted with the design of a church because it shelters the most powerful themes of humanity: birth, marriage, death.

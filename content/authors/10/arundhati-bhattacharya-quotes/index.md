@@ -1,0 +1,105 @@
++++
+author = "Arundhati Bhattacharya"
+title = "Arundhati Bhattacharya Quotes"
+quotes_len = "99"
+description = "the best 99 Arundhati Bhattacharya Quotes"
++++
+- Demonetisation is a disinflationary process. So, this will bring down prices in the long run. It will also help in bringing down interest rates.
+- SBI Caps has a distinct advantage because most of our people are market recruits. We have a public sector heritage. Our challenge is to bring the best of both - public sector heritage and private sector talent - and provide a unique offering.
+- If you snap off people's heads and get on to a kind of a pedestal, it's more difficult for people to approach you. It's much easier if you are down there with them. They will talk to you.
+- When it comes down to business, everybody is very businesslike... I have never felt any difficulty in dealing with any of these situations.
+- The higher interest and higher inflation is a vicious cycle.
+- Until you get your reputation made, you have to work twice as hard... there is always a doubt in your superior's mind as to whether you will put family before your job.
+- A maturing process, and growth, is always painful. You ask any teenager, they will tell you, and it's just like that for the country. We need to grow; we need to evolve.
+- India does not have a problem of people grabbing share from a fixed pie. India is one of the few nations where the pie is getting bigger.
+- It is important to create credit absorption capacity rather than to just enhance lending targets.
+- If you are really challenged, and if you are willing to take the plunge, very often some of the path opens up in front of you.
+- Often, people wonder if she can give the time required at work, given also her responsibilities at home. So a woman has to prove her worth over and over again each time she's given a new responsibility, especially when she is at junior to mid-level positions.
+- One of my main agenda right from the beginning has been cost rationalization, and we have done a lot of cost rationalization.
+- We underestimate our people. Given a challenge, most of our people will do it, especially the youngsters who take to technology like duck to water.
+- It is only after you are able to stand on your own feet, or have the confidence that you can stand on your own feet, should you look at doing things such as marriage or setting up a family.
+- Every industry, as it comes to a certain level of maturity, there is consolidation. In that consolidation, some fall, but the men will always be there. It is the boys that get sloughed, I would say.
+- ATM is still a cash channel; we want to migrate it to the digital channel.
+- Competition is always there.
+- If you look at the international markets, for projects that are capital-intensive, the minute the construction phase is completed and production is supposed to start, normally all these loans get refinanced.
+- What needs to be done is that the digital initiatives that we had started, that those get the same kind of focus, and that we now disincentivize the use of cash. If you're going to slide back into the ways that we had before this demonetization impact, then you really won't get the benefits.
+- Had it not been for the groundswell of support by the people of India, we would not have seen such a huge exercise of demonetisation bounce off without a single riot or a single law and order issue.
+- I say what is required to be said.
+- Frankly, I have a lot of interests, and I am not all that wedded only to banking.
+- If you want to deemphasise cash, then people should not only have an incentive for going digital but also a disincentive for doing cash.
+- At SBI, we say that if you need a project to be done, you need to be determined that it needs to be done, put a deadline, and it will get done.
+- If you start from the farm sector, we need much better investments and capital creation on land. We need logistics support; we need cold chain and processing capability. We need proper pricing at various stages to ensure that the producers are not left out in the value-chain.
+- Your ability will get you the job, but you also need to have age on your side. So if you started your career at 21, you have an advantage over others in your batch who started at, say, 24.
+- Cash is not cheap. The physical infrastructure is not easy to maintain and cheap.
+- You can't merge six banks and think that nothing will happen.
+- Those who claim that they need cash because they are unable to pay labourers are those who are not paying minimum wages.
+- Banning cash transactions over R3 lakh will allow banks to diversify their banking activities into new areas and not mundane ones.
+- The move towards a unified agricultural market helps farmers get correct remuneration for their produce.
+- If you go to any boardroom... the women are, by far, outnumbered by the men.
+- If you have six corporate centres, six treasuries, six of everything, and then if you bring it down to one of everything, obviously there are some savings.
+- If we want to be the banker to every Indian as we want to be, then we will have to use technology.
+- Once you have set the goal, give your staff the space to get there. If you micromanage, you will be able to do very little.
+- The decision to incentivise savings for pension funds augurs well for infrastructure financing and retirement planning.
+- Most of the time, women believe that what lies ahead is a precipice. Whereas, if you continue to drive and stay on the path, the road will open up in front of you, and you will reach your destination. You don't need to turn around and abandon the journey.
+- In India, the investment banking industry is a little different. Overseas, the structures are very complicated, but not in India.
+- I have never worried if my daughter has fallen sick, and I am somewhere else, because there is always somebody to take care of her.
+- Digital is the only way to get rid of corruption and unaccounted cash.
+- If you look at it ideologically, I would say Brexit is not something that probably is good for the world.
+- When there are good postings available, the people who choose who is to come to that particular position, they will always have, at the back of their minds, a fear that, 'If I take a woman, she might prioritize her family over the job and, therefore, not be available at times when her presence is required.'
+- In any merger, the biggest challenge is always integration of human resources because the people who are coming in have a lot of apprehension.
+- At the end of the day, none of us are the Oracle of Delphi, so we don't get everything right. It's always good to be able to listen and to take on what seems to be the right thing to do.
+- We are present in all areas, and our products are the best.
+- You have to go to war with a sword and a shield. You cannot go to war with bare hands.
+- We keep saying, 'No more 'band aid' solutions.'
+- Waiving debts corrupts the credit culture.
+- Lending rate is a function of both liquidity as well as credit demand.
+- It is too expensive to have a bricks and mortar presence everywhere.
+- Brexit is actually a step back in the sense that you are going back from being connected to being on your own.
+- Indian Prime Minister Narendra Modi turned the narrative around on demonetisation very quickly by promoting the move as one way of ending systemic corruption in the country.
+- I do believe in teamwork, and I think it's very important, especially for a woman, because if you don't have a good team, then you cannot step out if you need to.
+- I am not going to opt for a short-term view for a 206-year-old institution like the SBI.
+- We have been partners in nation-building and take our role in building the nation very proudly.
+- Some amount of support from government and regulator is required when you are looking at resolving systemic issues.
+- Because SBI is so large, serving customers in India's big cities and small rural villages alike, it has a pressing need for better tools and technology to monitor lending risks.
+- Senior officials are always looking for good juniors, so when the opportunity comes, they give you the responsibilities.
+- Cash imposes a huge burden. We don't understand it, as it is not immediately visible. It is a huge burden on society.
+- Children should be taught in school that you should have all kinds of asset classes in your portfolio. They should be taught what those asset classes are, and their advantages and disadvantages.
+- My friends have helped my daughter in certain areas more than I have. What these have taught me is that you need to be good to people. There will always be times when you need their help.
+- One thing I would tell women is that they must take up the challenge. Very often, we anticipate a lot of problems, and therefore, we don't take the lead. And I think that we are shortchanging ourselves if we don't do that.
+- After some time, my reputation preceded me each time I was given a new posting.
+- People are used to cash, and getting them out of that is going to be a long and tough exercise.
+- Even for the people in the bank into which the other banks are merging, they also have a lot of apprehension. There is always an apprehension that opportunities will go down. There are apprehensions of displacement. Many of these apprehensions are unfounded.
+- When borrowers anticipate that politicians might cancel their loans, they stop paying.
+- If a woman is financially independent, she can definitely make a bigger contribution in making big decisions and contribute much more. If a woman is financially independent, she can pursue her interests, too.
+- I always focus on team building - both in office and at home.
+- Private sector has no issue in coming into infrastructure sector. They know very well that infrastructure is one area that can give you very steady long-term returns.
+- Why should a country have to take on itself a huge burden of managing a totally cash economy?
+- I have met a lot of women who are good at math.
+- It was my first day at work - and beginning my training on the job, I was given the job of writing cheques and entering their details. The branch was surrounded by hordes of people... soon, they had to close the gates to manage the crowds, and they started pushing in.
+- There is potential for more Chinese investment in India's infrastructure, and there are already Chinese investors in India's power and telecoms sector as well as the banking and payments space.
+- One of the big lessons I have learnt from my life is that things are never as difficult as they seem. When you actively plunge into it, you realize you can easily do it.
+- It's good to be on the power list, but I don't see a practical use of it except when people introduce me to audiences.
+- Women being women, they are very sincere, committed, and honest in what they do. If they feel they are shortchanging some segment of their responsibility, they have a tendency of holding themselves back. What I would like to tell them is that it is not necessarily true that you will short-change one or the other.
+- If you are satisfied, you will never see any more progress. One remains dissatisfied, but that doesn't mean that things are not happening.
+- Some people look at my photos and think maybe I'm feeling frazzled, but I really want to tell them I'm just having a bad hair day!
+- If you are approachable, if you keep your line of communication open, then very often, you get to hear what you need to hear.
+- The capping of cash transactions will help the banks reduce cash intensity.
+- Multiple mergers can be challenging because people come from different backgrounds.
+- I believe that we will benefit more by globalisation.
+- Whatever I have said is in the interest of the system, and it has never been taken amiss.
+- As demand goes down, you will see prices come down.
+- Things have their own pace, and if we work with that pace and anticipate the issues correctly, we can have good results.
+- Disinvestments will continue to happen. If the issue is priced correctly, there's no reason why it should not sell.
+- To tell you the truth, if you're looking at rising pretty high, then you need to find a way of taking care of these problems and not taking time off. At the end of the day, it is a very tough competition. And in a very tough competition, if you just take breaks, then it's going to become much, much more difficult.
+- I am happy to be running a public sector bank. In times of stress, most people will always have an account with us, so, to the extent that it gives stability and faith for the people and because banking is a business of trust, it is a major advantage we have.
+- I can't tell you precisely how much participation there will be from India in the One Belt, One Road, but what is clear is the understanding that it is important for us to develop neighbourhood trade.
+- When interest rates are coming down, you cannot have high margins.
+- PSU banks are sole lenders to capital-intensive firms.
+- Our huge infrastructure that we need for keeping cash is very expensive.
+- Theoretically, every probationary officer has a chance to become chairman.
+- At State Bank, all decisions are collective decisions. I have created the comfort zone.
+- In India, women are still the primary caregivers. Whether it be for children, whether it be for old people or sick people, you are the primary caregiver. No matter what position you are in.
+- In order to ensure long-term investment, it is important to make infrastructure as transparent and as bankable as possible - should be a win-win for all.
+- I believe in discussing very thoroughly what should be the goal. When discussing it, I allow others to give their views.
+- You cannot take bank interest rates very sharply down: you will lose your deposit franchise.
+- India has a very young population which is comfortable doing business on a screen than do it one on one with a banking executive. They want quick fulfilment of desires, and may not have the time to go to a bank to get things done. Many of them are comfortable working from home.

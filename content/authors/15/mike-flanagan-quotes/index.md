@@ -1,0 +1,72 @@
++++
+author = "Mike Flanagan"
+title = "Mike Flanagan Quotes"
+quotes_len = "66"
+description = "the best 66 Mike Flanagan Quotes"
++++
+- I tend to over-prepare my shot lists.
+- When horror is about something - capital-A about - that's when it's really landing.
+- There's nothing scarier than silence. A lot of horror movies lean on hits and score to try and create tension, which actually does the opposite. The best scares come from a desire to see the character overcome what they're dealing with in the scene. If you care about the character you'll care about the scare.
+- I think in a lot of ways, 'The Shining' is about alcoholism and 'Doctor Sleep' is actually about recovery. They go together pretty well that way.
+- I grew up in a very healthy nuclear family, and I was fortunate enough to not have to deal with loss and grief as a child.
+- There is only one act of violence in 'The Strangers' and it comes at the very, very end... the movie could have worked just as well if we didn't see it, in my opinion.
+- I'm a natural born skeptic.
+- I associate a family as the safest place in the world. So when it comes to things that scare me, introducing instability and tension into where you're supposed to be the safest really strikes a chord with me.
+- Whenever you take a general meeting, inevitably you run out of things to talk about, they'd always say, 'What's your dream project?' I would always pull out 'Gerald's Game.' If they knew the book, they'd say, 'Well, that's unfilmable.' If they didn't know the book it would take about 30 seconds of my pitch to say, 'That's not a movie.'
+- We're all storytellers in this business, and I personally love to sit back and watch someone tell a story. If it's done well, there's nothing like it. It's pure.
+- I'm a Stephen King fanatic.
+- Audiences are embracing more and more unique material. I think they can sense the cynicism when people are just cranking something out to try to ride off the success of something else. I think they can feel it.
+- I've always been fascinated with the '60s in general.
+- I think it was in sixth grade, though, when I picked up my first Stephen King book, which was 'It,' that knocked me over and terrified me for years. Then I never went back. I had to own every Stephen King book and read them at least three times. They would terrify me completely, but I couldn't stop. That became my preferred source of fiction.
+- I saw 'The Shining' in eighth grade. I watched it on VHS at a sleepover and was petrified, totally petrified. And I didn't really start to digest the movie properly and understand it from a filmmaking perspective until I got older. But it pretty much defined what it meant to be scared of a movie for me.
+- Well, I'm always drawn to the drama first. A story is really only interesting to me, if you can remove all of the genre moments and remove the supernatural element, and it still works. Then, I'm interested.
+- When I read Doctor Sleep, when it was first published, I was so taken with getting to spend time with Danny Torrance again.
+- A movie studio has to answer to a marketing department, and to shareholders, to ensure the broadest audience possible for its product; it tends to err on the side of caution as a result.
+- Thanks to 'It,' you're going to see the studios take a lot more chances on a very specific vision. An R-rated horror film about children being eaten by a monster that lives in a sewer is not normally something that a studio would throw their weight behind. But we've seen the success of it, which props everyone up.
+- Depending on how 'Doctor Sleep' does, we'll see what movie opportunities there will be.
+- With 'Gerald's Game' in particular, we didn't have enough money or time and it was really hard.
+- I am always fascinated by the mental struggles that people and characters have.
+- What you don't want is for violence and gore to become more important than character and structure. A lot of slasher movies from the eighties were only focused on violence and gore, which robs the human beings in the story of any empathetic reaction from the audience, and instead makes them cheer for the gore.
+- I'm a major NASA nerd, so I've spent a lot of time learning about the space race and the Apollo missions.
+- At home, people are more likely to be distracted than in a theatrical environment. They're checking their phones, pausing to get a snack, or sometimes jumping from show to show.
+- When I first started out and would go on pitch meetings, there was always this kind of eye-roll that would come with pitching a horror movie when you were dealing with the studios. Unless it was viewed as a cheap product that could turn a lot of profit, there wasn't a lot of interest in making it good.
+- Well when I hear 'slasher' I think about the 80s.
+- It's a wonderful thing to watch an actor just act.
+- What's so exciting and unstoppable about the horror genre is that I view it all as metaphorical exploration. It's the safe place that we, as a culture, can deal with things that upset and frighten us - the darker side of our nature.
+- I forget who said it, but there's that saying: 'Films are never finished, they're abandoned.' There's always something you think you can improve on, but I don't think you should try. George Lucas started doing it, and didn't stop. You can tinker indefinitely, and it doesn't necessarily make it better.
+- I started off making backyard movies. I think it began in fifth grade - I'd get the friends together and we'd make little home movies. I always wanted to make movies but I didn't know how. It was always something really fun to do.
+- Gerald's Game' had such an impact on me when I read the book in college that I think I've actually, consciously or unconsciously, been incorporating elements of that story into my work ever since.
+- With digital technology there's a huge spectrum of flexibility in what you can do to manipulate sound and image - which you can push into a really artificial realm if you aren't careful.
+- Well, as a kid I did all the Bloody Mary games and using a mirror to scare yourself.
+- One of the things about horror movies that I've noticed with the children I've worked with is that they have a great time.
+- I always tend to tilt dark on an ending, because I feel like, especially with horror movies, those are the endings that don't evaporate. Those are the ones that stick with you.
+- I don't like the fact people watch things on their phones and tablets, it kind of hurts my heart.
+- I'm always drawn toward family drama, and dysfunctional family stories. It speaks to me, in a really profound way, and I think there's so much to explore within it.
+- I did not growing up watching a lot of horror. I wasn't allowed a lot of it and I was a real chicken.
+- I have an allergy to sequels and remakes in general.
+- Gerald's Game,' we could not have made it at a studio without substantive changes to the story.
+- Horror movies feel like comedies when you're making them because everybody laughs so much.
+- Whenever I would see horror movies I would be traumatized and I'd have to watch them behind my hands or behind the couch sometimes. So I grew up first with authors like John Bellairs and R.L. Stine for kind of the young adult horror. But I found Stephen King in the sixth grade and that was it. I became a rabid fan.
+- When I got to high school, they had a morning TV show you could become a part of, and I started making short films for that, most little satirical, laugh-y films about the dean of students being chased by a dinosaur or something like that. And I really just enjoyed it.
+- I always liked the challenge of that, how to take an inanimate object and build something around it that's scary.
+- In high school, I started studying movies and not reacting to them emotionally.
+- I'm a big believer in building a crew. Movies are the most collaborative art form at the tend of the world, and it takes hundreds of people to make one. At the end of the day, I get the lion's share of praise or blame but everybody on the ground knows that it was all of us.
+- I'm a firm believer that what you don't see is always scarier than what you do.
+- Building and sustaining tension is always my priority, so home entertainment provides challenges to that.
+- I never shoot my movies like I'm shooting 'a horror movie,' I shoot them like dramas. Dramas and then something horrible happens.
+- For me it's about creating and sustaining tension for as long as possible, and I'm not generally interested in allowing that tension to be deflated, especially by a jump scare.
+- Horror is fascinating because it's so seasonal and it's like you've got these periods where slasher movies are in and it's like everyone loves them. Next thing you know zombies are in. Then vampires are acceptable.
+- For me, 'The Haunting of Hill House' is a series about life after a haunting, what happens after the credits roll in most horror films.
+- Audiences have grown to equate being startled with being scared, and will complain that a movie 'isn't scary enough' if it doesn't have enough jump scares... so that means that a lot of studios will insist on shoving jump scares into a movie, regardless of character or story structure, thinking it 'makes it scarier.'
+- People will bemoan the quality of horror but then they'll go out and support horror films that are lacking qualities that they say they want.
+- We always try to leave room for the actors to come in and make discoveries on set, in their interpretation of the scene. The shot list is scaffolding.
+- My gravity is always towards original material but 'Gerald's Game,' I read it when I was nineteen years old, I got to the end and had gooseflesh up and down my arms and the back of my neck, I put it down and said 'That's one of my favourite Stephen King novels... it's also unfilmable.'
+- Midnight Mass' is kind of my baby; I've been working on that for six years. I started writing it while 'Oculus' was in preproduction, and it's a very personal, scary little story.
+- I hate jump scares. I really hate them. I think there's nothing special about being able to startle someone - that's an involuntary reflex, and it makes people laugh.
+- I'm wide open to evidence of the supernatural, but I also think that the majority of those experiences are probably natural phenomena we don't understand just yet.
+- When you talk about people being haunted or wrestling demons, that is a rich metaphor.
+- I like to say that Hollywood is one of the most democratic entities in the world and the reason why is every ticket is a vote.
+- I do not have the female experience. I don't, and I strive to understand it, but I'll never truly be able to. I don't think any men will, really.
+- A viewer's imagination is a powerful storyteller, and can often come up with things way more frightening than what you can explicitly show in a horror movie... try to engage that imagination, and the results can be magical.
+- Audiences are savvy. You can never go wrong assuming the best of them.
+- I'm sure many more people saw 'Hush' in the first weekend it was on Netflix than saw 'Oculus' in theatres.

@@ -1,0 +1,42 @@
++++
+author = "Kyle Mooney"
+title = "Kyle Mooney Quotes"
+quotes_len = "36"
+description = "the best 36 Kyle Mooney Quotes"
++++
+- A lot of my characters are people who are, in essence, lying to themselves. They present one thing, when in reality they're another thing. Maybe they're not as tough or as cool as they want to be.
+- The Christian kids' movies are fun because so many of them are made with low production value, but they're still trying to appeal to a broad audience like a Sesame Street or something. It's always fascinating to see how hidden or obvious they want to make their message. Also, the acting in them can be pretty fun.
+- Whenever anybody says what you do isn't good, it's always unflattering and makes me feel uncomfortable. But when the person who's in charge of the United States of America says, 'Not good,' I'm like, 'Oh.' It's a little unflattering.
+- I'm always pretty influenced by stuff from when we were younger.
+- I don't write political stuff. I'm sure I've made attempts, but I don't tend to write very topical things, either. I admire those people who do because it's a talent I don't have.
+- I immerse myself in things that meant something to me while I was growing up.
+- When I was a kid, I was really into the shows my older brothers were into. I got all the action figures handed down to me, but I couldn't go to the store to buy new ones because they were discontinued; they didn't exist anymore.
+- I'm pretty deep into '80s nostalgia, specifically children's entertainment, so a lot of California Raisins, Garfield, Alf - that's kind of a lot of the clothes I have and cherish the most.
+- In college, I pretty much abandoned music and started performing with the school's improv and sketch troupe, and at some point, that became my permanent thing.
+- I studied film studies at USC.
+- I guess I always have been a collector.
+- I definitely am more observational of the people around me and how they interact and less introspective about myself.
+- 'Nathan for You' was my first time being in a writer's room, really.
+- I feel like I'm a relatively well-adjusted person.
+- Human interaction is awkward and weird, even if it happens without a microphone or camera.
+- I'm the youngest of three boys, and my oldest brother was super into Jimi Hendrix and Eric Clapton and played guitar. I wanted to be like him, so I asked for a guitar of my own for Christmas in '93.
+- I definitely tried to skateboard in middle school, and being from San Diego, surf and skate culture is a big, prevalent thing. But I was not that good - I was kind of a chubby kid and didn't totally master skating.
+- A lot of the characters I play seem to be lying to themselves in some way. They maybe present themselves as confident or good at something, but in reality, it's clear that they don't know what they're talking about.
+- My mother is a Trekkie, and we're from San Diego, so I was going to Comic-Con when I was, like, 7 years old.
+- With 'SNL,' it's such an iconic institution. Throughout my 20s or maybe even in middle school or high school, it never felt like a real thing. It felt so distant, and I never imagined I could do that.
+- I've always been kind of deep into thrifting and secondhand clothing.
+- I still watch TGIF shows like 'Family Matters.'
+- I've got a massive VHS collection in my apartment. Some people think that it's not a good thing, but I find comfort in it.
+- I feel like I've got a pretty relatively extensive Christmas sweatshirt collection.
+- I think, my first season on 'SNL,' I watched every single episode of 'Step by Step,' and a few years prior to that, I watched every single episode of 'Family Matters.'
+- My VHS collection certainly contains videos that I've had since childhood, and also tapes that my mom had taped off of the Disney Channel or HBO - you know, blank tapes with the 'Care Bears' movie or whatever is on there - but I feel like that collection started for real my freshman year of college.
+- Growing up in San Diego, my main interests were the Beatles, Louis Armstrong, 'Star Wars,' baseball cards, and drawing.
+- One of the most positive takeaways I've had from 'SNL' is when we'd make videos back in the day: we'd just write material as we were inspired, and so, in a given year, we'd only put out two or three videos.
+- Writing a screenplay is daunting for sure, but I think that Hollywood needs them, so if you can manage to do that, there's certainly a value within it.
+- Adam Sandler, Mike Myers, Dava Carvey, Eddie Murphy, Will Ferrell - they're all the best.
+- When you're making an independent feature, there are so many difficult stages. One, just writing the script is difficult on its own. Then, when you get it to a place where you're happy with it, great - but then you need to find persons who are willing to produce it, who like the script.
+- Generally, I'm attracted to videos that hit me some way nostalgically.
+- It's always exciting to create a character that people can relate to, where people are like, 'Oh, I know this dude,' but maybe you've never actually seen this type of character on TV.
+- I am the youngest of three boys, and I was super-informed by what the older ones were into.
+- I am generally a nostalgic person and super into the pop culture that I grew up on - I've got a framed ALF poster above my bed and a Mickey Mouse poster, and I've got this big VHS collection.
+- I do love critters.

@@ -1,0 +1,72 @@
++++
+author = "Terry Funk"
+title = "Terry Funk Quotes"
+quotes_len = "66"
+description = "the best 66 Terry Funk Quotes"
++++
+- I still recall the first time I laid eyes on Ric. Dusty Rhodes and Dick Murdoch were wrestling, at the time, in Minnesota, and they took a liking to this kid who'd been hanging around the matches. That kid was Ric Flair, and they brought him to my ranch in Amarillo, Texas.
+- I think we have too much violence in wrestling, on TV in general, and society as a whole.
+- That is the thing that wrestling is, we are who we are. Even when we are established we are not actors. We are wrestlers.
+- There is no age limit to wrestling.
+- The guys that go into the Hall of Fame are the winners, and the losers are the ones who put them in there, and I would like to see some of the great losers through the years be in the Hall of Fame. I know that that's probably impossible, but you've got to give those losers credit, they made the winners.
+- It's been a wonderful, wonderful career. It's been just a great run that the Lord gave me and I damn sure appreciate it and thank Him for it and for Him giving me the body and the ability to do what I have done for years.
+- I am sick and tired of Cassius Clay going around and saying he is the greatest and what a tremendous boxer he has been.
+- Extreme rules, hardcore wrestling - whatever they want to call it - was born out of a necessity to survive.
+- My first match was against Sputnik Monroe at the Amarillo Sports Arena. It was scheduled for only ten minutes. Sputnik got me down and was on top of me for the first eight minutes. My father came running down to the ring and yelled for me to get up. I don't know how I got up but I did. I was a lot more scared of my father than I was Sputnik.
+- Stan Hansen was a tough-as-nails freshman middle linebacker when I was a senior at West Texas State. He was a damn good football player, but he developed some problems with his knees. When football didn't work out he asked me about professional wrestling.
+- What makes that turnstile turn? That's what made wrestling what it has become. The fans dictate the direction of the wrestling industry.
+- In ECW, hardcore wrestling wasn't done just for the fun of it. It was done for a purpose, for a reason. And for me, it was done to exist and produce a revenue for my family.
+- Jim Ross has such compassion for the fans. That's because this is natural for him, it's a love, just like the love Gordon Solie had for the business.
+- My father left a bit of his life with me. He gave me a gift, as did so many other wrestlers, like Mike DiBiase, Bob Geigel, Verne Gagne and Gene Kiniski. They all left me with something.
+- Sometimes it's great to have a backbone, but you've got to be careful. Remember that sometimes, when you hurt your backbone, you can't get it fixed because you don't have enough money.
+- Personally, I like to think I'm like my old man. I like to think I have the brains he did.
+- In all my years I don't think I've ever said anything nice about Dusty Rhodes to any member of the media.
+- I have an abdominal hernia which I tore and had operated on, and it's not the easiest thing in the world to get over. I'm gonna go on down the road, but hopefully I can get over the damn thing.
+- You must be very creative in our business. Creating in this business is making something new, but it is also touching on something old.
+- I was supposed to be on the 'All In' show, but I can't because of a problem with my abdominal hernia.
+- AJ Styles is of a different genre, and he's a wonderful part of wrestling, doing things that a lot of guys can't do.
+- I've loved wrestling from the first moment I stepped between the ropes. Don't know where I'd be without it.
+- I've got a thick skull and big, thick bones that don't break apart easily.
+- Ric Flair is a wonderful person, and he was such a great in-ring performer. He had a great deal to do with the direction of the business. There are great characters that have come into this business, but Flair can't be duplicated.
+- I don't want to die. The last thing I want to do is go in a wrestling ring with a bunch of people watching. I'd rather it be somewhere high up on a mountain. I don't need any fans there for that.
+- My point was to always have my spectators leave saying 'hot damn I got my money's worth.'
+- I was six years old and knew I wanted to be a wrestler.
+- Vince and WWE, they're not fresh. Yes, Vince does big business. They have the best talent in the world, but they have no fresh ideas. They should be selling out every arena.
+- When I was a kid, everyone wanted to be cowboys and Indians.
+- I would like to see another Johnny Valentine.
+- Do I feel confident about my health? I don't think that anybody ever should feel confident about their health if they are 72 years old, and getting ready to go in to the ring. If they are then they are probably some kind of an idiot and that is more than likely what I am.
+- Jimmy Snuka was one of the great performers in the business. In ring performance wise he was phenomenal.
+- I will give Cassius Clay $250,000 if he will just get into the ring with me anywhere in a combination boxing-wrestling match.
+- I've had my elbows operated on, both my knees are shot, I've got stitches everywhere.
+- I have had about 15 operations due to the wrestling profession, and I have a problem with an abdominal hernia.
+- My father never bragged on me as a football player or when I started ! wrestling. But I always knew he was there if I needed him.
+- The truth of the matter is that Dusty Rhodes helped put more money in my pocket than anybody I've ever wrestled. In his time he was the most charismatic and talented performer in the business, and I know he doesn't look like it, but he was a pretty good athlete too.
+- It's easier to make the NFL than WWE.
+- I've had more than 200 stitches taken in my head.
+- I have a knack - and still do - where I can look at a guy and tell you if he's going to draw you money or not. That's very difficult to do. I haven't met too many people who can do that.
+- There are a lot of things that I remember about Dusty Rhodes. There are so many things that stick out about him. He used to work at my father-in-law's gas station pumping gas.
+- McMahon has made a lot of guys very rich, but he may also be taking years off their lives.
+- Wrestling is all about the power of the individual.
+- This love of wrestling has been in my family with my dad, my brother, and myself.
+- You have not just weekly ratings, but minutes where they say during a show, 'This guy's boring, get him off.' This has produced a thing in our society where we have no shame and the worst offense is to be boring.
+- I like to have Ric Flair in the ring one more time in the MMA or the UFC. I'd like to beat the hell out of him.
+- I simply could not have done as well in either football or wrestling if I had not taken Energol.
+- My pop was in the business and he loved it very much. He actually went ahead and passed away while wrestling.
+- If I had a son, I would steer him away from wrestling. It was fun for me, but for most it's not healthy in the long run.
+- I crossed over into the WWE, but a lot of guys never did cross over.
+- There never was one like Ric Flair, and there will never be another one like him.
+- Boxing was not as big as wrestling in Japan, but people knew Leon Spinks.
+- I think CM Punk is a hell of an in-ring performer.
+- This goes to all the individuals out there, be in control of your business don't let your business take control of you.
+- I don't want to wrestle past 35. There's just too much physical strain with 250-pound men slamming into each other.
+- Wrestling is truly my life, and I love being part of the professional wrestling world.
+- I came up with all kinds of stuff. That was part of being great and having creativity. I'm not just bragging about myself. I'm just saying.
+- The crowd is everything in my life. I just love the fans, and I also have a lot of respect for them. They've given me everything I have in my life.
+- My father was strict. He knew how to have a good relationship with Dory Jr. and I. He was our best friend, but we had a lot of fear.
+- What is hardcore? Hardcore is not just being hardcore, hardcore is going in the ring and giving 100% of yourself. Hardcore is great fans.
+- Wrestling is eye-opening because it's constantly changing.
+- I turned pro as a wrestler a few days after my last football game.
+- I take Energol to improve my wind and stamina.
+- It's the fans that dictate what wrestling is. That's the one constant from 1917 to 2017.
+- I'm not gonna squeal out that this is my 23rd retirement, my real, real retirement. But you know there comes a time where you need to look to go in another direction in life, and I have entered that time.
+- In order to make a name for myself I took notice of the craziest wildest son-of-a-guns out there, and how they would receive a lot of the attention from the local wrestling periodicals. I decided that I would become an oddity, and that's how I have existed ever since.

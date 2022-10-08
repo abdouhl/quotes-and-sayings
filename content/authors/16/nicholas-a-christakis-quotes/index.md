@@ -1,0 +1,32 @@
++++
+author = "Nicholas A. Christakis"
+title = "Nicholas A. Christakis Quotes"
+quotes_len = "26"
+description = "the best 26 Nicholas A. Christakis Quotes"
++++
+- We cannot understand our humanity just by studying individuals.
+- The social sciences offer equal promise for improving human welfare; our lives can be greatly improved through a deeper understanding of individual and collective behavior. But to realize this promise, the social sciences, like the natural sciences, need to match their institutional structures to today's intellectual challenges.
+- We are, first of all, not solitary creatures and second of all, we are deeply embedded in the lives of others. It's very easy to forget that and to engage in an atomistic fallacy - where we think that all we have to do is study the individual components of a system in order to understand the system.
+- I'm not suggesting that social scientists stop teaching and investigating classic topics like monopoly power, racial profiling and health inequality. But everyone knows that monopoly power is bad for markets, that people are racially biased and that illness is unequally distributed by social class.
+- Realizing the ways in which we humans may have been inadvertently changing our genes for millennia provides a way for us to begin to think about the inevitable genetic revolution in medicine that is going to allow us to advertently change our genes over centuries and even decades.
+- It is the spread of the good things that vindicates the whole reason we live our lives in networks. If I was always violent to you or gave you germs, you would cut the ties to me and the network would disintegrate. In a deep and fundamental way, networks are connected to goodness, and goodness is required for networks to emerge and spread.
+- It's important for students to take their studies seriously.
+- It's fashionable to speak about vulnerable populations in medicine and public policy, but it's harder to find a more vulnerable population than those who are dying.
+- We and others have done a bunch of work to show that if your real friends online say or do something, it affects you. But if your acquaintances online say or do something, it does not. People on average have about 106 Facebook friends, but only 5 or 6 real friends.
+- My entire youth was spent with an incredibly ill parent... I don't think you can grow up that way and not be marked by that experience.
+- Everyday interactions we have with other people are definitely contagious, in terms of happiness.
+- Social networks are these intricate things of beauty, and they're so elaborate and so complex and so ubiquitous that one has to ask what purpose they serve.
+- It is well to look around at whom, and not just what, surrounds us. Population structure will change everything. Our health, wealth, and peace depend on it.
+- What constrains or enables the capacity of human beings to work in groups is not so much the technology, but rather the capacity of the human brain to have and monitor social interactions.
+- People have just assumed that... if we call our Facebook acquaintances our friends, we must be influenced by them, too. But we're not.
+- We're not just social animals in the conventional way that people think. It's not just a bunch of us who hang out together. We have a very specific pattern of ties, and they have a particular shape and structure that is encoded in our genes. It means that human beings have evolved to live their lives embedded in social networks.
+- Social media and the Internet haven't changed our capacity for social interaction any more than the Internet has changed our ability to be in love or our basic propensity to violence, because those are such fundamental human attributes.
+- One reason citizens, politicians and university donors sometimes lack confidence in the social sciences is that social scientists too often miss the chance to declare victory and move on to new frontiers.
+- The reason we form networks is because the benefits of a connected life outweigh the costs. It's to our advantage as individuals and a species to assemble ourselves in this fashion.
+- It is time to create new social science departments that reflect the breadth and complexity of the problems we face as well as the novelty of 21st-century science. These would include departments of biosocial science, network science, neuroeconomics, behavioral genetics and computational social science.
+- Just because we say networks are important doesn't mean that networks explain everything. We're just adding additional information. Networks don't work like a match - they work like a magnifying glass.
+- I like to have met someone in real life before being their Facebook friend.
+- It used to be thought that our genes were historically immutable and that it was not possible to imagine a conversation between culture and genetics.
+- We will create life from inanimate compounds, and we will find life in space. But the life that should more immediately interest us lies between these extremes, in the middle range we all inhabit between our genes and our stars.
+- Whether we appreciate it or not, we live out our lives surrounded by an intricate pattern of social connections... We're all embedded in this network; it affects us profoundly and we may be unaware of its existence, of its effect on us.
+- There are very fundamental reasons we live our lives in social networks, and if we really understood the role they're playing in our society, we would take better care of social networks and find ways to take advantage of their power to improve our society.

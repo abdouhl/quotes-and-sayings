@@ -1,0 +1,105 @@
++++
+author = "Katie Hopkins"
+title = "Katie Hopkins Quotes"
+quotes_len = "99"
+description = "the best 99 Katie Hopkins Quotes"
++++
+- Remembering servicemen and women who lost their lives for their country is not about you. It is not about your rights or what you believe in. It is about respect.
+- It's good that fat schoolchildren are no longer bullied, but it's worrying if they feel it's OK to be large because no one is pointing it out.
+- I think overweight people are lazy and that they are bankrupting the country.
+- Clear rules provide huge amounts of freedom: freedom to be safe and freedom to work efficiently because things are in order.
+- Politicians used to be leaders. Now they follow voters, desperate for a tick in a box.
+- The more crap you have had to deal with in your life, the better you are at handling 'Big Brother.'
+- Weird things happen when strange men run for election. See Donald Trump for details.
+- Own your problems.
+- Being a minority voice is still brave - even if the minority voice is from the right wing.
+- The Conservatives don't need more women. They need women like Karren Brady.
+- I watch 'The Great British Bake Off' in the way I used to watch people kiss on TV in front of my parents when I was young. Cringe.
+- When the only thing you look forward to in life is lunch, you know you have had your just desserts, and it is time to call it a day.
+- It takes an awful lot to get me cross.
+- Scratch below the surface, and you will find I am a patriotic little thing, desperately proud to be part of this island nation.
+- I admire Lady Gaga. She wears exactly what she likes, no matter how good or bad it turns out.
+- The great thing about letting people be true to themselves is they often do very good things indeed.
+- Women simply cannot stay home and get to the top at work.
+- If you are confiding in someone, it needs to be the woman in your life. If that woman is your mother, you may as well scuttle back under her petticoats and let the real women in pencil skirts and tortuous heels get on with the job of husband-hunting.
+- There are important rules in life - like not parking on yellow lines or stealing from your neighbour. But some rules are made to be broken.
+- Sunshine is supposed to make you happy.
+- There will come a day when someone calls to tell me my column's been binned, and that will be a really hard day, and I've already got it set up so that they'll ring someone else first - because I don't want to be given that news when I'm walking down the street, because it will be really heartbreaking.
+- I have seen many a tear-strewn individual during my time working on daytime TV's morning sofas: individuals encouraged to share their views, ill prepared for the backlash that social media will deliver direct to you, unregulated and unrelenting.
+- Being nice can make you feel very happy.
+- I am delighted to be named Troll Of The Year 2013 by 'The Guardian' - a paper read by people called Theo and women called Polly with body issues.
+- My mother says ladies perspire and men sweat. Clearly, I am more of a man.
+- Call me old-fashioned, but armpit hair is not high up there on my wish list of things to have.
+- Clearly, children need to be aware of the news and current affairs. I buy my own children a children's newspaper so they can form their own views.
+- Cancer is a cruel killer. It creeps up on us when we aren't expecting it. But cake is not cancer. A doughnut does not creep up on you.
+- I spend a fair amount of time chatting to black cab drivers in London.
+- Sending a text and not having to talk takes the pressure off. You are always in control of digital conversations.
+- I love Remembrance Sunday.
+- Women are a strange thing. Like watches, houses, and cars, you really only need one at any moment in your life (French men disagree).
+- As much as I love a smart kid who can spell nicely, I love a giggling kid wrapped in loo roll pretending to be a mummy even more.
+- Living in the 'Big Brother' house is a bit like living in hell. Only hotter.
+- 'Big Brother' reminded me that housemates should be aware of health and safety.
+- In our private lives, we hate saying sorry. I would rather saute my eyeballs in butter than admit I am wrong to my husband.
+- I am very good at being told off and rather enjoy it.
+- Those who are most pious and noble tend to be the least tolerant.
+- When I hear a girl has had two babies by the age of 16, I think two things: Is she called Chardonnay, and what is she doing with her life?
+- Brits have a peculiar sense of humour. I love it.
+- I celebrate those who wear their red poppies with pride.
+- I am a big believer in fun for free.
+- Teaching kids to respect rules is key.
+- Most mums are not reliable.
+- Michelle Visage rocks.
+- There are times this stony heart of mine feels a burst of British pride.
+- We may think we live in a digital age. But there are some things technology will never replace.
+- Ladies, I urge you never to buy a black bathroom suite. 'CBB' decided this would be glamorous. 'CBB' was wrong.
+- I have strong opinions, and I am not afraid to share them.
+- If you over-deliver and prove yourself to be an asset to the company, you will be rewarded as a result.
+- I love being on Aussie breakfast TV. They like people who speak their mind and tell it like it is.
+- Should people working in our country speak English? Yes, they should.
+- I want my girls to grow up learning that it is important their mum worked like a man.
+- If you sign up for TV, expect the edit to make things interesting.
+- I've been no-platformed from every university with a strong Islamic faith community.
+- Many teachers seem to believe their opinions are right, and therefore, all other viewpoints are wrong. And they are indoctrinating our children with their beliefs.
+- When you own a car, you want to keep it looking good, maybe even give it a wash once a week. When you own a house, you try to keep it maintained and don't let the rot set in. When we own something, we look after it. We need to make the same choices with our bodies.
+- Simply put, some people think they are above rules or even that rules are there to be broken. Once you start teaching that to your kids, this country is really in trouble.
+- I've always said when age or infirmity gets the better of me, I'm off to whichever civilised country lets the elderly die with dignity.
+- If I was fat and had a strong regional accent and was a bloke, I'd be a stand-up. Because I think I'm funny.
+- Lots of people ask me, 'What do you do?' Apparently, being a columnist, TV bird, all-round good egg, mother of three, and wife of one is not sufficient for them.
+- Stay-at-home mums love working mums to feel guilty. They sacrificed everything for their children.
+- Fresh air and exercise. That's all you need to stay slim and feel better about life.
+- You need to think about how you will pay for children before you have them.
+- If anyone is on my husband's arm, it's going to be me.
+- While Corbyn would not enjoy the comparison, he and Farage are the same beast - with very different heads.
+- Scarcity is a good sales tactic if you are selling something people want.
+- I am proud to be called the Queen of Mean, and I never mince my words - especially when it comes to fat people.
+- A state school class can only learn as fast as its thickest child. Your kid misses stuff, mine has to wait while yours catches up.
+- If you can afford to eat yourself fat, you can afford to pay to go to WeightWatchers if you think that is the answer.
+- Typically, housewives and working mums hate each other like dogs fighting for a bone.
+- I was a really bad single mum. I used to go to the supermarket just for somewhere to go.
+- There are all sorts of parents I hate - super-keen parents, PTA parents, and fat parents on a bus.
+- The opinion that Trump equals hate is not a fact. It is a view.
+- Those that preach tolerance have become absolutely prescriptive in what's allowed to be thought.
+- Most wives look at me the way lame deer look at a hungry lion.
+- I've said in the past that if I were Prime Minister, I would ban obesity.
+- Some of us have tough lives and find chocolate is a comfort and a friend. And some of us prefer a night on the sofa with Ant & Dec to hitting the gym. But whatever your excuse - and there is always an excuse - we are a nation of fatties.
+- When you are bringing up your kids, you hope you have given them some sense of right and wrong, a sense of good and bad.
+- Nothing makes me want to scream louder than oldies doddering on to a train at a slow shuffle when the rest of us are just trying to get on with our day.
+- I hate cars that much, I don't even own one. The last one I bought was a Honda CR-V which I didn't even take for a test drive because I was so disinterested. But I love 'Top Gear.'
+- I will call out the lazy, the idle, and the ignorant. I will support the hard working, the industrious, and the law.
+- I think you can tell a great deal from a name. For me, there are certain names that I hear, and I think, 'Urgh.' For me, a name is a shortcut of finding out what class that child comes from and makes me ask, 'Do I want my children to play with them?'
+- Investing in children's education is vital.
+- Work is hard, and jobs can be dull. But you can't just take a holiday when you feel like it. You turn up because it is the right thing to do.
+- Why am I not just some old woman ranting in a room? I think because what I say connects with people's truths.
+- If you do a good deed, don't expect anything back - the other person can still be a complete git.
+- The BBC has a strict policy of having Clare Balding present everything.
+- Social class has worked for years. Born into the right family, go to the right schools, even if you're not super bright to start with, you'll turn out bright. You go to the right university, you get the right job, you have the right connections, you'll make it to the top. Job done, very efficient.
+- Imams seldom condemn terror. And in their silence, in the void, acceptance - encouragement even - is assumed.
+- Corbyn has reignited Labour.
+- In my experience, people who think school is free fail to put a value on it or respect the opportunities it affords.
+- Anything that needs to be labelled 'The Entertainment' usually isn't - especially when it is provided by the endlessly enthusiastic Joel or Nadia wearing trainers and a whistle.
+- We are not a nation of strikes and inaction. We will not be preached at by militant unionists with a crap whippet and a chip on each shoulder.
+- As parenting goes, knowing the whereabouts of one's children is pretty fundamental.
+- As I often lecture businesses, it is not the email you send which matters, but how people feel when they read it.
+- Once you have conquered your profession and are standing at the summit, it is all very well to look back down the slope and indulge yourself with regrets.
+- I really believe the stuff I say.
+- If you teach a child that appearance doesn't matter, what will be the next thing that child asserts her individuality over? Turning up on time? Turning up at all?

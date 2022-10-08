@@ -1,0 +1,30 @@
++++
+author = "Kyan Douglas"
+title = "Kyan Douglas Quotes"
+quotes_len = "24"
+description = "the best 24 Kyan Douglas Quotes"
++++
+- The externals are important but I'm not interested in superficiality.
+- I'm all for guys being butch and guys being men. I identify with that and appreciate that. But if I'm going to stab my gay brother in the back who isn't butch and who maybe acts a little bit more effeminate, what good is that?
+- I like a woman with priorities.
+- I've tried to take the opportunity to be as positive a person as I can be, as positive role model as I can be.
+- I just don't know that shame and fear need to be our teachers; rather, compassion, understanding, and love should be our guides.
+- Drugs and alcohol can be so destructive.
+- We shouldn't any of us be afraid of teaching protective measures to save lives.
+- That said, we don't approach these improvements as only a surface aesthetic. The producers and we think that these men are helped with their inner needs when they pay attention to their externals.
+- Call me old-fashioned, but I like my conditioners to be conditioners and my shampoos to be shampoos.
+- I'm no interior decorator, but just I have a feeling that plastic plants in the bathroom... probably not a good idea.
+- It's not being marketed as a gay show by a gay person. It's just Ellen DeGeneres.
+- Ever since I was young, I was always interested in exploring spirituality. I know that there are many paths to God, there is not just one path.
+- For myself, Queer Eye feeds more to my heart and my soul than as a platform for a career.
+- There really is something raw about sexuality that's real and good and we must continue to learn to not be ashamed of it. But - we have to honor the reality of practicing safer sex.
+- Everyone's hip to the fact that we all do things to accentuate our looks - and it's much more accepted.
+- You know what I like about disposable razors? They're disposable.
+- For the first time in my life, I want the right to get married. I've met somebody who meets the criteria of what I've always imagined in and wanted from a partner - someone to marry and to bring children into the world with.
+- Queer Eye is a makeover show, meant to help our straight brethren.
+- Our sexual lives are maintained by the shadow side and the light side, so the more we can understand and embrace enlightenment, the less need there is for chemical enhancement.
+- Our Quakers love us. we're big with the Quakers. It's all about cleanliness.
+- No nose hair. Ever. You'd be surprised at all the little twigs sticking out. I just can't get it. How can you see that and not just want to hack it off?
+- We all have our paths in life we are supposed to follow to find who we are supposed to be, but it's not always a straight path. There is something inside of us that guides us, and if you are quiet and listen to it, you'll be all right.
+- I enjoy my relationship with straight men. It's very nurturing. It's very validating to hang out with straight guys and be accepted. So many of us, we were not accepted when we were younger by straight persons in high school.
+- I don't ever apologize for who I am because then I let someone else decide who I am.

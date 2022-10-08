@@ -1,0 +1,42 @@
++++
+author = "Angie Stone"
+title = "Angie Stone Quotes"
+quotes_len = "36"
+description = "the best 36 Angie Stone Quotes"
++++
+- Allowing myself to love God completely has obviously shed light on my self-love because he loves me more than I could ever love myself.
+- Music always hits me when I'm driving so I keep a recorder in my bag.
+- I would never disrespect any man, woman, chick or child out there. We're all the same. What goes around comes around, and karma kicks us all in the butt in the end of the day.
+- I have a new television show in the works, and that is all I can say right now.
+- I'm the type of woman you might say is too good. I'll massage a man's feet, have dinner cooked when he gets home. But once they leave, the door is closed, and the locks are changed.
+- I give and give, even when I get nothing back - and that sets me up for disappointment.
+- My mom was a diabetic. Her sister was a diabetic, so I was already a candidate.
+- Many artists give up after a while.
+- What you see is what you get. What you hear is who I am.
+- I was always on the go, and thought I was too busy to develop something like this. I thought at the time that diabetes went along with bad habits, but I was the last one in my family to eat junk food.
+- If you're beautiful within, a person can fall in love with your spirit.
+- I haven't always been the person I am today. I came into loving myself more than anything or anyone else.
+- I get a special joy in knowing people feel comfortable if they see me in Wal-Mart or in a no-frills section trying to get something on a discount.
+- Why do we need to wait until somebody sells 10 million records to give people a show like that? What about us smaller, hungry folk? At least gimme a curtain!
+- Coming through the fire and through the storm of life with a strong man, my fiance Ashanti, whom I've been dating for eight months and two wonderful children beside me, I'm just so happy that I have been able to maintain my integrity and get to where I am today with the right energy around me.
+- I think my spirit is far greater than it's ever been.
+- Because I'm just a giving person spiritually, I feel that if your intentions are to use or abuse or take advantage of, then you might get what you get in the meantime, but there's still a price to pay.
+- I feel like something magical is going to happen, and I feel like all the stars have finally lined up perfectly for Angie Stone.
+- My daughter recently reminded me not to get so busy making a living, I forget to make a life and I'm going to take that advice.
+- I forget to take care of Angie being so busy taking care of everyone else.
+- My favorite thing about L.A. is the sunny breezes that mimic the mindset of the energy in the people.
+- I don't want any man I can run over. What I love about a man in control is it allows them to be the kings that I always expect them to be.
+- I have a massage when I want to relax. I love being pampered. I love island massages when you're outside in the fresh air.
+- It is definitely somewhat a crutch of feeling that you have to please others in order to be accepted.
+- I owe it to my fans to be who I am. There's nothing fake about me.
+- 'Do What You Gotta Do' is a positive, inspirational song that says no matter what it is; whether you're up against challenges or trying to get your dreams and aspirations met, you should do what whatever you have to do shy of killing yourself or someone else.
+- The college stations have a big voice, and I would like to become more involved with them. I would like to have symposiums with the members of various college radio stations.
+- A lot of people don't know what I do. In the industry they take credit for work because to some degree it makes them feel worthy or greater. I am not a ghostwriter 'cause it is on the CD covers who wrote and did what but people don't care about anything they can't see. The work gets unnoticed and the credibility goes untouched.
+- I swear by that old expression, 'One monkey don't stop no show!' The reality is, we still have some good men out there, and we should hail those men as the kings they are.
+- It feels great to be a role model and I'm very careful with the things I do. I'm not perfect, I do make a lot of mistakes, but I try my best.
+- When I was younger I was taught that a winner never quits, and a quitter never wins.
+- They always come back when they learn that not every woman's gonna treat them this good.
+- I think people's perception of a rich girl is literal, but metaphorically I embrace it as being rich in love, spirit, joy and religion. So it's not about money.
+- Depending on which day, and how I am feeling on that day, I have a different favorite song on the album. One day it might be 'Karma', and other days it is 'Stay For A While'
+- As an artist, program directors always want to put you in a little box.
+- I'm expected to do what's right; I want to leave a legacy of positivity behind.

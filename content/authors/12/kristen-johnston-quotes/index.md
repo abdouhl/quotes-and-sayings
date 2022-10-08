@@ -1,0 +1,30 @@
++++
+author = "Kristen Johnston"
+title = "Kristen Johnston Quotes"
+quotes_len = "24"
+description = "the best 24 Kristen Johnston Quotes"
++++
+- It was only when I moved to New York that I realized tall is good.
+- To actually be allowed to be beautiful is a total first for me.
+- Onstage, I was never the ingenue.
+- I want to play a Disney villainess so badly.
+- I'm a strong person, but I'd never resort to violence.
+- If you love it, and work really hard at it, it will really happen, I believe. I'm living proof.
+- I literally felt like a freak, which is another aspect of the role of Sally that I relate to: total outsider.
+- I like people-watching and fading into crowds.
+- I was such a dork. I was too big. I was really gangly.
+- I think Janeane Garofalo is incredibly funny, and I love Dennis Miller.
+- But this show reminds me that there are other aspects to me besides the fact that I'm a funny chick.
+- I've always just gone with the best role, and I don't care if it's in theater, film or television.
+- I really came out to L.A. to take the money and run.
+- And to be different is great. You don't want to be the same.
+- May I say, if you were suddenly put into a woman's body, wouldn't you be slightly interested in your breasts, and why people look at certain parts of you, and why certain parts move like they do?
+- I am, uh... a 6 foot tall woman, I feel like I'm a healthy size, I'm not anorexic; and I feel that people who aren't anorexic are punished... for not being anorexic.
+- When you're that tall, people talk about it all the time.
+- I'd so much rather people think I was funny than pretty.
+- I was a full foot taller than any child my age.
+- I don't consider myself a goody-goody, but I like to be perceived as classy.
+- My way was not to be the petite, gorgeous, little cheerleader. My way of getting by was making people laugh.
+- I spent 10 years in New York doing theater.
+- I was voted Biggest Ham and Likeliest to Become a Celebrity.
+- I was born in Washington, D.C., and I was raised in Milwaukee.

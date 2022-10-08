@@ -1,0 +1,16 @@
++++
+author = "John Holdren"
+title = "John Holdren Quotes"
+quotes_len = "10"
+description = "the best 10 John Holdren Quotes"
++++
+- Any objective look at what science has to say about climate change ought to be sufficient to persuade reasonable people that the climate is changing and that humans are responsible for a substantial part of that - and that these changes are doing harm and will continue to do more harm unless we start to reduce our emissions.
+- I think we ultimately ought to look to put all uranium enrichment and fuel reprocessing, if any is done, under multinational control. Those are the two technologies by which nuclear energy can be translated into nuclear weapons programmes.
+- Issues of energy, climate change, nuclear arms control and non-proliferation are all big deals. These are problems that we have to get right globally, not just nationally, and there are big benefits in cooperating, in terms of sharing costs, in terms of sharing risks, in terms of propagating the best answers.
+- It is economically irrational to exclude large environmental costs from the balance sheets of the producers and the consumers. You are only kidding yourself if you export those costs on to society as a whole.
+- The whole climate is changing: the winds, the ocean currents, the storm patterns, snow packs, snowmelt, flooding, droughts. Temperature is just a bit of it.
+- I don't like the term 'global warming,' because it's misleading. It implies something that's mainly about temperature, that's gradual, and that's uniform across the planet. And in fact, temperature is only one of the things that's changing.
+- Wildfires are a result of temperature conditions, of soil moisture conditions; and, of course, something has to start it.
+- When I need to see the president, I make a request directly to his scheduler. I don't have to ask anybody's permission to see the president except the president. Some weeks, I see him multiple times. Some weeks, I don't see him at all.
+- People are seeing the impact of climate change around them in extraordinary patterns of floods and droughts, wildfires, heatwaves and powerful storms.
+- My understanding is that Exxon, in particular, did fund a variety of small think tanks to generate what amounts to propaganda against understanding of what climate change was doing, the human role in causing it.

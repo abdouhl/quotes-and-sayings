@@ -1,0 +1,32 @@
++++
+author = "Karen Finerman"
+title = "Karen Finerman Quotes"
+quotes_len = "26"
+description = "the best 26 Karen Finerman Quotes"
++++
+- As a teenager, rather than setting myself on a course to pursue fame (quite common growing up in L.A., the entertainment capital of the world), happiness, fulfillment, and spiritual enlightenment (also quite common), I skipped right on to trying to be successful. 'Let's just get on with it,' I felt. 'Onward' became my motto.
+- I remember the absolute, joyous freedom I felt when I first went to college: I had no bedtime, no curfew, no rules - I loved it. I was in charge. I couldn't believe I didn't have to answer to anyone.
+- Make as much money as you can. It really does help. I don't know why it's terrible to say, but it's true.
+- I have been able to have a family and to dedicate quality time to my two sets of twins and my husband, as well as to serve on the boards of The Michael J. Fox Foundation for Parkinson's Research and Montefiore Medical Center.
+- Maintaining boundaries is hard. That's why I strongly prefer the physical separation of work and home.
+- I have spent much of my life where the boys are, first as a tomboy and then on Wall Street. Growing up, I loved every and any sport. I was frustrated by girls who didn't, so I spent most of my afternoons with the boys.
+- Working from home as a mother is the worst of everything. You don't have clear boundaries. The kids can get used to you going to work; they can't get used to you ignoring them. And work sometimes gets the message you're not as committed.
+- You cannot be in charge of a family and run a big company.
+- I have always wondered why more women did not look into owning their own funds. Granted, it is a high stress, high risk business, but it also offers high rewards and control.
+- It's OK to have a plan, to invest in your future - for your financial security, your love life, your personal fulfillment, and even your happiness. To have personal happiness as a stated goal doesn't detract from it if you get there.
+- Serendipity is nice, but hoping for luck and the magic of happenstance shouldn't be an excuse for a lack of proactivity. I had to learn for myself that waiting isn't a life plan.
+- Never have anyone else carry your luggage. Pack only what you need.
+- Protect yourself like you would your cubs - as a grown woman, you're no one's cub anymore.
+- As a working mother, the last thing you need is to be hard on yourself. As a stay-at-home mother, the last thing you need is to be hard on yourself. As a twenty something with no job prospects or life partner in sight, the last thing you need is to be hard on yourself.
+- Don't waste even a minute magnifying your perceived inadequacies. You can't do it all. Why berate yourself for not achieving the impossible?
+- I've seen women afraid to stretch for things. They avoid opportunities they don't feel qualified for yet. Instead, they should grab risky opportunities that will force them to grow on the job and learn to do it.
+- Every day, turn off your phone/email for some part of the day.
+- I applied to only one college - the Wharton School at the University of Pennsylvania - and was fortunate to be accepted. After graduation, I headed to Wall Street and worked as I had dreamed.
+- When you multitask, you believe you're being exceptionally productive, but really, you're fooling yourself. Each time you switch tasks, you have to backtrack a little and remind yourself where you are in the process and what's next. Invariably. you are spending twice as much time on parts of the task.
+- Companies are always being bought and sold. The markets are always moving; you have to be on top of your position. And in the U.S., the market is never closed for more than three days. The only time the market was ever closed was 9/11. I think it may have been closed the whole week.
+- I never want to have to ask my husband for money. Never! That's incomprehensible to me. Would he have preferred that I change my name? Probably. But that's OK!
+- I enjoy being on CNBC's 'Fast Money,' in part so that audiences can watch a woman who is as well informed about, and invested in, the market as her male counterparts.
+- When I was 15 years old, I read an article about Ivan Boesky, the well-known takeover trader - turned out years later it was all on inside information! But before that came to light, he was very successful, very flamboyant. And I thought, 'This is what I want to do.' So I'm 15 years old, I decide I'm going to Wall Street.
+- I wanted to get out in the world, have a great job, make my mark, and see how far I could go. And I wanted to make good on the philosophy my mother drilled into us with all the subtlety of a Lady Gaga performance. I got it loud and clear. I would need to succeed, and then I could possibly be happy.
+- Women should learn from men to compartmentalize. It's a great skill that some women have naturally but others have to practice. The goal is to keep one area of your life that might not be going well from causing unnecessary disruptions in another area.
+- I was raised a Calvinist. You might think you know what that means, but let me explain it the way my mother preached it to my three sisters and me back when we were at home: 'I buy my girls Calvin Klein clothes, so that's all they know. Then, when they graduate from college, they have to figure out how to pay for them themselves.'

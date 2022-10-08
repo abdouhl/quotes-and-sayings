@@ -1,0 +1,39 @@
++++
+author = "Nigella Lawson"
+title = "Nigella Lawson Quotes"
+quotes_len = "33"
+description = "the best 33 Nigella Lawson Quotes"
++++
+- I need to be frightened of things. I hate it, but I must need it, because it's what I do.
+- And, in a funny way, each death is different and you mourn each death differently and each death brings back the death you mourned earlier and you get into a bit of a pile-up.
+- You need a balance in life between dealing with what's going on inside and not being so absorbed in yourself that it takes over.
+- I think maybe when you live with someone who is really very ill for a long time, it somehow gives you more of a greedy appetite for life and maybe, yes, you are less measured in your behaviour than you would otherwise be.
+- I was a quiet teenager, introverted, full of angst.
+- On the whole, I prefer Christmas as an adult than I did as a child.
+- In fact I am quite snappy and irritable, and I don't know if I'd like to make myself worse in that respect.
+- I don't believe in low-fat cooking.
+- Gordon Ramsay makes me laugh because he knows that I'm not a chef.
+- There is a kind of euphoria of grief, a degree of madness.
+- There is something wrong about being photographed that has nothing to do with vanity.
+- It sounds like something on a very trite T-shirt, but life is what happens.
+- I wasn't good with authority, went to lots of schools, didn't like the fact that there was no autonomy.
+- Also, in a funny way, if you have been happily married there are no unresolved areas, nothing to prove to yourself after the other dies.
+- Cooking is actually quite aggressive and controlling and sometimes, yes, there is an element of force-feeding going on.
+- The modern world is personal; people want to know intimate things.
+- I'm not someone who's endlessly patient and wonderful.
+- At some stages of your life you will deal with things and at others you are overwhelmed with misery and anxiety.
+- Anyway, what makes people look youthful is the quality of their skin and I don't think you can change that.
+- People who have fabulous childhoods have this sense that nothing is ever going to be that good again. With me, I have the sense that nothing is going to be that bad.
+- 'Statistically, people who have been happily married and then widowed tend to remarry.
+- But if you know that something has been really vicious, you don't read it, you don't let it into your head. What's damaging is when sentences go through your head and you burn with the injustice of it.
+- I know the crew so well, so I forget I'm being filmed. It's like cooking with a friend in the kitchen - you're talking, as you do, and maybe you're telling her about this wonderful way to prepare lamb chops - it's more natural, more honest.
+- I never have plans for the future as you never know how things will turn out.
+- You don't go around grieving all the time, but the grief is still there and always will be.
+- I can understand why those primitive desert people think a camera steals their soul. It is unnatural to see yourself from the outside.
+- I don't like conflict.
+- In England and America people tend to graze all day long, but I think it's such a waste to be constantly picking at food because you then can't enjoy a proper full meal when the time comes.
+- There is a vast difference between how things seem from the outside and how they feel on the inside.
+- Then again, they're not scripted and I feel it's virtually impossible to be anything but yourself when you're in front of the cameras and cooking so there is a measure of truth in what you see.
+- I never taste the wine first in restaurants, I just ask the waiter to pour.
+- I am not sure about facelifts because I wouldn't want to be someone who just looks like she's had a facelift.
+- Emotion is messy, contradictory... and true.

@@ -1,0 +1,86 @@
++++
+author = "Kristian Nairn"
+title = "Kristian Nairn Quotes"
+quotes_len = "80"
+description = "the best 80 Kristian Nairn Quotes"
++++
+- With 'World of Warcraft,' I like the potential for wasting time.
+- I played with local bands and ended up touring with Scissor Sisters, Mylo, Alphabeat, and Calvin Harris. That somehow changed into DJ'ing.
+- Just do what you want to do and don't worry about what people say.
+- I think a lot of problems in this world would stop if people could stay out of other people's business.
+- I don't really see myself as a celebrity.
+- I recognise that, while I was fortunate enough to grow up without any discrimination or stigma attached at all, other people haven't been so lucky.
+- I think if everyone had a little more Hodor in them, it'd be a nicer world.
+- I never thought people would be remotely interested in my silly little life, but I'm really glad that they are.
+- When I was a kid, I was obsessed with Thor. I had a hammer.
+- I really wasted a lot of time in my 20s.
+- I've never given a damn. A seven-foot man who dresses as a woman as a job is not interested in what other people think.
+- I keep explaining this to people: I can do more than one thing.
+- I always say, the darker the scene, the more fun it is.
+- I saw what religion did to people when I grew up, and I certainly didn't want any part of it. That turned me off it.
+- I did a music festival in France. I'm not going to name names, but there were bigger bands and DJs on before me, and throughout their set, all I could hear them chanting was 'Hodor!' And I was, like, 'Oh, please stop! It's so disrespectful to the other acts!' In a way, obviously, I loved it, but it was kind of embarrassing at the same time.
+- I actually started off - believe it or not - doing drag. I travelled the world because I was a completely off-the-wall drag artist.
+- I'm not saying I'm the bee's knees. But I am a legitimate musician.
+- I love 'Tron.'
+- I had an upbringing to respect other people's privacy and their right to be and choose what they want, and I expect - no, demand - no less for myself.
+- I really know what it's like to work and live every moment now, and I'm really grateful for that.
+- When I started 'Game of Thrones,' the first three seasons, I still DJ'd every night before I went on set. I'd finish DJing at 3 A.M. and have to be on set at 5 A.M.
+- Everyone likes fantasy to get away from everyday life, but I think 'Game of Thrones' is not like fairies and unicorns. It's very relatable to everyday life. It's not too fantastic - just a little bit.
+- I haven't read more than two pages, but my mother is a George Martin super fan.
+- Obviously, there's so many different types of gay people, but some people don't know that. Some people think we all look and act a certain type of way.
+- I don't see the benefit in giving yourself a belief system that allows you to judge other people.
+- I grew up with the British-Chicago crossover of house music with a lot of pianos and very heavy bass lines, but what I love about house is you can mix it up a bit.
+- I've had dogs all my life. I'm a huge animal lover, especially dogs, so that's one of the hardest things about being away all the time. I really miss them, but my mum does a really good job looking after then when I'm gone.
+- I don't see why people are so concerned at what other people do behind closed doors or in their lives.
+- Taller people get very competitive. When I meet someone who's close to me or taller, I'm straight up; I don't wanna be smaller than them.
+- I'm quite investigative. Believe it or not, my mum and dad were in the police, and I sort of like to read into things and stuff.
+- It's just making sure that everyone is treated equally. Is that so progressive? I don't think it's progressive, I think it's human. And not just gay people - women's rights, immigrants, people of different ethnic backgrounds.
+- I was always into classical music and opera because I played the piano as I went through school and was very interested in Andrew Lloyd Webber musicals and stuff like that. That changed into heavy metal at around the age of 14 or 13, and I dropped the piano and started to play the guitar.
+- I think you can go too far into your subgenres. When you're talking about chillstep and stuff like that, I think you've gone a bit too far.
+- I remember the first single I ever bought. I think it was a terrible song called 'D.I.S.C.O.' by a band called Ottawan. It's a really fearless disco track from the '70s or early '80s.
+- I've been thinking if 'GoT' would lend itself easily to an MMORPG. I mean, it certainly has the background and incredible storylines for it, along with some pretty huge characters to hinge the story around.
+- My first musical dream was to be a guitar player, and believe me, it's still in there.
+- I could never see myself playing a goblin or gnome, without some serious CGI at least!
+- I've never hidden my sexuality from anyone - my whole life, in fact - and I've been waiting for someone to ask about it in an interview, 'cause it's not something you just blurt out.
+- I think that's why 'Game of Thrones' is such a watercooler talking point: because there are these moments that are beautiful and terrible at the same time.
+- I get 'Hodor' tweeted at me a lot.
+- I'm a really big fan of meeting the fans. It's great to get feedback.
+- Most of the clubbing I did was gay clubbing.
+- I've done fairly well as a performer and a DJ in the U.K., so 'Game of Thrones' really just opened up a whole new market for me.
+- I was a total metal-head as a teen. I still love it, too.
+- What I've always done is be positive and do what I do.
+- People either think Hodor is a very easy character to play or a very difficult one; there's no in between. But it's a lot of fun having to completely switch personalities inside four seconds, with no words. That's a joy for an actor to get to show all that complex emotion in such a short space of time.
+- I have and always will stand my ground.
+- Any sort of performance was always what I was really born to do.
+- I wanted to be a guitar player.
+- I like to go out for dinner in Belfast with my friends, I like to work on the house. I like working on music.
+- When I was 13, my mum knew that I was gay, and she just always knew.
+- Although I have been performing in all sorts of ways and roles since childhood, 'GoT' is my first proper venture onto the screen.
+- I would relish a role that really shows a bit of background into how the bad guy got the way he is... a little more complex than cackling behind a hooded cloak.
+- I have to have everything. I have to have iPads. I've had I think every generation of iPod. I've had all the consoles at least once; I've had some of them twice. I get them and get fed up with them and get rid of them.
+- To play this iconic character from this historically wonderful series of books - who wouldn't take that opportunity and be happy about it? I'm happy to be Hodor forever.
+- I did some musical theater and studied a little bit of acting as well.
+- I love saying 'Hodor!'
+- I never stopped DJing through the entire 'Game of Thrones' process. I never saw the need to stop because I do love it so much.
+- I had actually sent an audition tape for Simon Pegg's movie 'Hot Fuzz,' which came to nothing. Four years after the film released, out of nowhere, I got a call saying the producers of 'Game of Thrones' wanted me to play Hodor after they had seen that particular tape.
+- I was quite a shy person growing up, and drag was very much a shield for me to perform behind.
+- I play music for people all over the world. It's a huge privilege.
+- Winterfell is atop of this huge mountain in Northern Ireland, and you can see all these weather fronts coming in. Basically, the sky circles the mountain. It's the most beautiful place.
+- The Raves of Thrones parties started in Australia and has since spread all over the world. However, no one does it like the Aussies.
+- I don't really make a distinction because when I'm acting, I feel like an actor, and when I DJ, I feel like a DJ, and when I play the guitar, I feel like a guitar player. I don't know which I prefer. I think I just like to perform, in some way or another.
+- I trained to become a sign-language interpreter because it helps you read physical expression and the emotions of body language.
+- I have no difficulty with career duality!
+- I always have to have the new gadgets and stuff when they come out. I'm not really interested enough in learning how they work.
+- I just don't see why people are treated differently or with a different set of rules. It's just wrong.
+- There's no one else like Hodor on 'Game of Thrones.' There's no other character with that warmth, humanity, and a little bit of comic relief.
+- I'm a massive 'WoW' nerd, and gamer in general.
+- I sorta worked out a few years ago that one of my favorite things to do in 'World of Warcraft' is look for things, to just spend the time flying around searching.
+- I was always very into heavy metal, and heavy metal is full of emotion and extremes, and I think that's the same in dance music.
+- My drag name was Revvlon.
+- Of course I have had thoughts about going into politics.
+- This is what really makes me happy: the whole story of 'Warcraft' and the lore behind it.
+- It's an actor's dream to only have one line, and people like him, so I'm really lucky.
+- 'Game of Thrones' was a game-changer for Northern Ireland. There's going to be a massive gap when it goes.
+- My mother started me on the piano when I was 3 years old.
+- In all honesty, when you talk about 'the gay community,' you are talking about my community, haha.
+- I'm aware of the subgenres and why they exist. But I don't feel like I have to limit myself. I don't feel like I just have to play deep house, just play tribal house, just play progressive house. I wouldn't feel right if I had to limit myself.

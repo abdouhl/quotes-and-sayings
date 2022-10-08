@@ -1,0 +1,36 @@
++++
+author = "Jahangir Khan"
+title = "Jahangir Khan Quotes"
+quotes_len = "30"
+description = "the best 30 Jahangir Khan Quotes"
++++
+- I was very keen on squash. My father used to go to sleep in the afternoon. Normally, in Pakistan, everybody goes to sleep in the afternoon, because it's really hot. I'd go and play without telling anybody.
+- Without hard work and discipline it is difficult to be a top professional.
+- We shouldn't be thinking about individuals or departments. We should be thinking about national interest. Lifting the standard of Pakistan squash is like working towards national interest.
+- Every winning streak will have to end sometime.
+- Squash is my passion, and it is in my blood.
+- If you have a burning ambition and desire, absolutely anything can be achieved.
+- When I play in a tournament, sometimes I'm feeling tired and don't want to play in the tournament. I don't want to lose.
+- Nicol has great potential and there is a huge gap between her and the rest of the juniors. She needs to concentrate full time on the professional circuit from now on and it is the only way for her to realize her potential.
+- I enjoyed my 15 years at the top, and now I enjoy watching the current crop. What I did, maybe they can't do, and what they do, perhaps I couldn't do. It's like that. I wanted to simply be the best. On a professional level, I wanted to be No. 1, and I worked hard to be that.
+- Squash has been my life and I owe a lot to the sport.
+- A player cannot become a world champion overnight. To become a champion, a player has to sacrifice a lot and to devote much of his time practising and training.
+- There is a tremendous amount of pressure when you are a world No. 1 with everyone behind you trying to knock you down. But I always believe you should be enjoying the pressure at the top. It is a case of being able to relax and keep playing the game that got you there in the first place.
+- However, there is no assurance that we can produce world class players so soon. Only time can tell.
+- Pakistan is rich in sporting talent, but the only thing needed is to have sincere and honest administrators who should be held accountable by the government. Pakistan should be recognised as a sporting nation and not as a terrorist country.
+- You hire a chief executive, pay him, and hold him accountable after a year or two. The time for so-called honorary jobs is over. What Pakistan squash needs is results, and that can only be achieved by professionals.
+- During my time, squash was not even part of Asian or Commonwealth Games. Considering the dominance of Jansher Khan and I in the '80s and '90s, it goes without saying that Pakistan would have bagged a plethora of medals through us at these games. And yes, the ultimate prize would have been an Olympic gold.
+- To be the best, I had to work harder than everyone else.
+- You can't go on winning all the time.
+- Generally the younger generation are not hard working. They will have to put in more effort to achieve results in tournaments. most of them can perform well but they cannot deliver when they play abroad.
+- It wasn't my plan to create such a record. All I did was put in the effort to win every match I played and it went on for weeks, months and years until my defeat to Ross Norman in Toulouse in 1986.
+- The pressure began to mount as I kept winning every time and people were anxious to see if I could be beaten.
+- I began playing in the senior circuit when I was 15 and won the world senior amateur title the same year.
+- I wanted to start a proper academy and recruit juniors from all over Pakistan following my retirement after the World Open in 1993 but there was no support.
+- Squash has the credentials to become an olympic event and our goal is to see the sport in the 2008 Beijing Olympics. We are working towards this and will keep trying even if our bid is not successful.
+- Fitness of a top-class squash player is very important, and talent only can't do the job. They have to get training regularly for at least eight hours a day so that they could put some good show in a two-hour match.
+- Let's face it. There is no setup in Pakistan to train and groom young players at the grassroots level in different sports. Those of us who did make a name for ourselves and became champions did it with our own initiative - there was no academy to back us till we reached a certain level on our own.
+- Squash was my livelihood and as in business, I had to stay on top.
+- My unbeaten record and the 10 British Open wins have not been equalled.
+- Everything is changing in squash. Lots of television coverage and the game has become very professional.
+- I don't really do without any plans. If somebody is trying to do something, you must have plans.

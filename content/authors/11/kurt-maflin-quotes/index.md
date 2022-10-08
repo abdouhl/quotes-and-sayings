@@ -1,0 +1,20 @@
++++
+author = "Kurt Maflin"
+title = "Kurt Maflin Quotes"
+quotes_len = "14"
+description = "the best 14 Kurt Maflin Quotes"
++++
+- I think I've underachieved quite heavily.
+- I'm normally a player that plays well under the TV lights, the cameras and everything, I normally do produce quite well.
+- Snooker's got bigger over the last ten years, but obviously it's still on a really small scale.
+- I was driving in Norway and found myself on pure ice. I lightly pressed the brakes but I still started skidding. The car spun round and round and collided head on with another car coming in the other direction. There was a five or ten-second period where I blacked out.
+- I actually moved my address back to the U.K. because I'm spending half my time there anyway and financially it's better to be based over there.
+- I play a lot of chess, just to a bog-average level. But I find it stimulates your mind with all the combinations of different moves.
+- I dream in Norwegian, I count in Norwegian so that basically makes me Norwegian now, I suppose.
+- It wasn't the best move to move here as far as snooker's concerned. But everything else, living in Norway is beautiful, my wife, my son, you can't change those things, it's one against 10 positive things.
+- I have an eight-inch plate in my shoulder with eight screws.
+- 40 seems to be the new 25 in snooker so there is no rush, but I would like to start hitting the time where I'm more stable and regularly hitting the quarters and semis, push on and make some money.
+- I feel like if I play my game then I can beat anyone on my day, so there's no pressure.
+- My little one's only 12 and I miss seeing him grow up and trying to form him and mould him the way I'd like him to him to turn out, which is something like his dad!
+- You've just got to play yourself at the end of the day - just try and keep to your game, keep focused and if you can do that, you've got a good chance of beating anyone.
+- I met my wife in Latvia 17 or 18 years ago, moved over to Norway in 2003 or 2004 and after a couple of years living there, I was able to represent Norway as a snooker player.

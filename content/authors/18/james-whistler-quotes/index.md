@@ -1,0 +1,20 @@
++++
+author = "James Whistler"
+title = "James Whistler Quotes"
+quotes_len = "14"
+description = "the best 14 James Whistler Quotes"
++++
+- I am not arguing with you - I am telling you.
+- I can't tell you if genius is hereditary, because heaven has granted me no offspring.
+- You should not say it is not good. You should say you do not like it; and then, you know, you're perfectly safe.
+- To say to the painter that Nature is to be taken as she is, is to say to the player that he may sit on the piano.
+- The rare few, who, early in life have rid themselves of the friendship of the many.
+- An artist's career always begins tomorrow.
+- You shouldn't say it is not good. You should say, you do not like it; and then, you know, you're perfectly safe.
+- The vast majority of English folk cannot and will not consider a picture as a picture, apart from any story which it may be supposed to tell.
+- To say of a picture, as is often said in its praise, that it shows great and earnest labour, is to say that it is incomplete and unfit for view.
+- An artist is not paid for his labor but for his vision.
+- It takes a long time for a man to look like his portrait.
+- Work alone will efface the footsteps of work.
+- If other people are going to talk, conversation becomes impossible.
+- I maintain that two and two would continue to make four, in spite of the whine of the amateur for three, or the cry of the critic for five.

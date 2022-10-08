@@ -1,0 +1,64 @@
++++
+author = "Kubra Sait"
+title = "Kubra Sait Quotes"
+quotes_len = "58"
+description = "the best 58 Kubra Sait Quotes"
++++
+- Whatever comes in my way, I take it with smile.
+- You can never go wrong when you have a great team to work with.
+- I plan to take time out and read, learn, and absorb more about acting.
+- There's heart and soul in everyone, and we need to respect people's choices.
+- I am very tomboyish.
+- I started playing small roles, but it's the stage that I enjoy the most, as that's where I can entertain people.
+- 'Sacred Games' has actually turned out to be the most challenging experience of my acting career.
+- An introvert as a child, I spent most of my younger years being bullied for my name. It took its toll on me, and by Class VI, I couldn't even have a proper conversation with anyone.
+- In the world we live in, where we say we need equality, we don't think highly of ourselves. We don't give much importance to ourselves. We are cheerleaders of equality, but how much do we believe in it? Because if you do, then you will be the voice of change.
+- I loved Shaggy and Eminem.
+- One may assume that playing a transgender is different, but I'm simply playing a third gender. Why should it make my acting process any different?
+- I do not believe in struggle. Struggle is a state of mind.
+- Transgender doesn't need to imply loud.
+- 'Sacred Games' will take Indian visual content to another level.
+- Struggle happens when you do something which you don't love.
+- I didn't always know that I want to be an actor, but I always knew I wanted to be famous in anything that I do.
+- I am constantly looking around asking for tips from my co-actors. I want to learn as much as I can and as fast as I can.
+- Sometimes when you look at life really closely and you realise that things are not as smooth or as kind as they should be, then you create a world outside that matches up to your expectations or matches up to your beliefs. That's the kind of world both my brother and I have created for ourselves through stage and through entertainment.
+- I am looking at acting in a different way now. I always looked at it as equity to build the other things I was doing; now, I consider it a career.
+- I've had people call me and tell me, 'You've given me courage.' It's fantastic... it's heart-warming to know you can be a ray of hope in somebody's life.
+- I never had a role model. I ended up wanting to be the best version of myself.
+- I love acting, so I don't feel that I have ever struggled.
+- I have worked really hard to get to where I am, and I like it when I read praise, and I get upset when I read bad messages. It's all part of being human.
+- It took me seven years to even comfortably say that I'm an actor.
+- Salman was an amazing human being. There are lot of things about him for years, but he's one of the most genuine, helpful guys out there. There's Salman Khan the superhero, and there's that gentle guy who pulls out a charcoal pencil and comes up with some soulful, pure art pieces.
+- I believe in classics. I like keeping it simple, whether its colours, cuts, or the outfits I wear.
+- Don't be hungry when you go shopping, but don't overeat, either.
+- My brother still calls me didi, which is so endearing. That's how our mother raised us.
+- I am a very positive person.
+- Our mother always raised the bar and believed in us. I am glad she made the sacrifices she did, and we honoured her sacrifices.
+- Asking questions is the first way to begin change.
+- Smile from your heart; nothing is more beautiful than a woman who is happy to be herself.
+- 'Sacred Games' is a huge milestone in my career, as I have never received such fame, attention, and success in my life.
+- The credit of my good upbringing goes to my mother, who's not only been a single parent to my brother and I, but she's also been 'our' manager for the longest time. Our father, on the other hand, remained elusive and away from the family for most part of our lives, which left a certain void but also made us creative and reflective.
+- I still celebrate the day when I first met Shah Rukh Khan. One can't just have a crush on him: he is a person whom you love.
+- I'm so glad that we have had so many consequential rallies and parades which have now educated people and made them stand up for the third gender and give them the absolute place in our society that they deserve. There should have never been a division in the first place, though.
+- There's no formula for success in Bollywood, whether you are sharing screen space or getting the ultimate launch.
+- Vicky Kaushal is a shining example of what happens when you do good work consistently. Rajkummar Rao, Radhika Apte are other examples.
+- Let each person have a chance to be who he or she wants to be. Only then can we be considered a truly liberated nation.
+- I wouldn't necessarily wear what everybody is wearing unless it makes me feel good.
+- People choose to struggle when people don't want to relax. Sometimes it is not on your side. Relax; calm down. No matter how hard the waves are, you will float on the ocean.
+- There is nothing better than playing something on screen which you love doing.
+- I have to thank Nawazuddin for being such a wonderful co-star and a supportive actor.
+- Mum's always been a go-getter and passed on the same values to us. From starting her own supermarket to learning new things and staying updated on technology and applications, she's always constantly learning and growing as a person. So, I didn't have to look outside the house for a role model because my mum was right there, ambitious and driven.
+- I like to keep my mind and physical state alert.
+- I may be an aspiring actor, but I am also a realist.
+- Fashion, to me, is being individualistic.
+- I usually Netflix when I'm on the treadmill.
+- When I was younger, all I wore was ill-fitting corduroys with large shirts and caterpillar shoes.
+- Whom we love, how we love... how can the State decide that for us?
+- It's like suddenly the canvas of my life has been cleared, and a completely new picture is painted. That's how I've been feeling ever since 'Sacred Games' was streamed.
+- Don't overspend. Have budget days and splurge days.
+- I grew up listening to Hindi music, ghazals and all.
+- It was only after a visit to a learning centre, where they taught me public speaking, that my personality emerged.
+- The #MeToo movement is not about shaming people; it's about what we plan to do now on to make things more liveable for our women.
+- I didn't think acting would be a lucrative career.
+- When I told people in Dubai that I am going to leave my job here and head to Mumbai, they were convinced that I will not survive in the dust, grime, pollution.
+- In Bengaluru, I'm Danish's sister, and in Mumbai, he's Kubbra's brother!

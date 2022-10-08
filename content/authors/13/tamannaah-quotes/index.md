@@ -1,0 +1,106 @@
++++
+author = "Tamannaah"
+title = "Tamannaah Quotes"
+quotes_len = "100"
+description = "the best 100 Tamannaah Quotes"
++++
+- I was born on the fairer side, but I've always been fascinated by dusky and dark tones. So, when the makers of my films asked me to go a few shades darker, I didn't think twice. I am not doing anything extraordinary, but I want to break cinematic notions about outwardly appearances.
+- Your shoes and bags don't need to match always. It's perfect to be mismatched, too.
+- I have always been inspired by Hrithik, and he's the very reason I got into the entertainment industry. I am an avid dancer, and Hrithik is a demigod when it comes to dance.
+- The combo of a great story and good director works for me.
+- I don't think I need to wear a bikini to attract the audience. I will not do that.
+- It doesn't matter about the length of the role. I don't do films for the number of scenes. I go for the quality of my character in the film and the impact that I will have.
+- No matter what kind of film one makes, it boils down to whether it's good or not.
+- Criticism is important for an actress, and it depends on how you take it. I take it positively and try to learn from it.
+- I have seen actresses avoiding food out of fear that beauty would be lost.
+- As far as the industries go, in the North, they think I'm a South Indian actress; down South, I've always been thought of as a Bombay girl. I guess it's sort of an identity crisis, even though I'd like to belong to all the industries.
+- Thanks to a film like 'Baahubali' in my career, directors have the faith in me that I can play all kinds of characters, and I also have faith in me now that I can also do all kinds of roles, and I am doing that.
+- It was never a conscious decision to stay away from Telugu cinema.
+- I don't want to sign four films at a time, as acting is an art, and art cannot be done without honesty.
+- It's nice to be part of a film that will be watched by a large audience.
+- I think all of us have enemies in disguise, but there is nothing much you can do about that. You have to live with it. I just do my own thing and let the enemies be.
+- I can get anyone to dance.
+- The world is small, and the film industry is even smaller. So, if someone does something wrong, you really can't hide it, and if it's good work, it also can't remain hidden.
+- In South, the actresses are expected to be fuller, unlike Bollywood. The sensibilities are totally different.
+- My personal dressing is inspired by my mood and mindset. I can jump from a girl-next-door to runway queen. I'm a T-shirt-and-jeans kind of a woman. But I also enjoy the red carpet look.
+- With technology, everything is available at the touch of a button. But I'm not someone whose world revolves around trends. I like to be unique in whatever I do.
+- '100% Love' is not just a film I did; it actually changed me. The film made me confident.
+- When I started doing Hindi films, I did not know much about fashion. I got to know about it when people criticised my fashion sense.
+- When it comes to a character, I make sure that it adds to the plot.
+- I'm a die-hard foodie; I'm the girl next door post pack-up, and my best friends aren't from the industry.
+- Pay disparity is not just in our country but elsewhere in the world, too. However, I do believe that there will come a time when it will change.
+- My college life was brief because I started working for my debut film when I was in eleventh standard. But I have no regrets, as I stayed in touch with my friends who keep briefing me about the drama in the college. The opportunity to get into showbiz was so exciting that I couldn't let it pass by.
+- Being appreciated for playing a female warrior seems too good to be true. I enjoy playing such empowered roles, and on a related note, that's why I agreed to become the brand ambassador for the Beti Bachao, Beti Padhao campaign.
+- I can't titillate the audience just for the sake of doing it.
+- Acting in an epic and a non-fictional film is a big challenge for actors, as they need to research extensively about the characters they are playing before stepping into their shoes.
+- Even if one is not a great actor, just being in front of the camera requires a lot of effort.
+- Over the years, I have realised that it takes a great team for a film to succeed.
+- If there is one favourite actor, then it is Hrithik for me. If an opportunity arises, I'd love to work opposite him.
+- I think 'Happy Days' was huge and an unexpected high point of my career. I was a newcomer at that time, and I was fortunate to get such a role in the film. 'Paiyya' was another highpoint, as it opened up Kollywood for me.
+- In commercial cinema, roles for heroines are limited to being simple or glamorous. I don't want to fall into an image trap.
+- I don't wear clothes that I am not comfortable with - clothes will not get you popularity.
+- I am getting better offers since directors feel that I am versatile and can be more than just a girl next door. I am also seriously trying not to be repetitive.
+- Making a mark becomes more challenging when you are a part of a multi-starrer. But I like that.
+- I'm not a hit machine.
+- Acting began as a casual thing, but along the way, I did films like 'Happy Days,' '100% Love,' and 'Baahubali' that made me fall in love with cinema. I can't imagine being in any other profession.
+- The audience is expecting good work from me. They want me to do roles that are unique and important in the story. So, I am trying to focus on different characters to play. I am doing the kind of films which are completely different from each other.
+- I had a lot of fear of height, but 'Baahubali' has helped me overcome it.
+- Baahubali... ' has been accepted widely amongst Hindi cinema-goers. So this shows that language is becoming less important.
+- There are ups and down in one's career.
+- For me, watching a movie is an experience where I can go, eat popcorn, and enjoy with my friends and family. I want to be a part of cinema that entertains people.
+- My team or I didn't enjoy any administrative authority in the creative role play for the Telugu version of 'Queen.'
+- My confidence is my strength.
+- We have always looked upon Hollywood superheroes like Super-Man and Spider-man, but Baahubali is our own Indian superhero, and the connection people have made with this franchise is unprecedented.
+- Completing your performance with your own voice is so important. It's not only my face and expressions... the voice added to it always feels good.
+- What's very important for me is that I want family audiences - all kinds of audiences - to watch my films, and the more people who watch the movies, the better. So I want to be part of popular cinema.
+- While it feels good to be compared to someone like Sridevi, it's also a lot of pressure.
+- Film is not just about the art form but also how it fares at the box office.
+- I was offered my first film right after my 10th board exams. Back then, I didn't even know they made films in the South. Films, I thought, were either in Hindi or English.
+- Sometimes, films that you do with a lot of care and look good at the time of signing may not work out for some reason or other.
+- It's high time the film industry stopped treating fair skin as a parameter of beauty. You could be the fairest of them all, but if you have a wicked soul, you aren't beautiful at all. So, skin colour doesn't define a person's beauty.
+- As a kid, I wanted to be an actress, but ambition and reality are two different things.
+- I feel that to a great extent, the industry is fixated with fair skin, and that needs to change.
+- After a series of failures, to be part of a project like 'Baahubali: The Beginning' is dream-like, and it's easily the most unexpected thing of my career.
+- As an actress, all I can do is choose from the films I am offered.
+- I don't appreciate people who discriminate on the basis of colour.
+- Out of sheer respect for the people I look up to in the industry, I do say 'yes' to projects at times. It helps me learn a lot. Also, if I am playing a small role in a good, content-driven film, I say yes to it. But there have been times when I said 'no' to films because I was not convinced with the content.
+- Humshakals totally exist. In fact, I was on one of these social networking websites, and I noticed that there is this entire research done on Hollywood celebrities who look like each other.
+- I cannot do more than two films at a time. I like to have a life besides films. That is very important to me.
+- People think actresses have fame and money, but they are not aware of the difficulties we undergo. People should understand that we are sacrificing so much for our survival.
+- Even when I had three Hindi films happening at the same time, Tamil and Telugu will always be an important industry considering I started my career there.
+- I say yes to a film depending on who is directing it.
+- I completely follow my gut and do what I like doing. I have become impulsive in a good way. I am taking creative risks as an actor.
+- I like Hyderabad Biriyani, and when I go to Hyderabad, I have biriyani without fail in the hotels.
+- I have enough experience, and I can do my Telugu dubbing perfectly without any help.
+- I'm a fan of commercial films.
+- I've been part of the biggest hits and flops.
+- I can memorise Tamil lines fast. I feel at home speaking the language.
+- I'm fortunate enough to pull off glamorous as well as strong, character-driven roles.
+- I am unable to eat what I want to and always work hard to maintain my body and looks. I envy other women who have a free lifestyle.
+- Every actor, male or female, is paid what he or she is worth. There is no inflated sum or underpaying in the industry.
+- I enjoy writing.
+- I always wanted to become an actress.
+- I love being part of the movie-making process. There is magic. There is an element of mystery and unpredictability.
+- I am indeed fortunate to work with some reputed directors like Balaji Sakthivel, Sekhar Kammula, and KV Anand sir. Each one of them has a different style, and every day is a learning experience for me.
+- I would love to do realistic films that are entertaining.
+- Yes, I charge a certain remuneration fee, and yes, producers do pay me that sum. But if I didn't deserve it, why would somebody pay me an exorbitant amount?
+- People love talking about how much an actor makes. A lot of headline space is dedicated to this.
+- Treat your skin with natural homemade stuff that gives it respite from chemicals.
+- It's a constant quest to push the bar and work in films that allow me to prove what I can do as an artist.
+- Audiences want to watch good films, even if it is dubbed in another language.
+- As an actor, I do not come with preconceived notions. I am like clay that can be moulded or like a sponge that can absorb things. I do what the director wants me to do.
+- I don't want to act in a preachy movie just because that is more sensible. I don't watch that kind of cinema.
+- To become a better actor, one needs to look inwards and understand oneself better. Then, you can create magic on screen.
+- While I am a teetotaller in real life, I would hate to pass any judgments on what actresses should do or not do.
+- Despite a good subject if the director is not up to the mark, the execution can go wrong.
+- I did feel bad when 'Himmatwala' and 'Humshakals' didn't work, but I have moved on.
+- I feel more at home in Chennai and Hyderabad than in Mumbai since I spend so much time in these two cities.
+- I have changed a lot as a person coming into showbiz and meeting a cross section of people from all walks of life; it was an amazing experience. But that's the privilege I had of being early into showbiz.
+- 'Queen' is an interesting film, and I have always been motivated by roles that help alleviate women empowerment in some form.
+- I owe all the name and fame I have earned to regional cinema.
+- I am pleased about making a comeback in Bollywood, but then I really cannot think about leaving South Indian cinema. Whatever I am today is because of South films, and I cannot give up on that.
+- I am a gourmet. I cannot stay away from my favorite dishes.
+- I choose my films in a way that helps me do justice to all of them. Also, I like doing time-consuming films like 'Baahubali'; it's sometimes more rewarding than doing lots of small films.
+- For me, films have always meant entertainment.
+- I always wanted to be an actor, and I wanted to be a part of good movies. Wherever I get to do these two things, it's enough for me.
+- I think glamour is a perception, and I am not against it.

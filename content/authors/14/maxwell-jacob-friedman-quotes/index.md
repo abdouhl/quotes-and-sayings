@@ -1,0 +1,45 @@
++++
+author = "Maxwell Jacob Friedman"
+title = "Maxwell Jacob Friedman Quotes"
+quotes_len = "39"
+description = "the best 39 Maxwell Jacob Friedman Quotes"
++++
+- I've had fans try and jump the guard rail. I've had fans key my car. I've had fans try to stab me.
+- I look at it like this: I'm being myself, everybody else in my industry is faking it.
+- I honestly keep to myself often and I keep my circle small.
+- When I was growing up, I played football, I loved football.
+- There's nothing fake about me. And I think there are some people that appreciate that. Even if they hate me, they appreciate the fact that I'm 100 percent authentically me.
+- There were people that grabbed you just by talking, and that's what I loved about professional wrestling when I started out. That's why I'm already so good. That's why people literally hang on the edge of their seats when I have a mic because they want to know what I'm going to say.
+- Once I saw Roddy Piper I knew exactly what I was going to be doing when I grew up.
+- Because I love making people mad. It is my favorite pastime.
+- March 15th is the most important day of the year. It's my birthday.
+- Early Four Horseman is absolutely terrific.
+- Just let me give you a regular, good old-fashioned body slam in the ring. You won't be able to walk for a week. I'm a superman.
+- I was at House Of Hardcore for Tommy Dreamer. Good guy, great guy, great eye for talent - that's why he booked me.
+- For those of you who aren't aware I am Jewish, the name might have given it away, and there were no other Jewish kids on my football team, so it was an adjustment for me because the kids didn't exactly love the fact that there was a Jewish kid taking their spot.
+- Anybody who knows me knows I'm a handful, I'm aggressive, I'm loud, I'm obnoxious.
+- I'm a good person and that's what I am at the end of the day.
+- I am AEW born and bred. I will be AEW until I die. This is my company. This is where I started. This is the company that I'll end in.
+- The future of AEW is Maxwell J. Friedman, without a shadow of a doubt. I am going to be the face of this company. At the tender age of 23... people think I'm great now? They don't know the half of it. I mean, my career's only just begun.
+- I've never talked about being Jewish in a promo ever. But my name is just so blatantly a Jewish name. It's not like my name is Maxwell Jacob Smith.
+- Let me tell you something about Joe Manganiello - I don't care, dude. The most impressive thing that you have on your cinematography is that you got beat up by Spiderman.
+- Jon Moxley - great performer. I'm sure he's a nice guy. But at the end of the day, I think people are sick and tired of him, you know, being the captain of the ship.
+- I do not need anybody telling me how to do my thing. I do not care how great they are, if it is somebody I respect, I will listen.
+- What I care about is making sure that when the people watching me put their head to their pillow, I'm the last thing they think about. Not because I hit the coolest moves, not because I'm putting my body on the line for their entertainment, but because I'm captivating.
+- I'm honestly offended whenever someone says I'm being harsh.
+- Shawn Spears, he is a scumbag. He decided, after years of friendship with one of the greatest men to ever live Cody Rhodes, to waffle him with a chair. No one should be laying a finger on that man, he is a saint.
+- It might be okay for somebody else on the roster to sit on the sideline but it's not okay for me to be. I'm the franchise player, I'm the guy on both the microphone and in the ring.
+- I do things my way. I don't do things to make people happy or appease them.
+- I wanted people to see just how good of a professional wrestler I really am.
+- What I care about is making money. What I care about is making waves. What I care about is going down as one of, if not, the greatest professional wrestlers to have ever lived.
+- I'm as old-school as it gets in this modern era. I'm the last of a dying breed.
+- Personally, I would miss a wedding. I would miss childbirth. I would miss a bar mitzvah just to see me talk at all.
+- I've always loved old school wrestling: Tully Blanchard, Arn Anderson, Ric Flair, Sting, Hot Stuff Eddie Gilbert. To me, that's the golden age of professional wrestling.
+- I'm a once in a lifetime professional wrestler. I'm something that people are never going to get to see again.
+- All that matters is the fact that I'm the first person people are thinking of when they wake up and I'm the last person people are thinking of when they go to bed.
+- Right now, at the age of 22, I'm making a living off of this and I'm building, not only just my brand, but I'm also building myself bell-to-bell. I'm building myself when that red light's on and I want to keep doing it.
+- I had a full-ride football scholarship as a middle linebacker.
+- The fact that these fans don't understand that a ring is comprised of steel, metal beams, wood, and a thin sheet mat, and that's it.
+- Nothing I say is harsh. What I do say is the truth. If people have a problem with that, they need to realize that's on them. That's not on me.
+- So, I couldn't care less Joe Manganiello's opinion on anything I have to say on Twitter.
+- For some strange reason a lot of people in my age demographic don't want to listen to veterans of this sport.

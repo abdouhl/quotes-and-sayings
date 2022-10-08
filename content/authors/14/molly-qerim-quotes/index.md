@@ -1,0 +1,62 @@
++++
+author = "Molly Qerim"
+title = "Molly Qerim Quotes"
+quotes_len = "56"
+description = "the best 56 Molly Qerim Quotes"
++++
+- I truly believe that ESPN has been in the forefront in terms of the diversity in front of the camera and improving the balance between men and women.
+- Super Bowl Sunday is an American holiday at this point. Usually, I'll have people over, and it's pretty much just a chill day. Football is on all day.
+- As far as feeling like I need to prove myself or this or that, I don't feel that way anymore. I've been in this business for ten years, so I'm kind of past all that. I was there where, as a female, you always feel like you have to prove yourself; you have to outwork them. But all I worry about now is being prepared.
+- I think it is really important that I am always listening.
+- It's tricky when you have people tuning in to hear about sports, not politics, but I think in issues where they intertwine, that is not something 'First Take' is not going to shy away from and potentially will go to another level than another sports show.
+- When there is a certain subject matter where I want to get involved, where I think I could add to the conversation, and especially with gender issues, I appreciate having that voice and that seat at the table.
+- I try to work hard, be professional, be fun to work with, and be accountable.
+- The endometriosis was not just in my reproductive organs; it was everywhere.
+- At my house, I have a wine and beer fridge. It's got everything. The beer is at 38 degrees, and the wine is at 50 degrees. We take it seriously, but I'm actually not that big of a drinker.
+- I don't go out too much, though I love to dance, but I dont drink.
+- I love hip-hop.
+- I grew up in Connecticut - it was really charming, but when I was younger, all I wanted was to get out.
+- My friends would always joke that I'm 'the grandmother' and 'the homebody' because I can't stay up past nine o'clock, but a lot of that rest is so important for me.
+- I could go right now and work for a non-profit organization, but I have a passion for sports, and I love to write and speak.
+- I'm very Aries - every characteristic, good and the bad.
+- I don't know what it's like to be Cuban-American, but I know what it's like to have family under Communism and to get up early in the morning and send medical supplies and try to send food and try to send money and have it intervened, and them calling and crying on the phone.
+- When I was in L.A., I thought I would never leave.
+- I'm thrilled to join the talented people at 'The Daily Line' and look forward to being a part of Versus' incredible team.
+- I'm half Italian, and on my mom's side, they've aged amazingly, and all they've put on their faces is olive oil.
+- I am really irked by healthy NBA players resting. I really don't understand it. Players in the past have played all season for years. I just don't love it. I feel like it hurts the integrity and competitiveness of the game. It's got nothing to do with the TV partners; it's about cheating the fans.
+- I feel for people with crazy names. It's been a challenge, but if that's my struggle, I can live with it.
+- I'm not dating anyone until I get my career where I want it to be.
+- I listen to a lot of Pandora. I listen to the Hot 97 app.
+- I was originally going to join 'Mike & Mike' in New York City, but then that move fell through, and there was a vacancy on 'First Take,' so now I am excited to be able to do both.
+- I have to make sure to get a good night's sleep whenever I can, and sometimes I have to be really disciplined. There are games that I want to stay up and watch, so I just have to DVR them.
+- TV is changing in terms of how we are consuming sports. Appointment viewing no longer exists, as between social media and the Internet, people already have the news and can get the highlights - so now people want the opinions.
+- 'First Take' is known for the hot sport debate, which we'll continue to have. But also, I think another important aspect of the show is having the big-time interviews and the big-time guests, and being in New York gives it that feel.
+- What this man did, Fidel Castro, is he oppressed his people for nearly six decades. That legacy is firing squads. It's poverty. It's denying human rights.
+- I'll go out to eat and have a really good lunch and try to shut the phone off, but I can't, really, because the social media stuff will start happening.
+- I'm really looking forward to joining 'Mike & Mike.' It will be a tremendous challenge.
+- I'm always my toughest critic. I'm setting the expectations for myself, and that's enough pressure. I don't need to worry about the haters or the Twitter trolls or what everybody else thinks.
+- There is part of you as a female - no question - that feels like you have to be overprepared and outwork the men because people are automatically going to look at you and say, 'Well, you didn't play football,' or, 'You don't know what you're talking about,' because you are a female.
+- The Time's Up movement extends to every college campus and, of course, athletics.
+- I really appreciate working with Skip and Stephen A. and value their opinions. There's definitely been growing pains, but I know they have my best interests at heart. Sometimes I make mistakes, and they tell me, but it's tough love, and I want to hear it, and we have natural chemistry on and off the air.
+- I definitely work a lot, but I love it.
+- I'm blessed to work in sports every day.
+- I think New York is the greatest sports town there is, and I feel like we're a part of the buzz.
+- Acupuncture was a saving grace. It helps more than anything else I tried. Everyone with endometriosis should give acupuncture a shot, at least once.
+- Three to four times a week, I do boxing with a trainer. It's great because you get to punch things and let out stress.
+- As soon as you are a woman with an opinion, and they don't like it, the haters will come out in full force.
+- So let me get this straight: Kaepernick sacrificed his career, dreams, and reputation fighting for social justice because he was shown he couldn't do both - be an activist and be in the league. But in the end, the players coalition allegedly agrees to a deal with a price tag, and Colin's left out of it. Tell me that doesn't feel a little dirty.
+- If you don't have haters, you're doing something wrong.
+- The last thing I want to come home to on Monday night after work is a mess.
+- I grew up on a pretty Mediterranean diet, so that's what I try to stick to.
+- I'm gonna be honest with you - since I started 'First Take,' I don't Google myself.
+- I'm like, 'Eminem knows who I am? Eminem watches 'First Take?' That's love.' I've been a fan of his for years, for his music.
+- I think Chael is just made for T.V.
+- New Haven is really cool.
+- I grew up with sports, but I was definitely not good enough to become a professional athlete - I just loved the storytelling aspect of it.
+- I've always been pretty disciplined.
+- If Kaepernick is trying to become a backup quarterback, and we're seeing guys like Mark Sanchez and Geno Smith being picked ahead him, then you can argue that he is being blackballed.
+- Obviously, I'm a female in sports. You work really hard, you prep really hard, you put a lot into the show, so when you have certain comments, and people are saying, 'Oh you add nothing,' or, 'You got your job because of this.' Really? Why don't you look at my master's degree?
+- The credibility comes before you get on air. It comes with coming to the production meeting and having ideas and being prepared and being up on everything that's going on, being professional, and showing up every day and working hard. I think that's where you build the credibility and the respect.
+- All I can say is every relationship is different, and every personality, and everyone handles every couple's social media differently.
+- I love Twitter.
+- Everything in life cannot be bought.

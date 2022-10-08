@@ -1,0 +1,52 @@
++++
+author = "Mikhail Gorbachev"
+title = "Mikhail Gorbachev Quotes"
+quotes_len = "46"
+description = "the best 46 Mikhail Gorbachev Quotes"
++++
+- The world will not accept dictatorship or domination.
+- If what you have done yesterday still looks big to you, you haven't done much today.
+- I couldn't wait to get to the most powerful position, because I thought then I would be able to fix problems that only the leader can fix. But when I got there, I realized we needed revolutionary change.
+- My life's work has been accomplished. I did all that I could.
+- The soviet people want full-blooded and unconditional democracy.
+- It would be naive to think that the problems plaguing mankind today can be solved with means and methods which were applied or seemed to work in the past.
+- The market came with the dawn of civilization and it is not an invention of capitalism. If it leads to improving the well-being of the people there is no contradiction with socialism.
+- It seems that the most important thing about Reagan was his anti-Communism and his reputation as a hawk who saw the Soviet Union as an 'evil empire.'
+- I think the environmental problem will be the number one item on the agenda of the 21st century... This is a problem that cannot be postponed.
+- Starting reforms in the Soviet Union was only possible from above, only from above. Any attempt to go from below was suppressed, suppressed in a most resolute way.
+- If not me, who? And if not now, when?
+- Democracy must learn to defend itself.
+- I think we need more young people; we need to elect young people to government. We need to give them a chance, in the media, in politics, in democracy.
+- Surely, God on high has not refused to give us enough wisdom to find ways to bring us an improvement in relations between the two great nations on earth.
+- We are not abandoning our convictions, our philosophy or traditions, nor do we urge anyone to abandon theirs.
+- I believe, as Lenin said, that this revolutionary chaos may yet crystallize into new forms of life.
+- There should be competition and exchanges between different countries, but there are certainly certain universal values, and that is freedom and democracy.
+- Imagine a country that flies into space, launches Sputniks, creates such a defense system, and it can't resolve the problem of women's pantyhose. There's no toothpaste, no soap powder, not the basic necessities of life. It was incredible and humiliating to work in such a government.
+- Sometimes it's difficult to accept, to recognise one's own mistakes, but one must do it. I was guilty of overconfidence and arrogance, and I was punished for that.
+- Democracy is the wholesome and pure air without which a socialist public organization cannot live a full-blooded life.
+- If people don't like Marxism, they should blame the British Museum.
+- If current technological processes continue without change, the environment will change, and we, the human species, will either have to mutate or even die, to disappear, as many species have disappeared.
+- Sometimes when you stand face to face with someone, you cannot see his face.
+- Certain people in the United States are driving nails into this structure of our relationship, then cutting off the heads. So the Soviets must use their teeth to pull them out.
+- Jesus was the first socialist, the first to seek a better life for mankind.
+- Sometimes people ask me why I began perestroika. Were the causes basically domestic or foreign? The domestic reasons were undoubtedly the main ones, but the danger of nuclear war was so serious that it was a no less significant factor.
+- On the day I became Soviet leader, in March 1985, I had a special meeting with the leaders of the Warsaw Pact countries and told them: 'You are independent, and we are independent. You are responsible for your policies, we are responsible for ours. We will not intervene in your affairs, I promise you.'
+- I don't think Russia is setting this as a goal; I don't think this should be Russia's goal. I think even the United States doesn't need to be a superpower. China doesn't need to be a superpower. It's a different world.
+- You cannot put Russia down on its knees and hold it there because Russia will ultimately pull out.
+- Ex-Presidents of the United States get state subsidies. Not so in Russia. You get no government support.
+- I am a Communist, a convinced Communist! For some that may be a fantasy. But to me it is my main goal.
+- Political leaders still think things can be done through force, but that cannot solve terrorism. Backwardness is the breeding ground of terror, and that is what we have to fight.
+- A society should never become like a pond with stagnant water, without movement. That's the most important thing.
+- More socialism means more democracy, openness and collectivism in everyday life.
+- We could only solve our problems by cooperating with other countries. It would have been paradoxical not to cooperate. And therefore we needed to put an end to the Iron Curtain, to change the nature of international relations, to rid them of ideological confrontation, and particularly to end the arms race.
+- I say again that I am an atheist. I do not believe in God.
+- I think God has some mechanism that he uses to punish those that make mistakes.
+- It is better to discuss things, to argue and engage in polemics than make perfidious plans of mutual destruction.
+- I grew up in a family of peasants, and it was there that I saw the way that, for example, our wheat fields suffered as a result of dust storms, water erosion and wind erosion; I saw the effect of that on life - on human life.
+- What about Jesus Christ? I say that he was a precursor of idealists; a precursor of socialists.
+- What we need is Star Peace and not Star Wars.
+- Without perestroika, the cold war simply would not have ended. But the world could not continue developing as it had, with the stark menace of nuclear war ever present.
+- Every country should conduct its own reforms, should develop its own model, taking into account the experience of other countries, whether close neighbours or far away countries.
+- I paid too heavy a price for perestroika.
+- America must be the teacher of democracy, not the advertiser of the consumer society. It is unrealistic for the rest of the world to reach the American living standard.
+- The market is not an invention of capitalism. It has existed for centuries. It is an invention of civilization.

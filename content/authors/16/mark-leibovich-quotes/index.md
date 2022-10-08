@@ -1,0 +1,27 @@
++++
+author = "Mark Leibovich"
+title = "Mark Leibovich Quotes"
+quotes_len = "21"
+description = "the best 21 Mark Leibovich Quotes"
++++
+- There's something called the 'Washington Read,' which is the habit of many locals to go into a bookstore, pull a book off the shelf, rifle through the index to see if they're in there.
+- I think that part of being a good journalist, part of being an awake member of the world you're in, is to view yourself as an outsider, and I always have, to some degree.
+- I have always been a big meta guy because I think the way journalism is practiced in Washington, and the way everyone sort of cohabitates in the same fishbowl is ultimately a bigger part of the story than people outside of the fishbowl really know.
+- Politicians, in many cases - their moral code will be dictated by what can get them reelected, what they can get away with. When you're out of office, I guess you're freed from those checks and balances.
+- The shaming of Washington, insofar as it is even possible, is a very noble pursuit.
+- To cover politics in Washington allows you to live in the very, very wide gap between what the actual truth is, and how people are trying to manipulate the truth. They speak in the language of spin, obsequiousness, obfuscation. The meta of politics is just this endless source of material that can shed light on the psychology of the process.
+- I like to be read. That's most of what any writer could want.
+- The American system is a beautiful and durable thing, but flawed. I would like to think that this decadence is not sustainable, whether in the eyes of the electorate or the eyes of whatever the local economy is built on; that would bring me hope.
+- I don't know if it's because my father's from Argentina, that I'm the son of an immigrant, I don't know if its because I'm Jewish, but I have always been mindful that the best insights occur when you have some kind of an outsider perspective.
+- I've always tried to walk a line between being incisive and acerbic, but not mean. Sometimes I'm going to tip over the line a little bit, but that's usually a line I try not to cross.
+- I always keep my repertorial hat on.
+- I always prided myself on being apart from the ruling class. I think it's always important, not just in Washington but in life, to be able to able to balance your sense of belonging with what it's like to be someone who doesn't belong.
+- If you can sell yourself as someone who knows how Washington works, someone who has these relationships, that's a very marketable commodity. If you're seen as someone who knows how this town works, someone who is a usual suspect in this town, you can dine out for years - that's why no one leaves.
+- Spirituality in Washington can be more of a - I don't want to say it - but, a networking opportunity. Religion is often used opportunistically in the political conversation.
+- Washington has become this place that people don't leave. It has become this permanent feudal class.
+- When you live in Washington, D.C., you do get a sense, in a very direct way, of the durability of our government and really, the greatness of the American system.
+- I violated, apparently, an unspoken rule that we are supposed to take care of our own. Frankly, if that invites discomfort, I welcome it. I don't think there's enough discomfort in journalism, especially in Washington.
+- Washington has always had a pretty healthy amount of self-loathing.
+- I have been a print reporter my whole career. It's all I ever wanted to be. I specialize in political profiles. I have probably profiled hundreds of people over the years, people in very powerful positions. People don't always like what I write, but most people still talk to me.
+- But 'This Town' is official Washington. It's political Washington. It's not the Washington that clogs New York Avenue. It's not the Washington that lives in Gaithersburg. It's not the Washington that accounts for most of the population. 'This Town' refers to the people who think they run your country.
+- If you look at issues like immigration, gay marriage, gun regulation - these are all things that probably wouldn't be a source of much discussion at all in D.C., if they weren't sources of self-perpetuation.

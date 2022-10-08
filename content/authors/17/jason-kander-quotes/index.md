@@ -1,0 +1,104 @@
++++
+author = "Jason Kander"
+title = "Jason Kander Quotes"
+quotes_len = "98"
+description = "the best 98 Jason Kander Quotes"
++++
+- In the state legislature, I supported Second Amendment rights.
+- Voters aren't asking to be pandered to and aren't asking to be tricked.
+- Americans are struck by lightning with greater frequency than they commit voter impersonation fraud, and that's the only kind of fraud that photo ID requirements could have any hope of preventing.
+- As the state's chief elections officer, it is my job to make sure that only eligible voters vote, but also that every eligible voter has the opportunity to vote.
+- Everything I do in my political life is colored by my military service. It was the defining moment in my life and helped me develop the leadership skills that I still utilize.
+- Doing things right in politics is no different than doing things right in life: Tell the truth, be yourself.
+- Really, Donald Trump's entire message is that people like Sen. Blunt are the problem.
+- For far too long, Congress has been focused on the CEOs, the millionaires, the billionaires.
+- I believe there should be political consequences for politicians who commit voter suppression.
+- Curtailing voting rights by dishonestly inventing widespread fraud has been a major part of the Republican Party's political strategy for a while.
+- Anyone can be something. Leaders want to do something.
+- Very few things in life are more fulfilling than being part of a team and knowing you're a part of something bigger than your own self-interest.
+- We should be doing everything we can to make it as convenient as possible for eligible Americans to cast a ballot. People fought and died for the right to vote.
+- My experience in uniform has shaped my life and informed who I am like no other, and it's difficult for me to wrap my mind around the idea that I will no longer be a soldier.
+- I got 220,000 votes from people who also voted for Donald Trump. I did not do that by pretending to be a conservative Democrat.
+- No one seriously believes that cutting the minimum wage is good for workers.
+- We need Congress to do more than just engage in partisan games.
+- Kansas Secretary of State Kris Kobach has been an adviser to Trump, although he still very publicly couldn't land a job in the president's Cabinet, despite providing that counsel. And Kobach has a long history of making up facts to help him pass unfair voter suppression laws and push extreme anti-immigrant proposals.
+- In order to change Washington, we're going to have to change the people that we send there.
+- You can protect the integrity of elections without stopping anyone from voting.
+- As a former Captain in the Army National Guard, I trained hundreds of soldiers to lead troops into combat.
+- The option to recall elected officials is an important one. Our representatives should always be mindful that they answer to their constituents, and if they act in malfeasance, their job may be on the line. But using the recall as a way to reverse the results of an election, or to hold a snap election, is simply undemocratic.
+- I'll be working every day to help elect voting rights champions in Missouri and around the country.
+- As Democrats, when we try to determine who or what allowed Donald Trump to become president, we should look in the mirror.
+- When Democrats concede the idea that some voters are not our voters, we shouldn't be surprised when those voters agree.
+- I launched more formal elections investigations than any secretary of state in Missouri history, and we didn't get a single complaint about voter impersonation fraud - not one.
+- Politicians never say never to anything.
+- The military is a group of people that come together from different perspectives and backgrounds and places and get a job done because they have a mission.
+- I think that one of the things that Democrats, in particular, need to recognize is that the way we have sometimes thought about issues as just affecting a particular group of people is not necessarily right.
+- To me, leadership has always been about doing what's right. Because when you've had to write your blood type on your boots, you aren't afraid to make the right calls.
+- I could work with anybody. This is why we need more veterans in Congress.
+- I'm proud to be a Democrat, and I feel pretty strongly that the country would be better off with Democrats in charge.
+- If we all work together, then we can save the American Dream from the nightmare that is Donald Trump.
+- That's a compliment reserved only for politicians. You never hear someone say, 'You know what I love about my accountant? He's just a normal guy.' That's how low the bar is for people in politics.
+- My wife is gorgeous and brilliant, and my son True is my best little buddy in the world.
+- When one donor can account for more than 70 percent of a candidate's money, there's obviously something wrong with the system.
+- Because President Obama had an overall strategy, military and civilian leaders under his command could make reactive decisions that advanced the president's goals. In the military, we call that commander's intent: When there's a decision to be made and you don't have exact guidance at that moment, you at least know overall what your boss wants.
+- I thought of myself as a soldier who was going to law school.
+- Voter ID laws are the most potent form of voter suppression legislation.
+- To me, serving wasn't uncommon, and my service paled in comparison to so many of my friends who had done so much more. In my world - as a citizen soldier - I was surrounded by other soldiers just doing their jobs.
+- The secret to adulthood is that 99% of the time, you actually know the right thing to do. Adults make it hard when they are deciding whether to do the right thing.
+- What we believe is that health care should be a right in this country; I happen to believe that means that we should be for single-payer.
+- I believe that if you make it harder to vote, then we should make it harder for you to get reelected.
+- We have to be willing to engage ISIS militarily, economically, and even on the Internet without delay. For instance, I think we waited too long to engage al-Qaida and the Taliban in Pakistan. And we should not make a similar mistake with ISIS elements throughout the world.
+- You've got to tell people how it is that you've come to believe what you do.
+- I believe in President Obama.
+- There are states with photo ID requirements that don't disenfranchise eligible voters.
+- No matter how many times the court shuts them down or how many Americans speak out to defend their rights, Republican politicians who stand to gain from suppressing voters won't back down. They'll only change their tactics.
+- If an election doesn't go your way, you don't get to call a do-over. Part of respecting our democracy is respecting the will of the voters.
+- The men and women of the American military have the courage to follow orders. They deserve a commander-in-chief with the courage to give them.
+- If you're out there saying something that you don't personally believe, then it doesn't really matter if a voter agrees with what you're saying. If they don't believe that you believe it, then they're not going to listen to you anyway.
+- Politics, as a profession, is not about making the right political decision. It's about making the right decision and then managing the political consequences.
+- I wasn't out there pretending I was a conservative Democrat. I'm somebody who has talked a lot about and has done the act of running as who you are.
+- I'm a Democrat because I want every American to have a fair shot at the American Dream. That's what ties it all together for me, and in my experience, that means recognizing that no one is dealing with life one 'issue' at a time.
+- If I had the opportunity to give President Trump any advice, and I had to boil it down to one thing, I suppose it would be that nobody ever got better at any job by blaming everybody else whenever anything goes wrong.
+- In the Army, I learned how to use and respect my rifle.
+- I've stood in rooms in urban, rural, and suburban parts of my state and asked a room of middle class voters to raise their hands if the college debt of someone in their family is affecting their financial situation. Without exception, at least three quarters of the room will raise their hand.
+- The president is in charge of the military so that a single individual - accountable to Americans - is responsible for its successes and failures.
+- Trump is doing the country a disservice making things up about the integrity of our elections.
+- We were at a kibbutz, and we were at a Shabbat service, and I opened up the prayer book, and on the first page, it said that the prayer book was in thanks to the sponsorship of this family in a temple in Kansas City. For me, it was a moment when I really kind of connected in a real serious way with my personal identity as a Jew.
+- With limited shifts, low wages, and scarce benefits, it feels almost impossible for many Americans to get their slice of the pie.
+- Not everyone who goes to Washington becomes Washington.
+- Democrats fell in love with the idea that winning elections was a matter of talking to voters about the one issue we think impacts them, instead of our plan to move the country forward as a whole.
+- If you've been willing to put your life on the line to do something important for your country or your state, putting your job on the line is really not a very big deal.
+- Unions continue to be important for raising the standard of living for working Americans, whether or not they happen to be in a union.
+- Voters are smart. They know the difference between a Democratic Party that wants their vote and a Democratic Party that believes in making their life better. They'll forgive you for pushing a policy they don't like as long as they believe you're doing it because you genuinely believe it's what's best for the country.
+- We have got to zero in on the fact that all of us, no matter where you live, want our kids' lives to be an upgrade over our own, and we would really like it if our kids could come back and live where we raised them.
+- Frankly, a lot of candidates have no problem being sold to the highest bidder if it means they will win.
+- This country is a place that you've got to stay invested in.
+- The Democrats need to be confident about making their argument... and making sure that everybody knows we care about them.
+- I didn't get into politics to play a character on TV.
+- Since winning the election, Donald Trump has jump-started voter suppression efforts at the federal and state levels.
+- Whether it's intentional or not, Trump regularly makes news for unprecedented and nonpresidential behavior.
+- To improve the standard of living for working folks, we have to raise the minimum wage and empower workers to fight for their interests in an economic and political system that's stacked against them.
+- A lot of millennials really want a company that signs their paycheck, or whoever it is that signs their paycheck, to be an entity that reflects to them in a way that is consistent with their personal idea of who they are.
+- A lot of states that pass voter ID laws have little to no evidence of in-person voter impersonation fraud, which is the only kind of fraud that voter ID laws could guard against.
+- Ground troops... have to be a last resort. I think they should always be a last resort.
+- Let America Vote will make the case for voting rights by exposing the real motivations of those who favor voter suppression laws.
+- I obviously did not volunteer to go to Afghanistan solely to protect the wealthiest 1 percent of Americans.
+- He's like a bizarro me. One of us is working for good, and the other is Kris Kobach.
+- Americans want to be represented by the best candidate, not the one with the richest friends.
+- You don't get to recall a senator just because you don't like her or just because you want the seat for your own party.
+- I realize there are a lot of folks in my political party who disagree with me on this, but I think the Patriot Act is an important law enforcement tool, and it makes our country safer.
+- I love this country, and I won't let losing an election force me away from the process.
+- Voter suppression is at the very core of the Trump re-election strategy.
+- I don't judge anybody who chose not to serve during Vietnam, at all. It's a different time, and I don't judge anybody for the decision they made.
+- Campaigning ain't tough.
+- Senator Blunt genuinely sees everything through the lens of partisan politics.
+- To truly care about this country is to demonstrate that you care about her politics the same when you're winning as when you're losing.
+- Voting in our country has never been easy, and unfortunately, it has never been guaranteed for everyone. But through the work of brave civil rights leaders, some of whom died for the cause, by the early 2000s we were at a point where most, but still not all, people who wanted to vote could do so.
+- If you can get to know a person, and you can really understand them, it can usually help you better understand yourself and why you believe what you believe.
+- Voters are okay with you believing something they don't believe, as long as they think you genuinely believe it, and you believe it because you care about them.
+- The sacrifices our warfighters make for us is simply astonishing in modern American society.
+- Voter suppression anywhere hurts our democracy everywhere.
+- I'm that dude from the ad about background checks where I put a rifle together blindfolded.
+- I signed up for military service in the months following 9/11, and later, as a military intelligence officer, I felt called, like so many others, to volunteer for deployment and service in Afghanistan.
+- I think that it's a good thing that you want to be part of making the world a better place, including between nine and five.
+- I am a person who cares deeply about what is happening in the country, and for me, in most ways since getting out of the service, at least, politics has been the way in which I see myself best serving and trying to make things better.

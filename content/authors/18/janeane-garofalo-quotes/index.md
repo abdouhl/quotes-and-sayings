@@ -1,0 +1,67 @@
++++
+author = "Janeane Garofalo"
+title = "Janeane Garofalo Quotes"
+quotes_len = "61"
+description = "the best 61 Janeane Garofalo Quotes"
++++
+- To combat social awkwardness, I would just act like I couldn't be bothered - that kind of aloof persona or aloof demeanor. It's so off-putting.
+- If you aren't overly effusive or really nicey-nice with the press, you get a reputation for being outspoken or difficult.
+- I mostly get takeout, I have to admit - I don't know if that's something to be ashamed of. I'm not much of a cook.
+- I've seen other comics, with great pleasure, watching their own specials, and I don't know how or why they do it.
+- I would have to say loneliness is next to uncleanliness.
+- German accents and Hassidic accents aren't that romantic. They're more harsh. Although Hebrew, when spoken by certain people, sounds beautiful. There's this beautiful woman I know who speaks Hebrew, and when she speaks, it's so attractive. Maybe it's who's speaking it.
+- I'm not a cook. I like to watch the Food Network, but I don't like to cook.
+- Boy, does that give you street cred for years after, if you tell people you were on 'The Larry Sanders Show!'
+- The term 'celebrity' makes my skin crawl.
+- The glass is always half empty. And cracked. And I just cut my lip on it. And chipped a tooth.
+- Here's what the right-wing has in, there's no shortage of the natural resources of ignorance, apathy, hate, fear. As long as those things are in the collective conscious and unconscious, the Republicans will have some votes.
+- I love a nice cooking show. It's as aesthetically pleasing as any other thing that tempts the senses, I suppose.
+- You can't have cinema by committee if you're trying to do it well.
+- A lot of the hate mail I get is clearly misogynist. I am a proud liberal, feminist woman, and the hate mail I get about those three things is not about me.
+- I'm not specifically attached to anything other than trying to, in my personal life, fight against where I see right wing thinking. Whether it be around my dinner table or on the street or somebody reading the New York Post.
+- You know, there's nothing more interesting than seeing a bunch of racists become confused and angry at a speech they're not quite certain what he's saying.
+- Men are allowed to age. Men are allowed to gain weight. Men are allowed to be quirky looking.
+- I'm not a disciplined writer.
+- You just need an opportunity and then you yourself have to do a good job, and then you hope that people go, 'Oh yeah, I forgot about her.'
+- Sometimes people say I'm a political comedian, which, actually I'm not. I'm a comedian who sometimes discusses politics, culture - again, the word 'politics' to me is just life.
+- I don't think Hollywood was trying to do anything with me. In fact, they lost interest pretty quick. I think I got lucky, briefly, in the '90s, and it just so happened that those movies were the opportunities that came my way. Then it just kind of stopped.
+- I don't enjoy sparring with the audience. It devastates me.
+- It's been hard in entertainment as a 45-year-old woman to find jobs. They get fewer and far between if you're older, unless you're one of the few lucky ones who work constantly, like Meryl Streep.
+- Let's put it this way: I don't have a good work ethic. I have a real casual relationship with hours. I don't understand why, in entertainment, the hours are as long as they are. It seems like everything takes forever, and no one can tell you why, exactly.
+- I think I failed miserably on NewsRadio. I was very nervous because of the caliber of the cast - especially Dave Foley - so I think I did a terrible job.
+- I would say just in general, in life, I'm more willing to be animated as a person, and so obviously onstage as well.
+- I would prefer to be well-liked in any and all situations.
+- Tina Fey is part of a generation of women who have changed the face of comedy at 'Second City,' 'SNL,' in sitcoms and in film.
+- I have yet to meet very many people in the press who are really, truly interested in writing a good story or getting at the truth. Most press people, when they come into an article, have an angle that they want already, so they need points to support that angle, whatever the angle may be.
+- When I see the American flag, I go, 'Oh my God, you're insulting me.'
+- I actually was class clown, but I don't know how that happened because I've never been considered an outwardly funny person-as the people in this room will attest.
+- Iraq is a manufactured conflict for the sake of geopolitical dominance in the area.
+- I don't think Hollywood was trying to do anything with me. In fact, they lost interest pretty quick.
+- I do not enjoy when people don't like me.
+- Also, as I've gotten older and more mature, I've become much more comfortable in my own skin. After 25 years of doing stand-up, that's reflected onstage.
+- I'm a walker. I enjoy walking, which I think psychologically expresses my feelings of wanting liberation without exerting myself too much.
+- I don't have a good work ethic. I have a real casual relationship with hours.
+- I don't really have funny things to say about politics. I wish I did, but I don't.
+- I guess intractable right-wing ideologues are my mortal enemy.
+- You know, I've had Botox. The woman who does it is very good, obviously. Very conservative.
+- I remember the old Times Square from when I was younger, and there was a seedy thrill to it. Some of that is gone, which I have a little bit of nostalgia for.
+- My dream would be to be on a show that shoots in New York, because I live here, and then I could walk to work.
+- I'm grateful for any opportunity to act.
+- I'm a sucker for any guy with an accent with any kind.
+- I can do most anything and not have a problem with it. The only time I have negative attention is when I run naked through the streets brandishing a handgun.
+- I am not a person that is particularly tethered to fashion, which I think is obvious to anyone who's seen me.
+- Nobody ever starts out to make a mediocre, commercial film. You always think it's going to be something. And then, once you're done with your shooting, you have no control. You're just done, as an actor.
+- TV, it's a director's medium, and they wanna make it look interesting. To be rehearsing mostly for the sake of where you're standing so they can do the lighting, that's what I don't like.
+- I was thrilled to work opposite Carl Reiner and Robert De Niro. Mr. Reiner was very chatty and delightful, but I learned that if you want Robert De Niro to like you, don't speak at all, and he'll be friendly to you.
+- I guess I just prefer to see the dark side of things. The glass is always half-empty. And cracked. And I just cut my lip on it. And chipped a tooth.
+- I say at this point, for different reasons, Bush and Hussein are both very threatening to world peace and to deny that is to be incredibly naive.
+- I don't understand why, in entertainment, the hours are as long as they are. It seems like everything takes forever, and no one can tell you why exactly.
+- For my stand-up, I always have my notebook with me and if something strikes me, I'll write it down.
+- The world would be better off with multiple superpowers. When Communist USSR was a superpower, the world was better off.
+- I actually was class clown, but I don't know how that happened because I've never been considered an outwardly funny person.
+- I don't really have a theatre background at all.
+- To me, there is no greater act of courage than being the one who kisses first.
+- Let's be very honest about what this is about. It's not about bashing Democrats, it's not about taxes, they have no idea what the Boston tea party was about, they don't know their history at all. This is about hating a black man in the White House. This is racism straight up.
+- Is being an idiot like being high all the time?
+- When Communist U.S.S.R. was a superpower, the world was better off. The right-wing media is trying to marginalize the peace movement.
+- I absolutely realize that a celebrity spokesperson is not ideal.

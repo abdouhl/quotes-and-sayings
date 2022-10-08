@@ -1,0 +1,71 @@
++++
+author = "Misha Green"
+title = "Misha Green Quotes"
+quotes_len = "65"
+description = "the best 65 Misha Green Quotes"
++++
+- I love monsters.
+- Everybody wants to watch the underdog win.
+- When I read Matt Ruff's book, that was my first encounter with learning about sundown towns, and I was like 'What?' Like, you can't make this up. If I wrote this horror movie talking about sundown towns where you can't be black after dark in America, people be like, 'OK, we get the metaphor,' and it's like, no, that's real. It's not a metaphor.
+- We're coming to see the revolution. And the revolution isn't always happy. It's not always pretty. But it's always satisfying.
+- What's so interesting is taking kind of all these horror tropes and really finding black history and American history to layer on top of it.
+- When I first read 'Lovecraft Country' I knew it had the potential to be unlike anything else on television.
+- I wanna do mystery, I wanna do sci-fi, I wanna do horror, and I wanna do all of those things.
+- If your art is speaking to the moment, that's all you can hope for.
+- I have read H.P. Lovecraft, and I understand why he has influenced so much of horror writing. But because of his history, I wasn't a huge fan.
+- The story of the Underground Railroad is the story of American heroes, and who doesn't want to hear a story about American heroes?
+- It's hard for me to say what viewers will take from a thing because I try not to think about that when I'm making it.
+- I'm a huge history buff, so I just love to research, and I'm also slightly lazy.
+- It's not easy to be a hero.
+- Unlike a lot of people, I'm not afraid of the unknown. It intrigues me.
+- I do think that Lovecraft is very influential to the horror genre, but I also didn't want to ignore the fact that he's a major racist.
+- How do you make sure that you stand your ground and you find your place in the world, even if that place is not the place everyone else tells you it's supposed to be? For me, TV is character-driven and those are the types of characters I want to watch.
+- I just wanna keep making stuff that - in a very selfish way - I find interesting.
+- That's what the best art does, it starts the conversation. What you may see in a scene or a line isn't what I might see, but that conversation we have, that's how we move forward.
+- I was familiar with Lovecraft, I also was familiar with his history as a person. So I had read his stories but I wasn't bananas like I think that a lot of people get bananas. I was like, they're good and I can definitely see the influences - but I can definitely read them and see the parts where you're being racist right there in your own stories.
+- One of the things I love so much about horror is the way it uses surprise, and when I write, it's about: What have we not seen before? What's going to surprise us? If we're not going beyond, taking that challenge, I get kind of bored.
+- The horror genre has long been used to uncover the dark underbelly of things.
+- There's no limits other than my imagination, which is fantastic.
+- In horror, there's a level of anxiety that your life can be taken at any moment. That's the Black experience.
+- One of the reasons I love horror so much is - when it's done well - you can keep peeling away the layers and see something new every time.
+- Oppression is not limited to people of color, but if you feel guilty that's something you should confront.
+- For a white writer not to be able to step into the shoes of people of color confuses me. That should be the default - many people of color have to step into the shoes of white people. Women have to step into the shoes of men.
+- It's no secret - I've said this before - people have mistaken me for a P.A. on the set. On my own set.
+- I was working at Talesai, which is a Thai restaurant on Sunset. I actually worked there through selling my first script.
+- Music has this ability to bridge time. You can hear a song from the 1920s and still be like, 'Oh, that's it. That's the feeling I have right now.'
+- On 'Underground,' we had used contemporary music to pull you into the present and not just look at it as a portrait on the wall and in the past.
+- I don't want to say you should censor yourselves, but the storyteller should be able to defend why a narrative needed to shift that way or should only be told this way.
+- I mean, you can't help but imagine it a little bit... like, 'What would I do with a Black Canary show?' It'd be exciting, I know that.
+- When people walk into our casting room, we do think about what you do outside of being an actor.
+- Horror is my favorite genre, but it works best for me when it's a metaphor on top of something we can all relate to.
+- During the Civil War, the Underground Railroad became a spy network, so we could still have fresh stories for these characters years into the future, with desperate people still doing desperate things.
+- In an homage, you always want to subvert it and have fresh new takes. You don't want the audience to say, 'Oh they just did 'The Amityville Horror' there,' you always want to add something new.
+- For me, a theme that's always circling around in my head - which is why I love the horror genre - is what we're ready to do for metaphorical and physical survival.
+- As an artist, you hope you're speaking to the times, and the times are definitely speaking to you. There's no way to avoid that.
+- The Underground Railroad was the first integrated civil rights movement. And it's a great example of when we work together, what we can go against. Which is 600 miles of crazy terrain being chased by slave catchers to get people to be what they should be in the first case - which is free.
+- I was like, 'Oh, let's do a show about the Underground Railroad.' I never come up with great titles, and I thought, 'Underground' is a fantastic title. I got really excited.
+- 'Lovecraft Country' is reclaiming all these pulp genres for people of color.
+- When you have people from different parts of the world coming together, it just makes it so much richer.
+- It's easy to let ourselves off the hook and say, 'Oh, I would never own slaves.' Because this is in the DNA of this country, like we saw in Ava DuVernay's film '13th.' The cycle keeps repeating itself.
+- I think that's what we like to explore and see on TV these days especially in long form, is complicated people who have to make tough decisions.
+- For me, I feel like horror space has always been a space of the other, even when it's not people of color or black people. That has always drawn me to it, and I've been a big fan.
+- I'm not a very religious person.
+- 'Get Out' definitely brought it to the mainstream, but you can look back at the original 'Night of the Living Dead' and that's definitely a commentary on racism.
+- We usually center our narratives that come out of Hollywood from a white male center.
+- Sometimes you don't find out why you needed to tell a story until you're telling it.
+- If the actors aren't reacting the way people would react, that's where you step into disbelief.
+- The casting process starts off really scary, especially when you're trying to find a Harriet Tubman.
+- From the start I was a kid who read 'Goosebumps', and that led me to Stephen King, and then I saw 'Aliens,' and 'Night of the Living Dead,' the original. And with 'Night of the Living Dead' I was like, 'Oh my god, there's a black person who's the main character. Does anybody see that?'
+- You know, being an 'other' in this world, you're walking around in a horror movie at all times, you're always on edge and wondering when the monster is going to jump out and get you. I feel like that's the experience of African-Americans and queer people in America.
+- You can't keep letting people live their happy little lives in oblivion. To move forward they have to be uncomfortable.
+- I think that's when I get excited in the writers' room - when people are yelling back and forth at each other.
+- In 'Underground,' you have to write for everyone, even the bad guys. People need to laugh and love and have voices and do bad things. Even slave owners need to be people.
+- Stephen King's 'It' is my favorite book of all time. I was that kid that would come to the library and be like: 'There's more Stephen King? Great.'
+- The story of the Underground Railroad is a thriller. These are people who are basically in a heist movie, and it's the most precious cargo ever, your life. You're fighting for your freedom.
+- I got a dollhouse when I was six, and my sister would always say, 'You realize you're just talking to yourself. What are you doing?' That kind of opened up this creative need to tell stories.
+- When you have 10 people in a room, you're always able to come up with new ideas.
+- I generally don't think of prospective actors when I write.
+- The Underground Railroad was a spy network for the North and that story has never been told.
+- I think, because you look around in Hollywood, and there are no 'me's. There's nobody that's as young as me, as black as me or as feminine as me. I think that's the problem. Representation matters.
+- I like to hear conversations that are debates.
+- Aisha Hinds wasn't in my life one day, and now suddenly I see her every day. I'm like 'You're amazing. What are you doing right now? I have to see you, I'm coming over!'

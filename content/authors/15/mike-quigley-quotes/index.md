@@ -1,0 +1,141 @@
++++
+author = "Mike Quigley"
+title = "Mike Quigley Quotes"
+quotes_len = "135"
+description = "the best 135 Mike Quigley Quotes"
++++
+- As the largest contributor to the United Nations and funder of international family planning, the U.S. is in a unique position to continue to lead the global agenda and place reproductive health at its core.
+- I come from a state where four governors have gone to jail since I've been alive. Two of my last four predecessors in this seat went to jail or are going to jail.
+- The policies we debate and enact in Congress have a real impact on people across the country. Climate change, immigration, economic inequality - each of these issues have become hot button, partisan topics, but support or opposition on these pressing issues shouldn't come down to party.
+- Honest to goodness, Brian Campbell, he was holding the Cup, and there was no one around for a minute. He says, 'Hold this for a second.' So he hands it to me - one of the best moments of my life.
+- The real cost of corruption in government, whether it is local, state, or federal, is a loss of the public trust.
+- We should be growing and make ourselves, as a state and a nation, more competitive. India, China and these other countries are not waiting for us.
+- Growing up during the Cold War, I remember the seemingly imminent threat of nuclear war. In primary school we were taught to 'duck-and-cover' for protection. But even as children hiding under wooden desks, we recognized the inadequacies of this strategy.
+- I am committed to working towards a more transparent, accountable, and ethical federal government worthy of the public's trust.
+- A Supreme Court ruling is supposed to provide clarity to contentious legal issues, but in the case of reproductive rights, it was just the beginning of a long, heated, and grueling debate.
+- Immigration is not about visa numbers or building a fence. It is about reclaiming our roots as a nation of immigrants and a refuge for those who have been cast aside.
+- Unions have long championed measures to reduce social and economic inequality, and efforts to weaken the labor movement at both the state and federal level have successfully stalled any progress.
+- If nothing else, the cyber attacks that occurred during the 2016 presidential election have laid bare the very real vulnerabilities that exist across our government and the private sector. Imagine the harm that could be done if our enemies ever hack into the Department of Defense or Homeland Security.
+- I learned that Chicago lunches are terrible. If I was a Chicago student, I would ask my mom to pack a lunch.
+- Anytime a member of Congress wants to travel abroad - which we do from time to time as part of our official duties - we are required to check with the House Committee on Ethics as to whether the trip follows the ethics rules by which federally elected officials are bound. Not so with Supreme Court justices.
+- The fact that Turkey, the U.S., and Russia and other countries are really interested in Cyprus because of its strategic location... the fact that Russians launder their money there to avoid sanctions, and the fact that key U.S. and Russia players were there - all make it really important for the Russia investigation.
+- In my home district, exports support more than 100,000 jobs. Imagine how many more jobs we can create by breaking down the barriers that prevent Chicago-made goods and services from entering new markets.
+- In Chicago, we have a century-old transit system that desperately needs updates to keep up with increased capacity.
+- Once you've stared death in the face, every day is a good day.
+- You could make a case for job creation or education, police on the street, but none of those things can happen unless we got our financial house in order.
+- This is a global economy. If you're not at the bargaining table, if you don't get an agreement, someone else does.
+- We must not let politicians who believe they are above the Constitution interfere with the personal health decisions of women. It is the job of a woman, not a politician, to make informed decisions about her own pregnancy.
+- I like to take out the recycling because I actually feel like I'm doing something.
+- Inhumane treatment of the undocumented cannot be rewarded with repeated budget increases. It goes against our country's most fundamental values and cannot continue. We must cut I.C.E.s budgets until these concerns are addressed.
+- Forty-two thousand people is an attractive target for people who want to hurt us. And a ballpark that's about 6 feet, at one point, from the street is as big a target as any we can imagine.
+- Denial of contraception to women without the financial means to afford it could cause substantial economic burdens, and even greater burdens if the lack of contraception results in an unintended pregnancy.
+- Only in Chicago do they care more about who the mayor is than who's president.
+- If I wanted to win all my fights, I would be a Yankee fan. I'm a Cub fan.
+- Let's face it: when it comes to denying access to abortion care and reproductive rights, especially for low-income women with limited resources, there's no limit to how far some are willing to go.
+- Americans donate blood every day - on high school and college campuses during blood drives, in workplaces after a coworker falls ill, and in hospitals as loved ones prepare for surgery.
+- By working together to keep health at the center of our focus, as well as the national conversation, we can create the safe communities we all want and deserve.
+- When they talk about my job being important, I say, 'The important jobs are the ones that you'd notice if you left for a week.'
+- In many cases, here we are, putting out reports that we're spending $100 million a year on, and we're telling the public, 'Oh, you don't have access to them.'
+- I'm thinking of trying to talk Jonathan Toews into running for Congress. We could use him.
+- Without the U.S. leading the way in trade negotiations, we likely will see irreversible damage to our environment and widespread abuse of labor and human rights, all while we lose out on the opportunity to expand our economy and create jobs.
+- Despite its challenges, globalization has led to one of the most peaceful and productive times in world history.
+- My outspoken positions haven't always been popular in the halls of Congress, but they have been rooted in what I believed was right and necessary.
+- For decades, allies have counted on the U.S. to step up to the plate to work with them to protect the shared values we hold dear. As we face numerous international challenges, both old and new, we need to put more faith and investment in our international and diplomatic institutions, not weaken them.
+- I get lobbied by governments, schools, nurses, charities. It's not all a bad thing.
+- Illinois and Chicago have shown they can compete on the world stage, and we will continue to answer the challenge.
+- We need to replace hyperbole with a reasonable, informed discussion about how to reinvent the federal budget with more transparency and better accountability.
+- I've visited Lincoln Park Zoo more times than I can count because I believe the more the public learns about our animals, plants and environment, the better equipped we are to play a leading role in protecting our planet.
+- Wrigley Field was built and designed at a time when people got to the ballpark by trolley, train, and horse cart.
+- I was the last person to announce I was running for Congress in a big district, and I still won.
+- We can be just as safe with a smaller, more efficient nuclear arsenal at less cost.
+- The modern labor movement that began around the mid-19th century has given us many of the basic working rights that we now take for granted.
+- I think it can be very safe to go to O'Hare and Wrigley and Sox park and Soldier Field, but you have to deal with some reality. Just because a threat is not specific and verifiable doesn't mean nearly what it used to mean, in terms of you being able to sleep well at night.
+- On Capitol Hill and in state houses across the country, anti-women's health politicians continue to make it clear that they will stop at nothing to end access to a safe, legal abortion.
+- One hundred and fifty years after Lincoln's Gettysburg Address, equality for many Americans remains elusive.
+- From bank accounts to financial systems, power grids to air traffic controls - our most critical infrastructure remain attractive cyber targets, and if they are ever compromised, the effects could be devastating.
+- I've seen it with my own eyes: When government takes money from the poor and the middle class, everyone suffers.
+- Ever since I arrived in Washington in April 2009, I have been fighting for more transparency and accountability in government.
+- In Chicago in 2000, the Cure Violence health approach saw a 67 percent decline in shootings and killings, which soon replicated to 70 communities nationwide with multiple independent evaluations from world-renowned institutions, such as the Johns Hopkins Bloomberg School of Public Health.
+- I taught policy and politics for seven years at a university. I told my students lobbyists are not a bad thing; they're absolutely vital.
+- There is such a thing as commonsense middle-ground gun reform, and most gun owners support it.
+- Whether I'm reading a national publication or one of my local Chicago newspapers, I don't need to turn too many pages before I stumble upon another scandal. Not only do ethics violations deteriorate the public trust, but they also disrupt and undermine legitimate debate and policy.
+- We defeated communism in part by showing the world that a commitment to democracy and expanding economic opportunity makes people's lives better and nations more secure, meaning our commitments overseas also makes us stronger and safer here at home.
+- I introduced the Transparency in Government Act, a multi-faceted transparency bill that would bring unprecedented access and accountability to the federal government.
+- We know that trade doesn't just help Wall Street or even just Main Street; it also helps businesses on the side streets, such as Elston Avenue in my home district.
+- Government influences your life every day. If there's a war, they're not drafting guys my age.
+- Cyprus has a reputation as a laundromat for the Russians who are trying to avoid sanctions.
+- In the end, the public has the right to know about any undertakings top public officials engage in that may influence how they conduct the people's business.
+- Racial politics in Chicago has a long history of being intertwined with the mayor's race, but I'd like to think we're past much of that.
+- As the father of two daughters, the ongoing struggle for women's equality is very personal for me. That's why it has been an honor during my time in Congress to support women's rights by advocating for reproductive rights, equal pay, access to paid maternity leave and quality child care.
+- It should not take award-winning investigators to find out how this government operates.
+- Instead of focusing on attacking unions and the labor movement, we need to find ways to strengthen and empower workers so we can put more money in the pockets of middle class families.
+- Passionately defending one's principles is crucial. Representing your district is fundamental. But refusing to entertain the common ground - with no other cost but giving the other guy a political 'win' - is a disservice.
+- Democracy is not a spectator sport.
+- Our Founding Fathers drafted the Bill of Rights to ensure that We the People could determine how best to protect our communities.
+- Everything is connected, so you can't just live in a Trumpian world and be an isolationist when you're managing government by congressional district or by city. The mentality that you can cut off one area to punish a policy just doesn't work in the real world... it's cutting off your nose to spite your face.
+- In order to maintain public trust in government, elected officials must answer for what they do and say; this includes 140-character tweets.
+- When you have a high-volume magazine or an assault weapon, you're not hunting deer or protecting your home; you're out to hunt people.
+- While everyone is entitled to a little vacation now and then, America's top legal officers should adhere to basic measures to increase accountability and restore the public's trust in government.
+- President Trump's frequent, unfiltered use of his personal Twitter account as a means of official communication is unprecedented. If the President is going to take to social media to make sudden public policy proclamations, we must ensure that these statements are documented and preserved for future reference.
+- One of the things we have to understand is that federal transportation dollars require a local match. If that money isn't there, that money goes to another state.
+- President Trump's executive order creating a Muslim ban undermines the foundational ideals of the United States, a nation founded by immigrants.
+- Just the circumstances of being in D.C., people give you books, and there are issues you want to learn more about, so you are tearing into as many as you can.
+- A lot of the O'Hare Modernization Plan may have been a mistake.
+- The Russians hacked into the Illinois State Board of Elections. They got into the database.
+- I'm a longtime believer in the old adage that sunlight is the best disinfectant, particularly in politics.
+- Lincoln's address at Gettysburg - 272 words dedicating a cemetery at the site of one of the Civil War's bloodiest battles - has been called by scholars the source of all modern political prose.
+- There's a world to save. Don't let anybody tell you you can't change the world. You can, and you have a moral responsibility to try.
+- Congress must take some thoughtful and targeted steps towards long-term solvency in the Social Security program. One such step is to eliminate the cap on income that is taxed for Social Security.
+- I do believe that the majority of elected officials worked very hard and their heart is in the right place.
+- I think you see a clear pattern of people in the Trump campaign coordinating with Russians.
+- I have never been reimbursed at the federal level. Never want to be in a million years. To me, it's just not worth the red flag.
+- We've seen it again and again. From civil rights to women's rights to marriage rights, this country has reinvented itself in the quest to make real the transcendent values that Lincoln proclaimed in his historic address - that all men are created equal in a nation conceived in liberty.
+- Economic inequality is not about food stamps and homeless shelters. It is about being a devotee of social justice and equality.
+- As a husband and a father of two daughters, I want young women around the globe to have the same rights and opportunities as my daughters.
+- Being on the Intelligence Committee made me more of a hawk.
+- The problem in D.C. is that everything is on paper, and it's theoretical.
+- There are more kids playing hockey, and the game has become more diverse from a cultural, ethnic and geographic point of view, but we still don't have a lot of congressmen.
+- The U.S. Constitution guarantees women across this country, including my daughters, the right to choose for themselves when and how to start their families. Yet, more than forty years after Roe v. Wade, women's reproductive rights remain in jeopardy.
+- Opening up the Capitol dome and giving the public a look at the inner workings of Congress - however messy they may be - certainly won't be pretty. But trust isn't earned by showing off only your Sunday best. The dirty laundry has to be aired, too.
+- Too often, advances in civil rights or women's rights are undermined by wrong-headed legislation or weak-kneed political leadership.
+- If the U.S. fails to set the rules for global trade, then other countries with records of environmental and labor abuses, like China, will step in to fill the void.
+- Anyone who has ever asked for directions knows you need two crucial pieces of information to get good results: a starting point and a destination.
+- It's time to elevate the debate in this country and allow the public to access the same neutral, unbiased, nonpartisan information that we in Congress rely on every day.
+- With more than half of the American workforce without private pension coverage, Social Security provides economic certainty within a system that is fair, equitable, and easy to understand. You work hard, pay into the system, and the federal government makes a promise to pay back your earned benefits when you retire. It's that simple.
+- The United States did not earn its reputation as leader of the free world by standing back and allowing darker forces to prevail.
+- What America really needs is a long-term bill that makes significant investments in our transportation infrastructure and reforms the highway trust fund to ensure it remains solvent for years to come. This will require bold ideas and a bipartisan effort.
+- The fact that Russia has shown a willingness to disrupt elections and undermine institutions should come as no surprise. Just ask our allies across Europe, particularly in places like Georgia and Ukraine.
+- I don't buy that there's nothing we can do to stop criminals and the mentally ill from killing if they want to.
+- Since 1975, violence has been recognized as a public health problem, in large part to former Surgeon Generals Dr. Koop and Dr. Satcher's pioneering efforts to make the health approach a national priority. Since then, we've seen that violence can be curbed - and stopped - if we treat it as we would any other epidemic health concern.
+- We can't allow ourselves to descend down the rabbit hole of unbridled partisanship for partisan sake.
+- Technology has aided in serious advancements so that HIV detection tests now have near-perfect results. And those tests can detect HIV in the blood an average of nine to 11 days post-infection.
+- There was a time not too long ago when American seniors were too often forced to go without food, medicine, and quality healthcare. But thanks to transformative programs like Social Security, most seniors in this country are provided the opportunity to live with the stability and peace of mind they have earned and deserve.
+- We didn't build the modern country to be bike-friendly - our initial round of infrastructure was not designed to think about how to get around if you're not in a car. So we've got to be targeting resources, both nationally and locally, to how people are going to get around in the new world.
+- The FDA first began prohibiting gay and bisexual men from donating blood in the early 1980s, at the height of the AIDS crisis, when the risk from blood transfusion was just beginning to be understood. In the decades to follow, the 'lifetime ban' was left largely unchanged.
+- Empowering women by allowing them to choose when and how many children to have is not only the right thing to do, it is the smart thing to do.
+- Scaling back the U.S. fleet of 14 nuclear-armed submarines to eight would maintain a robust deterrent at sea while generating billions in savings and easing pressure on the Navy's shipbuilding budget.
+- Protection of religious freedom means considering the faiths and beliefs of everyone involved.
+- Violence of all forms is wreaking havoc in communities across the country, disproportionately impacting communities of color and shaving half a million years of life off our collective lifespan. But it doesn't have to be this way.
+- We have over 100,000 bridges in this country old enough to qualify for Medicare.
+- Because of restrictions on abortion access in their own state, many women in neighboring states are forced to travel hundreds of miles and cross state lines to seek an abortion. However, their rights should not have to depend on their zip code.
+- There is no doubt that blood must be screened in order to keep Americans safe and healthy and I am committed to working with the FDA to ensure a safe, secure blood supply, across the board. However, public policy must always be rooted in the facts, not fear.
+- Before being elected to Congress, I oversaw the Cook County Hospital System as a Cook County Commissioner for 10 years.
+- I think what we're learning with the Trump Jr. meeting is when you meet with any Russians, you're meeting with Russian intelligence. And, therefore, President Putin.
+- The people of Chicago have made it very clear that they favor sensible restrictions on gun ownership.
+- While the FAST Act is a significant bipartisan accomplishment that provides much-needed funding certainty, this modest increase in funding is hardly the bold, forward-thinking plan our country needs to rebuild our crumbling infrastructure and create a 21st-century transportation system.
+- As the leaders of this great country, I urge my fellow colleagues in the House, governors, and presidential candidates alike to hold ourselves up to a higher standard.
+- Despite the intelligence community's assessment that Russia interfered in our presidential election, President Donald Trump and Republican leadership seem wholly uninterested in examining how and why Russia targeted us - and what we must do to prevent it from happening again.
+- What I would like to do... once I take care of all my kids' student loans, is buy a red 1965 Mustang and fully restore it.
+- Just as we can no longer pretend that ducking under wooden desks will keep us safe from a nuclear bomb, we must no longer pretend that a large nuclear stockpile will protect us from the most immediate security threats the United States faces.
+- It is the duty of Congress to ensure our lead regulations are up to date and consistent with modern detection methods so that we can better protect children from the harmful consequences of exposure.
+- Climate change is not just about carbon dioxide levels and melting polar ice caps. It is about our public health and protecting our Earth for future generations.
+- Without Social Security benefits, more than 40 percent of Americans 65 years and older would live below the federal poverty line. Even more striking is that Social Security is the only source of retirement income for almost a quarter of elderly beneficiaries.
+- As a policy maker, I have to stand up for the rights of all my constituents, regardless of their faith.
+- Ironically enough, why I got into politics is because I came to the conclusion that if you wanted to save the world, which in my mind was through the environment, those elected officials seemed to be the ones who made a lot of the important decisions, if not the most important decisions.
+- One of the cornerstones of our democracy is the peaceful transition of power.
+- During my time in Washington, I have become increasingly frustrated by the power held by the gun lobby.
+- As Americans, it is always important to remember where we once were and how far we have come.
+- I spent 10 years fighting for reform in Cook County, and I didn't change my DNA when I got to Washington.
+- From high school, you can see my Sierra Club card - I've been a member since 1979. That gives you an indication of early interest.
+- Everyone without extraordinary research skills ought to be able to know what is happening inside the government, how it operates, where their tax dollars are going. Then they can make better decisions in the electoral process.
+- Since 2001, I've done what every elected official should be doing in government right now. My staff and I took a look at the books, thought outside the box and proposed reforms.

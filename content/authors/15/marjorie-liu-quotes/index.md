@@ -1,0 +1,78 @@
++++
+author = "Marjorie Liu"
+title = "Marjorie Liu Quotes"
+quotes_len = "72"
+description = "the best 72 Marjorie Liu Quotes"
++++
+- I was always into fantasy characters, stories of magic, but after Red Sonja, I became obsessed with the persona, the image, of the warrior woman - the sword-wielding, defiant, fearless woman.
+- As women, we have to deal with constant threats of violence. And it's in our media and fiction, too. So we internalize it.
+- Individual writers can certainly make a difference, but they are working within a system, an institution, that still holds tremendous power over whose voices are heard and whose voices are rewarded.
+- It's very scary to become someone new, to take that path less followed.
+- We all know that I love writing Gambit.
+- I don't want it to be a mission, but of course I always love to see more diversity in comics. I always love to see more women.
+- In my solo series, I feel like I've often dealt with groups of people.
+- If men disappeared tomorrow, we'd still be having the abortion debate. If men disappeared tomorrow, there would still be racism and conflicts over religion.
+- I'm a writer and a feminist of color, and I've written complex, powerful women for my entire career. I'm just one voice, but there are many others like me.
+- Comics writing is for your artist. It's not for the general reader; it's for the artist. So I love writing scripts for artists.
+- I don't want to give people the wrong advice to follow their dreams no matter what, because it's not fun to be a starving artist. But on the other hand, life is short, and if you are burning with a passion to do something, then do it. Work hard, study hard at it, and don't give up.
+- At his heart, Gambit is a good man who believes in taking care of his friends, and his friends are what's most important to him. People are his home. He will do anything for those who matter to him.
+- To all the young kids of color - and not so young - people who want to use their voices, who are thinking, 'This seems difficult because I don't see myself out there,' I tell you, you must be persistent because we need you. We need you so, so badly.
+- It's great we have a female Thor. It's great we have a black Captain America. But those are just optics; it's optics of change... Unless you have the structural diversity, the structural change behind the scenes - more women, more people of color actually calling the shots and editing these books - those optics won't last.
+- Timing is irrelevant when it comes to desire.
+- Muscles are fleeting. Bodies give out. But integrity, honor? The confidence to be oneself, to follow one's heart? The compassionate drive to help others, even at great risk? That's strength.
+- I got into comics because I wrote an 'X-Men' novel for Pocket Books, and I introduced myself to the head of recruitment at Marvel. I'd heard through the grapevine they liked the book, so that gave me the courage to go up to them and be like, 'Hey, if you ever need a writer, here I am.'
+- I wanted to be her; I wanted to write her. Red Sonja became anchored in my imagination like a mountain.
+- As a writer, I find that a good way of evolving a character is through an examination of his or her defining relationships - and what's more defining than a relationship with someone you love?
+- I don't write fight scenes in comics all that well. I think they're a waste of space unless they can move a story forward in some compelling fashion. You've only got twenty-two pages to work with. Why throw that away on a set of meaningless punches?
+- I had my dreams, and even though everyone told me that they weren't practical, I knew in my heart that this is what I had to do. Even if it ended up being a failure, I had to make the attempt.
+- We've been conditioned to be incredibly avoidant. 'I'm afraid I'll be called a racist if I say something wrong,' is the familiar retort. Well, okay, that's scary and difficult, but staying silent, avoiding the issue, doesn't mean that racism goes away.
+- Take 'Ex Machina.' Everyone said it was one of the great feminist works of science fiction. But what I found disappointing is that everything about the main female character is defined by men.
+- People either fall into two camps, where they're pro-fanfic, or they're anti-fanfic. I would not have had the skills to write and publish my first novel if I hadn't been writing fanfic.
+- We imagine 'the end' as a world-devastating event, but every time there's a terrible earthquake, a tsunami, an outbreak of disease - that's apocalyptic, on a micro-scale.
+- I don't think of myself as having any freedom when it comes to how 'Monstress' is structured and how the story is going because a comic book has to be even more tightly structured than a novel, because there is no room for mistakes. Once the art is done, the art is done.
+- We're not accustomed to giving women the space to express the full range of emotions and flaws that men are permitted. Anger and aggressiveness aren't part of the scale of what is acceptable behavior in women, whereas men - in reality and in fiction - are allowed a much fuller range of emotion.
+- Every single girl in the world has had to fight to have herself heard, to have space, and to have a self in societies that try their best to deny them all three.
+- I'd like to go back in time and haunt Robert Louis Stevenson during his years in the South Pacific.
+- Growing up as Chinese-American, as someone who experienced racism, questions of 'otherness' are always at the forefront of my mind.
+- As a writer - and a romance novelist, no less - I've always found it a bit odd when characters in comic books remain in relationship limbo for years at a time.
+- 'Monstress' has been hard because I want to keep writing longer, but I can't.
+- I love writing novels, but there is something deeply invigorating about the comic-book medium.
+- My solo series, in some ways, have been rarely truly solo.
+- If you tell people what everything is before they have a chance to experience it, then I feel like it's a much different experience.
+- I think we worry way too much about where books should fit inside genres. In a romance, the hero and heroine are on a journey together, and no matter how awful it gets, by the end of the book they'll be in love, with the probability of a happy ending.
+- Every single girl, whether we want to recognize it or not, is a warrior.
+- We like to imagine that women would do a better job of ruling the world - and I'm one of those optimists - but women aren't a superior kind of life form just because of our gender. We're awesome but not perfect. We're human. Just like men.
+- I feel like the character of Han Solo is irreverent. A very serious, precious story about Han Solo would not be that enjoyable.
+- I think that comic books have appealed to female readers for years.
+- Superheroes are the best of us. Never mind all those powers or the crazy costumes. The heart of a superhero is meant to inspire.
+- The thing about Gambit is that he's a man who knows how to adapt to survive. He plays things by ear, depending on the situation, and never feels obligated to follow the rules, because the only rules that matter are his own sense of honor. Ultimately, that sense of honor includes 'doing no harm' - at least, not to the innocent.
+- I could be shooting myself in the foot, but in some ways, I feel I've said all I've needed to say when to comes to, say, the 'X-Men.' I think I've hit the bright points, I think I've hit what I wanted to hit, and I can be happy moving on doing other things.
+- A novel is 400 pages; it's an endurance race. There's no artist, so I have to describe everything. It's all prose. Whereas with comics, I can rely on the artist. It's really wonderful to have that collaboration and to not always feel the burden of describing everything myself and also just to have someone who can paint the world.
+- I can't control what a reader takes from a story.
+- As creators and as readers, we need to always be pushing it - by looking for the books, looking for the artists and people and stories to support what we feel to be a better representation of all women. Of real women.
+- Because there are almost no men in 'Monstress,' we're focused completely on women. It's removed from traditional structures.
+- I was going to be a lawyer, and I had studied hard, but then it suddenly occurred to me in a very deep, profound way that I didn't want to keep practicing law for the rest of my life.
+- I don't think X-23's past is the most interesting thing about her, but it's not like she can escape it, either.
+- My dad is Chinese, and my mom is a white American, and they married only ten years after the United States Supreme Court ruled that it was illegal to ban mixed marriages. Imagine that. Marriages between people of different races - now common and accepted - were illegal in many states up until the late Sixties.
+- Freedom to tell any story I want, with all the imaginary tools of my trade, is why I love writing novels. I love taking an idea, fleshing it out into a new world - and going on adventures with characters who day-dream themselves into existence and take on lives of their own.
+- Word of mouth is the saving grace of us all. If you love something and you think your friend will love it, just talk about it.
+- Finding the voice of a character, no matter who it is - from Black Widow to Han Solo - is the first and most important hurdle for me to cross in any work of fiction.
+- I love writing prose. I really love writing prose. It's very pleasurable for me.
+- Marriage isn't the end-point of a relationship. It's just a stepping stone, one aspect of a long-term evolution between two people who have, for whatever reason, decided to take a leap of faith and say, 'Well, hey, this is a person who I want to try with for the rest of my life.' Which is not a guarantee of perfection - far from it.
+- Male heroes are entitled to particular privileges, and why not the women as well?
+- I think when you look at the diversity of the readership, all the different people who love comics, I want comics to reflect the real world, and I think Marvel does a good job of trying to do that, but I don't think there's ever an end point when it comes to creating diversity and creating stories that people can relate to.
+- A dark, fantastic adventure set in an alternate 1900s Asia, 'Monstress' is buried deep in the supernatural. It's a story I've wanted to tell for a long time - it just took me awhile to put all the pieces together.
+- I had never been a comic book person before, really, because I had no access to them. Once I had access, I thought that these are just another avenue for telling stories and delving into the imagination.
+- Most of the female 'superhero' role models of my childhood came from novels, and they rarely had powers. Take Dorothy, for example, from 'The Wizard of Oz;' or Laura Ingalls and her sisters in the 'Little House on the Prairie' novels.
+- Part of the reason why my folks - why any immigrant family - wants their kids to go into law or medicine is because there's the promise of reliable work. That's a powerful idea that got hammered into my head growing up: Be this thing, or else you'll starve.
+- I love writing comics too much.
+- Han Solo has always been - and I think for a lot of people, too - this iconic character who's the absolute definition of cool.
+- There are many different ways to express intimacy - a look, a touch - and I think it enriches the characters and stories when you create those moments and then build on them.
+- The greatest enemy one ever faces is one's own self.
+- I love writing romance, along with science fiction and fantasy - and my books usually meld all three to some degree.
+- Women have been writing strong women characters for a long time - hello, Maxine Hong Kingston! - it's just taken mainstream comics a really long while to catch up.
+- When I'm writing comics, I'm also visualizing how the story will look on the page - not even always art-wise, but panel-wise, like how a moment will be enhanced dramatically by simply turning a page and getting a reveal. It requires thinking about story in a way I never had to consider when I was writing prose.
+- Sana Takeda is a genius. It's really that simple. Her vision and sense of story and beauty is beyond compare. I loved working with her on 'X-23.' I knew, though, that she could do much more beyond the constraints of a traditional superhero story.
+- I didn't know how to write comics. I had to teach myself.
+- When I first came to comics, it was, like, dudes. The feeling, the air, the presence is overwhelmingly male.
+- I'm really bothered by questions of humanity, questions of war, questions of slavery.

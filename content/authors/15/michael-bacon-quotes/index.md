@@ -1,0 +1,19 @@
++++
+author = "Michael Bacon"
+title = "Michael Bacon Quotes"
+quotes_len = "13"
+description = "the best 13 Michael Bacon Quotes"
++++
+- Even though, theoretically, being a composer and being a songwriter are the same thing, in my brain, they are completely different. When I am in my composing mode, I go into my studio and turn that part of my brain on like a faucet. And when I finish, I turn it off. But with songwriting, that process is much more elusive.
+- Music is completely not reality. There's nothing about music that has any meaning at all. A lot of people disagree with that, but it's basically true. You can listen to a piece of music, and fifteen people will give you fifteen answers of what it's about.
+- From an early age, my intuition was that I would be a musician.
+- I was a staff songwriter for Combine Music Publishing in Nashville for seven years. I'd sit around with a groups of friends with a Yamaha piano and a tape recorder and crank out songs.
+- I love the name 'Stella McCartney.' It's a beautiful name the way it rolls off the tongue. A couple of years ago, I wrote a cello concerto and used that as the basis for the rhythmic and melodic structure of the main motif of the cello part.
+- When I first started writing songs, I was probably about ten or twelve years old, and the first thing you think as a songwriter is, 'Can this be a hit? Can this come out, and people are going to hear the song and like the song, and then they're going to like you, and you'll get famous and rich?' That hasn't changed a bit.
+- Part of being in a band is getting better.
+- I remember when I first got my cello when I was 8 years old. I remember the room it was in and what the lacquer smelled like. Instruments have just been something very special to me.
+- A lot of times, people assume that I write all the songs: that I arrange them and I stick Kevin up there as kind of a puppet or something. It's absolutely not that way. In fact, he writes probably 60 percent of the songs, and I write probably 40 percent.
+- We have a camp up in the Adirondacks with no electricity, and I find that it's one of the most fertile places for me as far as songwriting because there isn't much to do.
+- I've always had this theory that if you're good at something, you should do it.
+- I think the thing that bothers me is that there's a component of the Internet where people can write really nasty things anonymously.
+- My whole life, I've always had one foot in the classical world and one foot in the rock, pop, and folk world.

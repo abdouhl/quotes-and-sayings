@@ -1,0 +1,56 @@
++++
+author = "Naby Keita"
+title = "Naby Keita Quotes"
+quotes_len = "50"
+description = "the best 50 Naby Keita Quotes"
++++
+- I love Leipzig, and I will never forget this city.
+- I joined RB because it is an exciting club with great potential.
+- As a midfielder, when you have sealed things up at the back, my job is to provide the ammunition for the strikers and forwards, to create opportunities for them.
+- I will always be thankful for the education I had at Salzburg. I needed to learn about the tactics of football, how the game worked, and that is what the club gave me, so I was ready for the next level when I got to Leipzig.
+- Sadio was so important for me when I started at Salzburg, and this is why I say he is my big brother.
+- I want to become the best player in the world.
+- Since I signed for Liverpool, my dad has spoken to me a lot about how much he loved them.
+- My only focus is on our games and my performances - they are the most important things.
+- As a kid, we used to play wearing a Liverpool shirt in the streets.
+- I'm someone who has this real winning mentality.
+- Eight is a number I always liked. It's also the number my dad wore when he played football, so it's special to me. I am aware that it's a big number here at Liverpool, and I am very excited to wear it.
+- I have a huge desire to win. That is why I am aggressive in a positive sense on the field.
+- When I was young, I told my parents, 'I promise you I'm going to play in the Champions League, and for my first match, I'll invite you to come and watch me play.' Luckily, I was able to do that, and I was very happy. It was a moment of pride.
+- I'm the kind of person who thinks that if I score eight goals in one season, my objective must be to score nine goals in the following season. That's the kind of mentality I have.
+- My father is a huge fan! As far back as I can remember, he has been talking about them. Before I even knew what Liverpool was as a kid, he was mad about them.
+- I like winning the ball back. It's something I love.
+- Jurgen Klopp is actually more active on the sidelines than some of his colleagues. For us players, this is very motivating. He gives us extra energy on the pitch through his coaching.
+- When I was small, my local team actually played in Liverpool kits.
+- I wanted to be Deco, Titi Camara, or Pascal Feindouno when I was young, and now there are kids with my name on the back of their shirts! That is such a big motivation for me, and I hope I continue to show them that, with courage and determination, they can achieve anything.
+- Nothing is easy in football; it's just about the business of working hard.
+- Firstly, I am somebody who plays in a defensive role, and we need to start with that, but then I need to bring the ball forward and help the attack.
+- I think, as a midfielder, you need to have that aggression as part of your game.
+- As kids, we played on the streets without shoes, and the game didn't stop for oncoming traffic.
+- The Premier League is different to other leagues where I have played, and everybody knows it is very tough, but I will do my best to beat my own personal records - I'm very motivated.
+- I like the colour red; it suits me!
+- I moved to Liverpool to win trophies.
+- It's been a dream of mine since I was a young boy. Even back then, I had decided that one day I would play in the Champions League.
+- I always strive for the best.
+- Salzburg improved me as a player, and I learnt so much there. I got a really tactical education.
+- I find the scouse accent a bit difficult, but I will try my best.
+- I'm someone who likes to respond to a challenge. I never give up or stop trying, even if things were a little bit more difficult at the beginning.
+- Firstly, before every game, I always speak with my mum. She really encourages me a lot. Then, once I'm out on the field, I say a little prayer for my team and for everyone on the field, both sides, so that nothing bad happens, no-one gets injured.
+- I've been told by many people that a lot of overseas players come into the Premier League, and they take time to integrate, depending on the circumstances.
+- My long-term aim has always been to play football at the highest level I possibly could for a big club. When that is in your mind, you don't give up; you constantly fight and battle to make that happen.
+- When I was young, I didn't know a lot about Liverpool, but when I was coming here, my father told me about the history of the club.
+- I've loved playing street football since I was very young.
+- I am a team player.
+- My overall favourite player would be Iniesta. For his final ball, obviously, his skill, and his ability.
+- When I used to play against Bayern, Xabi Alonso always used to give me a really hard time. He was so experienced... he made me suffer. The way he'd keep switching play just meant that you could never stop running. He was very intelligent.
+- I feel really comfortable in Leipzig.
+- I think about the team and the group always.
+- It's my dream to help Guinea reach the World Cup at least once.
+- I was determined to become a footballer, not only because I loved the game but so I could provide for my family.
+- Leipzig made me a better player.
+- When I was a child, that really was in my mind, to play for a great club like Liverpool.
+- Every game you play, you do your best.
+- I'm really scared of small dogs, dogs in general I guess.
+- I've always got a desire to win - I believe I'm a winner.
+- My dad loved Deco as a player. He started calling me Deco as a nickname around the house.
+- My first mind-set when I am out on the field is to defend well and not concede.

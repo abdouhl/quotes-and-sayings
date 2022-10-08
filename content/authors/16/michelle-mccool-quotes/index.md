@@ -1,0 +1,68 @@
++++
+author = "Michelle Mccool"
+title = "Michelle Mccool Quotes"
+quotes_len = "62"
+description = "the best 62 Michelle Mccool Quotes"
++++
+- It's hard because it doesn't matter what you do, most people still identify me as Undertaker's wife.
+- I can literally count on one and a half hands how many people in WWE treated me the same pre-Mark and post-Mark. Michelle McCool didn't change, I'm still me. There were a ton of people that found out I was dating Mark and was like, 'Oh, I better change my tune and be super nice.'
+- I kept my teaching certificate active while I was with WWE. It definitely wouldn't be something that I'd mind going back to.
+- I think the Divas Champion is the perfect combination of athleticism, beauty and brawn.
+- It's such a huge honor and compliment when someone tells me I'm their hero... but, why me?
+- It's not easy to filter out all the negative things people say and/or write about you.
+- I truly feel like Fabulous Moolah is the pioneer for women in sports-entertainment. I don't think anyone can deny her accomplishments or the road she paved for women wrestlers.
+- I would love to have a Unification Match against Mickie James.
+- I like athletes.
+- Making history is difficult, almost impossible, for those without my athletic ability and intelligence.
+- Snooki is famous for absolutely nothing.
+- When we can give back to the real heroes, that's what I find rewarding.
+- I'm just a small town girl who enjoys making people happy.
+- Don't give in to bullying or others making fun of people. Stand up for yourself. Stand up for your friends. Be that one person who is genuinely good-hearted.
+- I've been to Australia once before, and we went to Auckland, New Zealand. We were there for a few days. It was absolutely beautiful, so I'm very excited to go back there.
+- I don't talk during production meetings, people don't generally say anything.
+- I do think the women should get paid, a main event is a main event.
+- Growing up, I always said I would never go in to education. Both of my parents were teachers - my dad was also a principal and a superintendent. I just didn't want to be part of the school system.
+- The higher you climb the ladder, everyone is going to have a reason as to why you're there, why you're on TV, and they don't want to believe the fact you're in the working hard, fighting for storylines.
+- I think everybody will agree that 'Torrie Wilson' is a name that nobody - no true wrestling fan - will ever forget.
+- If I had to pick somebody I really had a crush on right now - solely based on looks alone - it would be Matthew McConaughey. He does it for me.
+- I think the whole Flawless thing backfired in my face. I'm just like, 'oh, man! We're out here calling ourselves Flawless, and being the most obnoxious characters, that even I wanted to slap myself sometimes!' Even I would get sick of watching myself on TV!
+- Fortunately, the shooting pain in my back masked the pain of my broken sternum.
+- Piggie James was the storyline that brought LayCool to fruition and really started and helped develop our characters. It was a main storyline that, at the time, started giving Divas more screen time and longer matches - we even had a huge celebration.
+- Whoever is in that ring, they are not enough for me, and they can't handle me.
+- Not only do I do things so much better than all of my fellow 'Divas,' I make being bad look so good.
+- I think one of the most consistent answers for any of the girls when they're asked 'who do you want to wrestle' is Beth Phoenix - but that was never really the case for me, as far as an opponent or dream opponent. For me, that was always Molly Holly, Lita and Awesome Kong/Kharma.
+- I actually got online and went to check my e-mail, and I always look at the top news, and I saw my name and I thought, 'There's got to be another Michelle McCool,' or 'This is a mistake,' or something!
+- I'd have to say I've been a little of both, but definitely more nice than naughty.
+- I'm not a patient person and sitting around the house waiting to get back to WWE does me no good.
+- I'm going to prove to the rest of these girls walking around, strutting their stuff, that I am the top Diva and I am here to stay.
+- Being a Diva in a man's world, you're constantly in an uphill battle; pitching ideas, trying to get TV time, trying to get in-ring time, the whole nine yards.
+- I like to think of myself as a class act, and there are very few guys that meet all of my qualifications.
+- Sure, Maryse is the Divas Champion, but I find it no coincidence that she supposedly got 'hurt' the week after she stole my title.
+- It's the all-American girl gone bad. Initially, the name callings from 6- and 7-year-olds was tough. My heart was in my stomach. But it is more fun to play someone that you are not.
+- I'm addicted to success, failure is not an option.
+- Retirement has been wonderful.
+- When I went off to college my dad would call and be like, 'hey did you watch RAW?'
+- It's a dog-eat-dog world and in a man's world, too. It's just a fight, every single week, this job.
+- It's not easy to always be yourself.
+- You just have to kind of remember that it's just a character on TV. A lot of times people just forgot that and it's easy to do.
+- Bottom line: People in our business are always going to look to find reasons to see the negative in somebody and to become resentful.
+- When Layla and I would do promos out in the arena, it was just the most-fun ever! People genuinely hate her.
+- People can say what they want to say, but at the end of the day, I can look at myself in the mirror. I know how hard I fought. I know how many storylines I pitched. I know how hard I worked in the ring.
+- That always makes it fun inside the ring when you know you can work with somebody. You can fly off the cuff while you're in there; you can improvise.
+- Love me or hate me, I hope the WWE Universe can respect that night in and night out, I've given it my all.
+- The WWE universe finally demanded that the girls get the attention that they deserve. I think women past, present, future, should forever be grateful for our super fans.
+- I keep to myself a little bit more, I have that more quiet sexiness, quiet confidence going and I think that does intrigue people.
+- You know, I thought seeing Aretha Franklin last year was amazing, and I didn't think anyone can top that. But if someone can, John Legend would be the man. In my mind, he's a legend, no pun intended.
+- I can't tell you the number of times I was one of the first people at the arenas or at TV, constantly trying to better myself. I can honestly say that my hard work paid off. My resilience paid off. My persistence paid off.
+- I'm a collegiate All-American athlete and earned a master's degree in education from Florida State University.
+- The backstabbing, the clawing, it's always there. It definitely comes up more when you're on TV a little more often.
+- Years before 'Tough Enough' came out - and I still have the papers - I filled out the entire application but never sent it in. I was like this is perfect, it's sports, I'm competitive, I could do that.
+- People are always going to say what they want to say and believe what they want to believe, but that's the bottom line.
+- I'm easily entertained, I guess.
+- I'm taking each day one day at a time, and building up my strength and endurance. It's crazy because it takes no time at all to lose everything you have and then so much time to gain it back.
+- I haven't noticed too much of a difference between Italian guys and American guys, but we're sports-entertainers so maybe they know to stand back a little!
+- Leaving was tough because it got to a point where - I was dealing with so much, mostly being Undertaker's girlfriend while I was on TV. There was even a writer who threw the papers up one day and said, 'Why don't we just call it the Michelle McCool and Undertaker show.'
+- So, I never actually had a problem with Melina and we worked a lot together. When she came to SmackDown, we worked a program together.
+- The athletic part I never struggled with. It was the promos, the talking and, being uncomfortable in front of the crowd. Especially being a 'bad guy,' having people call me names, that was hard getting used to.
+- You know what I liked about 'The Condemned?' It's Stone Cold being Stone Cold, and that's what was awesome to me.
+- I'm only naughty when I have to be.

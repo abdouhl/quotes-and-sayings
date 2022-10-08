@@ -1,0 +1,116 @@
++++
+author = "Jim Brown"
+title = "Jim Brown Quotes"
+quotes_len = "110"
+description = "the best 110 Jim Brown Quotes"
++++
+- There have been so few decent films involving Negroes that right away everybody expects every film to do everything. But when you make a flick, there are maybe two things you're trying to put into that flick. You can put the other things in another time.
+- America is a great country. It has a lot of work to do. The bottom line is it's easy to talk; it's easy to have the media pick up on something, and it's hard to have the patience to put something in place you can build on that will make sure each citizen has their equal rights.
+- Malcolm X was a man among men.
+- There is no excuse for violence. There is never a justification for anyone to impose themselves on someone else. And it will always be incorrect when it comes to a man and a woman, regardless of what might have happened. You need to be man enough to take the blow. That is always the best way. Do not put your hands on a woman.
+- Michael Jordan brings millions of dollars when he shows up in an arena. Since money is how we judge people, he's very valuable. But while that's happening, Rome is burning within the black community.
+- When I think of greatness, I think of guys like Earl Campbell and Gale Sayers and Walter Payton, and these individuals who, it's unanimous they're going to make a difference - when they're coming out of college, there's no doubt.
+- It's too bad about 'Dark of the Sun.' It was really about Tshombe. When I read the script, I thought it was going to be a political movie, and I thought we might even have a hassle. But the director simplified it to brutality and bad taste.
+- Capitalistic society teaches kids to be No. 1, but true self-esteem doesn't come from money. It doesn't come from winning the Super Bowl.
+- Richard Sherman is a creation of the media and a bright young man who has learned how to capitalize on everything, and sometimes at the expense of his other teammates.
+- Money is lonely anyway. When you got it, people always want it. You don't want to be used; sometimes you don't know where a cat is comin' from.
+- When Kennedy could not get the civil rights bill passed - and he was the big liberal - Lyndon Johnson came in and it got passed, and he was the conservative and the southerner. So sometimes in politics, to get something done, it takes a special kind of knowledge and a special kind of person, but it doesn't always follow the party lines.
+- I'm a fan of NASCAR, in a certain kind of way.
+- I was doing economic development for minorities. I was getting black folks to use their dollars to help each other.
+- The funny thing about cinema is, usually when they do a story that has African Americans in it, there always has to be a white guy who's the savior.
+- America says we are a great democratic society and other people should follow our example. Well, I say we benefited from slavery, and as a nation, we never faced that because the people in power chose not to.
+- I could never understand why they did that to Barry Sanders in Detroit. I know that's one of the reasons why he retired, because they took him out on third down and let someone else catch the ball. I thought they must be out of their mind because Barry is such a threat.
+- AI don't make a big thing out of my race. If you try to preach, people give you a little sympathy and then they want to get out of the way. So you don't preach; you tell the story.
+- I listened to my kids talk about me as a parent, and I learned about things they wished I'd done and said. And I wished that I had done more of those things.
+- No human being should be a role model. We all have flaws.
+- I'd like to make one thing very clear: Muhammad Ali loved people, and he had white friend as well as black friends - and the only thing that he hated was discrimination and racism.
+- It doesn't take science to know that when you have head-to-head collisions, there's going to be some effect.
+- I have a theory. An audience doesn't need to get wrapped up in blackness every time they see a Negro actor. And a movie doesn't have to be about race just because there's a Negro in it.
+- You have to put money in its proper perspective. The way it is positioned in the culture is like it is the most important thing. But something is missing.
+- I don't want football to not be played, but I would like the sophistication brought forth to take care of those who need to be taken care of and to take the precaution, at the sacrifice of winning, to take care of people.
+- If I couldn't have discipline, if I sit up eatin' fried chicken in bed at night, I'd just as soon be dead. I take care of myself.
+- When you think of the sacrifices our firefighters make, think about the service of soldiers in foreign lands and listen to their lives, you have to be careful that whatever you do, don't cast a shadow on what these great people do.
+- I learned a long time ago that advice is a quick trip to nowhere. It's the commitment that only you can make in yourself, the responsibility to assume control of yourself.
+- I look for good people and people that will be like-minded and help me try to do good for other human beings.
+- I'm not pro-owner or pro-player. I am pro-football. I want the game to go on. I want the game to be tough. I don't want the game to be a killer of our players.
+- Everybody does good things, but I'm talking about making major changes in the educational system that would impact an entire race. I'm talking about stopping these young gang members from killing one another. I'm talking about keeping prisons from overflowing.
+- Ultimately, a running back has to get rid of tacklers without his blockers being a part of it.
+- Nelson Mandela just died, so that says so much because it's a tremendously powerful and great man who was very sensitive. Loved all people, forgave his enemies, and showed the world how to stand up and do it the right way.
+- The truth is that politicians are basically tied to trying to get reelected, so they can't really make landmark changes.
+- A liberal will cut off your leg so he can hand you a crutch.
+- I would never try to motivate anyone to follow me. I would motivate him to follow certain principles.
+- God ain't got nothing to do with winning a damn football game.
+- I'm an American citizen. I pay my taxes. I want my equal rights. But this is my country, and consequently, I don't want to open up for ISIS or for anybody that will take away what we've already gained.
+- What I want to do is play roles as a black man, instead of playing black man's roles. You know?
+- I was an in-between size. I wasn't tall enough to be a real forward, and I probably didn't handle the ball well enough to be a point guard.
+- It is up to God to take revenge. Only God can judge. I don't have to worry about getting even with anybody or taking out any kind of aggression on anybody. Doing that is a weakness, anyway.
+- If you help disabled children, it's very appealing. If you help kids with cancer, those are the things you get credit for and those things are beautiful. But when it comes to stopping violence or really putting the time into rebuilding schools, that's just a different kind of project. It takes more than just money to do that.
+- Obama was elected by the people, and I was glad that barrier was broken down. I did, along with my wife, campaign for him in Ohio because that was a key state. If I had to say does he rate an 'A' or does he rate a 'D,' it would be very difficult. I give him a 'C.'
+- In anger-management training, they teach you never to hit a person - hit an object. That's what they teach you.
+- The essence of Ferguson is the spirit of the people, and I'm so happy to see the spirit because I haven't seen it like that since the Civil Rights Movement.
+- Money is not God, and human dignity is very important.
+- My biggest problem was to get the coaches to understand that I was a runner, and I wanted to prepare myself based upon the calisthenics I did and get myself ready. For example, I used my forearm when I ran the ball, so I didn't want to do pushups because I wanted my forearms to heal.
+- If you're an old cat around young girls, you got to have somethin' to bring to the table.
+- The so-called incorrigibles were not the way people said they were. I found a lot of character in some of these people.
+- The Jewish culture has a wonderful thing about education. It has a great thing about family; it has a great thing about unity, hard work, dedication. I would like to say the African-American community should emulate that.
+- 'The Autobiography of Malcolm X.' I've used it to demonstrate racial attitudes to people who I thought needed a better understanding of all human beings. Malcolm was not a racist. He was not looking for revenge. He realized that kindness and goodness did not come from any one kind of person.
+- I would love to have a role with the Browns. I think that's what every ex-player would like to do most of all: to be a contributor to the success of an organization that he was a player that brought a certain amount of success.
+- Nobody is going to tell me Marshawn Lynch can't run. He's strong as an ox.
+- Nobody I ever broke bread with - and I see players all the time - talked about using their head running the football. I've seen Barry Sanders and Eric Dickerson and Marcus Allen and Franco Harris, and we've all been together - we were all together at the Super Bowl - and no one talked about using their head.
+- If you want experiences to make you a better person, then you play two or three sports.
+- The NFL pension is the worst in the world of business. It's an embarrassment.
+- Twenty-seven years incarcerated, his jailer became his best friend. So if you need an example on how we should act and how we should be, then Nelson Mandela is the man to follow.
+- There's a trend toward anti-heroes now, and I think it goes back to guys like Bogart and Cagney. They seemed to have no compassion, and they were always alone.
+- Money has changed today's black athletes. Those who have the ability as African men to bring a change in a community that so desperately needs it are concentrating only on their own careers, some charities and how much money they can make.
+- I don't feel I could've played major league baseball.
+- I came from Long Island, so I had a lot of experience at the stick. I played in junior high school, then I played in high school. The technical aspect of the game was my forte. I had all that experience, then I had strength and I was in good condition.
+- Boxing is a great example of it, but in football, sometimes you're taking greater hits than boxers. When you have one man going full speed against another man, and those heads are colliding, it's just the fact of science you're going to have results.
+- I don't teach kids to be No. 1. Organizations and people that tell you you have to be No. 1; that's not it. You don't have to be No. 1. What I teach is to be as good as you can be. Use what you have and be as good as you can be. That's all you can do, anyway.
+- I like tight bodies and pretty faces. You bring in Methuselah, if she's got a tight body and a pretty face, that's all right, too.
+- Baltimore has proven themselves on the football field. We can't take that away.
+- The need to be cared for is the base of everything. In the penitentiaries, you won't hear gangbangers and criminals say, 'No, I don't want to be cared for by nobody.' When you care about them, they'll open up to you.
+- Ultimately, if you look at the game and there are two minutes left, and you have to ensure your victory, you don't want to throw the damn football. You want a runner who can run the clock out.
+- When I'm on a picture, I have two bosses - the director and the producer. My co-star is not my boss.
+- I run a program called Amer-I-Can. We've taught in prisons, schools, juvenile facilities and we teach in the community. We have the greatest record from the standpoint of dealing with grade point averages, disciplinary action and attendance in schools.
+- I know a lot of kids that if you don't know how to deal with them, you lose them. They don't come ready-made.
+- I'm stuck with being No. 32 for the Cleveland Browns. I can't do anything about that, and I don't' want to do anything about it.
+- I loved the game. We played because we loved it.
+- Money has stepped to the forefront of everything.
+- The story of Jackie Robinson is also the story of Branch Rickey. He had many reasons for doing what he did, but he stood up against his own people.
+- I am forever a Cleveland Brown.
+- Young men in my day really stepped up... These were champions for freedom, equality, and justice for all human beings, and they were educated individuals that used their education and knowledge to represent their case.
+- The power is between your ears.The power is in your heart.
+- I gave away most of my trophies, put away the plaques.
+- The social issues outside of football are not as defined as they were earlier, when integration took place and certain rights were legislated. The Civil Rights movement is over. Individuals can buy homes wherever they want, travel first class wherever they want, eat wherever they want.
+- I don't start fights, but sometimes I don't walk away from them. It hasn't happened in a long time, but it's happened, and I regret those times. I should have been more in control of myself, stronger, more adult.
+- We have to go back to the memories of 9-11. If that memory doesn't do anything to you as an American, then you're not really that sensitive a human being.
+- I'm not interested in trying to work on people's perceptions. I am who I am, and if you don't take the time to learn about that, then your perception is going to be your problem.
+- You cannot get me to be disloyal to a friend. You just can't do it. Loyalty is a part of what I live by. I didn't say I was going to be loyal to my friend because he was right. I'm going to be loyal to my friend because he's my friend.
+- NASCAR stepped up their safety concepts, and I think the drivers feel NASCAR is doing everything that can be done. So we are a little behind NASCAR in that respect. Someone in NASCAR realized there were certain things that could be done to make it safer. The same thing has to happen in football.
+- Adrian Peterson isn't running by committee.
+- Ben Schwartzwalder was a decent guy, but he was from another era. He was like a Marine, with a real army attitude. He thought there was only one way to play football, and that was the rough way.
+- When you go out on a football field, you are responsible for taking care of yourself. The more rules you get, the less players truly take care of themselves.
+- Nobody I ever broke bread with, and I see players all the time, talked about using their head running the football.
+- You can do a hell of a film if you can understand what it is to be a man in America.
+- In a perfect world, I don't think any man should slap anyone.
+- I never had a father, really. My great-grandmother raised me. But I was in this country where I got help from people that were not of my same color. So when I come out of the box, I don't come out of the box as racial. I look for good people, and people that will be like-minded and help me try to do good for other human beings.
+- People think that coaches are always right, but it's difficult to teach a runner how to run, because every runner is different. You have to have an understanding of how to assist what that runner has, so they know how to assist what you have without taking away your special ability, because you're not like anybody else.
+- One of the most fantastic experiences I ever had was as a decathlete. I finished fifth in the nation my senior year of high school. I had no training or nothing.
+- The three greatest people in my life were white, OK. My high school coach, my high school superintendent and my mentor in Manhasset, Long Island.
+- When you have a problem, rules don't solve your problem. It's caring and education.
+- I think the National Football League needs a new union. The heavyweights of this union are not heavyweights enough.
+- Martin Luther King was a misguided leader. He worked to be recognized as the leader of black America when what black America needs isn't a leader, it is education.
+- I played basketball, and I loved it. But I never thought of it seriously as being a professional.
+- I think of my life as a journey, and I'm still on it.
+- If you truly believe something, and it's incorrect, that doesn't mean you don't have integrity.
+- I just walk funny.
+- Even though the money is great and the fame is great, you still have a lot of disenfranchised young men that are participating in the NFL that are not very happy. A lot of them are very bitter. A lot them are very angry. So many of them have had no fathers and no home life, and basically, no education.
+- I want the violence among young people in this country to stop - particularly gang violence.
+- One of the things that I've always not liked is the modern players have always concentrated on dancing in the end zone and BSing when serious things were going on in this country that needed to be changed. So my opinion is that when these young people stand up and risk their careers, that's a good sign for everything and all of us.
+- Young black men in this country have to understand that they have a responsibility. They cannot be the enemy in their own neighborhoods and usurp the effort of good people that are trying to make things work.
+- When I come out of the box, I don't come out of the box as racial.
+- I'm a very sensitive person. I do like to be respected. I'm very loyal. I like it to be a two-way street.
+- I prefer girls who are young.
+- Education, family, character, intelligence, humility, okay? These are the things that make a culture live.
+- I was just a big guy running down with a big, deep pocket and little short stick putting it against my chest.
+- Concussions have brought the consciousness to the problem, but I think the problem is football-related injuries, period, and the lack of support from the league of those players who have suffered those injuries. The denial factor has been unbelievable. I'm here because I'm a fighter to try to bring attention to this fact.

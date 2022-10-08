@@ -1,0 +1,106 @@
++++
+author = "Joe Bonamassa"
+title = "Joe Bonamassa Quotes"
+quotes_len = "100"
+description = "the best 100 Joe Bonamassa Quotes"
++++
+- A guitar is a guitar. Whether it was made yesterday or 51 years ago, if it's good, it will stand the test of time.
+- I like to be in the room with players that are better than me. That's always a good place to be.
+- When you've done so many records in 20 years like I have, you're going to have ebbs and flows and go through peaks and valleys.
+- All I'm trying to do is simply play guitar and elicit this creativity from the instrument.
+- When you go into a situation, and you're honest and straight-up about something, you put all your cards on the table.
+- I have a 1969 Grammer Johnny Cash acoustic guitar, and it's so inspirational.
+- One of these days, when I get tired of it all, I'll keep six guitars and the amps I'm using, and I'll have a big old auction for charity.
+- I've been lucky and very fortunate over the course of my career, and I try to do something good for people every day.
+- It's nice just to be able to go out and, basically, be able to play other types of music and not have any pressure to almost explain it and justify why you did. I just do it because I like to have some fun.
+- Most blues guitar players don't concentrate on singing and melodies. And forget about the bridge - the bridge doesn't exist. They go straight for the solo.
+- I'm not one of those people that has to share personal experiences. That's not really the kind of writer I am. I'm a very private person to begin with.
+- I never had this ego where I must write everything. I'm not Bob Dylan.
+- Some people don't like me at all. But... whatever. It comes with the territory.
+- I'm a self-loathing slide player. Some people like the way I play slide - I hate it.
+- I've really gotten over pedals. I can't keep up with this craze of boutique pedals that make you sound like everything but your guitar. I can't get my head around it.
+- I've never been universally loved from the beginning.
+- My goal for 'Black Rock' was pretty simple: I wanted to make the feel-good record of the summer.
+- I went through a period in my life where I didn't have money to buy ramen noodles and peanut butter and jelly, but I also needed to go to the guitar store and buy strings and picks and polish and rags. I couldn't live with myself if I didn't play guitar.
+- British blues was my favorite music, and it still is.
+- When you play a gig in Poland or Australia, or you play a gig in Toledo, they all clap at the same parts of the show. They're clapping for the solos in the exact same way.
+- Nothing I'm doing musically is revolutionary in any way, shape, or form.
+- Jimi Hendrix is a classic example of a player in which everything he did, it was all in his hands.
+- As far as actual playing, Clapton - by far - is my biggest influence, and you can tuck Jeff Beck underneath that.
+- I'm probably a more intentional acoustic player than I am an electric player because of lack of influences. I just play acoustic to see what happens.
+- You often see lifestyle over substance in L.A. Some rock stars dress up like they're going to play a gig when they're just going to the 7-Eleven store on a Tuesday night.
+- There was a rumour that I was buying Gibson. It circulated around the Internet... And I just go, 'How well off do you think I am?' I play blues-rock for a living. It's like a vow of poverty.
+- Sometimes you have to blame yourself before you can blame others.
+- When I write for an album, I'll always have about 30 different types of instrument around me. I set them up in a small room with my computer running GarageBand, which is always set to record.
+- It's good to see young kids getting into the blues.
+- Basically, 2011 was the hardest year on the road for me because I did a spring tour and a fall tour plus nine weeks in the summer, and I was pretty worse for wear by the time I got home in December. I know I was only 34, but that was a tough lap.
+- John Mayall doesn't get enough credit. He's not in the Rock and Roll Hall of Fame, which is a tragedy.
+- The fact that I tour religiously in the spring, religiously in the fall, and do 125 shows - you can set your watch to that. And you could have set your watch to that in 2000 or 1999, and you can set your watch to it in 2012.
+- I'm always looking for something new to do.
+- I don't really do scales... I mean, I play parts of them, but then I bail and start playing parts of other things. The term 'scale' feels very scripted to me because I'm an improv player.
+- If you have a good riff with a vocal as well, then it becomes a devastating song. That's why people love riff-rock: it's the ultimate air guitar music.
+- Greece was a muse. It inspired creativity in magical ways that I can't even begin to understand or explain.
+- Doing the acoustic at Carnegie is basically advised because electric music tends to get, let's just say, acoustically unsound.
+- At the end of the day, I think having some life experience is helpful to play any kind of music.
+- My first proper 'Here's your guitar, Joseph' was a 1981 Chiquita, one of those Erlewine travel guitars. And it was good for a four-year-old because it was small.
+- I collect as many acoustic guitars as I need for a specific purpose. Acoustic guitars are really just tools for me.
+- A great solo is one that's so frail that it actually teeters on the edge of falling apart, but doesn't.
+- 'Beck-Ola' is a weird album.
+- If it wasn't for guys like Gary Moore, I wouldn't exist. He not only proved that the blues could rock but it could draw a crowd as well. All of which made a huge impression on me.
+- I'm actually much more of a rock player than many people think.
+- I work well under pressure.
+- The one area where I'll say that Hendrix is underrated was his ability to use chord melodies. He used different inversions of chords and was able to make a three-piece band sound absolutely huge. From the moment Hendrix and the Experience came on the scene, power trios had their work cut out for them.
+- Eric Clapton and Jeff Beck made me an Anglophile. I listened to English and Irish artists as a kid, and they were way louder, heavier, and faster than the traditional blues that I was listening to.
+- I learned that if I put my mind to something vocally, I can pull it off. You just have to get your head-space right.
+- At the end of the day, you, as the player, create the tone coming out of the amp. The gear is part of it but by no means all of it.
+- When you think blues, you think BB King. Even a young kid can look at a picture of BB King and say, 'the blues.' The man is more than a musician. He's a monument.
+- That's right, I take vocal lessons - done it for years. There's nothing wrong with it.
+- You know who I'd like to open for? This will be a surprise, but I'll tell you who: Iron Maiden.
+- I used to watch MTV when they played music, and discovered Robert Cray, Stevie Ray Vaughan, Jeff Healey.
+- That's the thing about the blues: It's one thing to hit a note on a guitar. To make it matter is something else altogether.
+- I dislike all those cookie-cutter Nashville songs. You know the ones: about tight jeans and pick-up trucks.
+- I play acoustic when I need to play acoustic, and I say I'm probably a better acoustic player than I am electric.
+- I am the poster boy for brick-by-brick foundation building. Play a club. Put on a good show for 35 people. Come back. Build your market. Have people talk about you.
+- If you keep working hard and not take 'no' for an answer, you achieve.
+- Everything Paul Kossoff did came from his fingers and went right into the amp. He was his own effects unit.
+- There are good '59 Les Pauls, and there are not-so-good ones. There are ones that are just OK, that don't sustain as well.
+- My first memory of guitar was seeing my father play one.
+- I'm a kooky collector and own a couple of hundred guitars.
+- I feel like I always learn from somebody who can do something better than I can.
+- I really loved being able to perform my songs and sing them myself.
+- If I'm soloing, I usually try to start with a theme, which will often stem from the blues.
+- A guitar is so tactile, and when you're playing bends - and bending notes is a big part of my style - there are so many notes within the note you're bending from and the note you're bending up to.
+- I think great music sells records, and I also think, do you want to be a reality star, or someone that actually has credibility? Because you can't have both.
+- I think what I do really well is that I can 'chameleon' myself into many styles at a very fast pace, sometimes in the same verse of a song.
+- It's not enough to play a song: you have to inhabit it.
+- That's where the Black Keys and Jack White have succeeded and I've failed: They've actually convinced college kids that they're listening to hip music - but it's just blues twisted a new way - while I'm playing for the college kid's parents.
+- It doesn't matter if people take the music for free, because you can't illegally download a ticket to a concert.
+- I've always been a fan of the five-speed transmission - on anything.
+- There's always talk about the blues dying out, but it won't.
+- There's great cars, and then there's Aston Martins. Same thing for the 1959 Les Paul - it's an authentic piece of art that can never truly be replicated, and its mysteries are special.
+- Who's to say a blues man can't play rock and roll?
+- If I feel like things are getting into a routine, I want them to be different. I need to keep improving and keep moving forward.
+- I love to collect guitars made in the 1950s. I like preserving and playing them.
+- Greece is so beautiful and inspiring.
+- I've never been known as a riff kind of artist.
+- When you're 12 and, you know, slightly overweight and - for lack of a better word - white, and you're playing blues, you get a lot of press.
+- At the end of the day, you really want to make sure that organic music, made by human beings, at least has a voice.
+- I'm honored people think enough of my playing to chase my sound. Hell, I chase other players' tones all the time.
+- The thing people forget about Kevin Shirley a lot of the time is that he's not only a great producer, he's also a world-class engineer. He really knows how to get a sound.
+- There's a certain thing when you start getting into your late thirties or early forties where you stop caring. Not to the extent where you stop caring about the music, you just stop caring about what anyone thinks of you, and you just kind of let it go - let the chips fall where they may.
+- I'll tell you, what the world doesn't need is another Joe Bonamassa DVD.
+- The blues, the way it's interpreted, is always a product of your environment, and so it's almost like food. You know, it's like you use the ingredients, and you use your life experiences that you have.
+- I'm not sure when I first heard about Beth Hart. I do remember seeing her on various TV shows. I think I'd seen her on 'Conan O'Brien' or whatever. And it seemed that whenever we'd tour Europe, our paths would cross.
+- I don't think there's any music that you hear on the radio today that would be possible without Jimi Hendrix. Rock, blues-rock, heavy metal, any guitar stuff when you get right down to it - Jimi did it. He's certainly the guy who basically invented the blues-rock genre for guitar players.
+- Whenever I hear my playing, I can't detach from my influences: there's my Jeff Beck, there's the Clapton bit, the Eric Johnson bit, the Birelli Lagrene bit, the Billy Gibbons.
+- I don't have any legato skills; I could never figure out how to roll the notes off.
+- I'm an acoustic guitar owner - in the sense that I own them, and they sit at my house, and I never play them.
+- Being a niche kind of artist, you're not going to make a lot of friends in the traditional music biz.
+- To sell out London's Hammersmith Apollo is amazing. Selling it out for two nights? Even better.
+- Carnegie was a life-long dream because I was a born New Yorker. I was born in upstate New York, and we've played Radio City, and we've played The Beacon, but Carnegie was this mystical place, you know?
+- If we got into a time machine and went back to the 1700s, classical and baroque music would have been the equivalent of Beyonce and Jay-Z.
+- I was thrust into an adult world very quickly, and that can make anyone somewhat socially maladjusted to dealing with people your own age. But I wouldn't trade any of it.
+- I've always been a big fan of taking old songs and completely turning them on their head. Having no adherence to the fine tradition of the original version. Rearranging them and taking a different approach to them.
+- I'm not a household name; I'm just a household name to guitar freaks.
+- I live, breathe, and sleep guitars.
+- The first thing you realise very quickly when you decide to do an acoustic version of an electric song is your solo either becomes either very truncated, very different, or non-existent, because even if you play a clean solo, it's different with the Kryptonite... with the acoustic.

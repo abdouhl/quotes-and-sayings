@@ -1,0 +1,106 @@
++++
+author = "Kurt Vile"
+title = "Kurt Vile Quotes"
+quotes_len = "100"
+description = "the best 100 Kurt Vile Quotes"
++++
+- I've always been a deep sleeper; because I come from such a large family - there are 10 kids - I could sleep through anything. Even with my last day job, I'd sleep in later and later and start coming in an hour-and-a-half late. I got fired twice before I really got fired.
+- I like to laugh at dark things.
+- It was just the next logical step from making succinct pop songs. What do you do after that? You make pop songs that are longer and more epic, that push the envelope. Imagine your favourite song, or something that you play over and over in the car, except that you don't have to start it over as much.
+- I can be chill. That's a side of me that I like. But then, I can also be not so chill. I can get a little stressed out.
+- I feel like when I say something sad, I mean it.
+- Every time I play with somebody, your perspective gets a little extended. It always rounds you out a little more in some way.
+- I like a well-rounded life. All of this work is kind of useless if you don't have something good to come home to.
+- Even when I played in little league as a kid, I liked making friends, but I didn't want to be there, really.
+- I got depressed so many times by my blue-collar life and self-conscious about the fact that I didn't go to college. I was always working super low-end jobs, being the complete opposite of what I wanted to be.
+- I really love that 'I Can Feel the Heart Beating as One' Yo La Tengo record a lot.
+- I've got an amazing family. My wife is really smart. She's guided me the whole way. With children, you see them grow up, so it's like you're forever young. They are totally innocent and so unjaded. Watching them grow up makes you go through it again yourself.
+- Australia is a wild place.
+- When I write, I tend to tap into this human wondering vibe that could come off negative, but it's really not.
+- When I leave a recording session, there is usually a lot of paranoia or superstition on my part, like I'm afraid to hear what we've done.
+- I get to come home to my family. It's awesome, just constant adventure, never a dull moment. So much life.
+- I'd say the best thing the Violators and I have done is to dominate the U.S. with an arsenal of smash hits.
+- I'm the kind of performer who gets lost on stage. I can tap into this soulful haze.
+- I think if you just travel in general, it allows you to step outside of yourself and whatever you're familiar with.
+- I don't have anything to get off my chest. I'm not itching to prove myself anymore.
+- My dad's really funny. The male sense of humor - like my grandfather's and such - is pretty bizarre. Basically my dad's side of the family is where the bizarreness comes from. It's a little goofy and a little out there.
+- All of my surroundings influence my songwriting. It's autobiographical, although I leave enough space so it's relatable.
+- I actually often write about writing music and being in that zone.
+- I've developed this routine at home. I wait for the kids to go to bed; then my wife falls asleep. Then, it's dark and quiet enough for me to work on songs.
+- My cousin used to make fun of me for liking stuff like C+C Music Factory. I didn't have any tapes; I just liked their song on the radio. We liked that because that was what we had access to.
+- I'm the kind of person who will set time aside to do something and then do everything but that thing.
+- I definitely have relapses of stress. Most human beings are like that. But I think, ultimately, music is a therapeutic situation. Once you start playing, it all just gets resolved.
+- That Yo La Tengo record, 'Painful,' has got some real awesome, noisy, mellow heartbreakers.
+- No offense to Boston, but I was glad to get out of there. I think it's just because I'm from Philly. Honestly, the blue collar side of each are pretty similar in ways, but something about the makeup of your brain, Philly versus Boston. It's a lot different, in weird ways.
+- I'm not cynical, but the reality is that life is mortal. Terrible, sad things happen. Everybody loses friends and family. I'll be on tour and get really scared if my wife won't answer her phone within one minute. I'm sensitive.
+- It's gotta feel natural. I'm always into that, and after awhile, if I am working on a song too long and trying to make something out of it that it's not... it's best just to stop and move on.
+- Love is intense, and sadness is intense.
+- My favorite kind of song is the most beautiful song that you love so much and it's so good it makes you want to cry a little bit. Any jam can sound like that on a certain day.
+- Philly's busy enough. There are tons of record stores and record-head friends and plenty of D.I.Y. shows. It's a place where people pass through and bands don't usually skip on tour. There are lots of music resources, but it's not too over the top.
+- I do a lot of things, and I'll get excited about them - maybe it'll be a song in a movie - and then it comes out, and you're like, 'Aww, that was cool, but it wasn't quite as big a deal as I thought it would be.'
+- I'm joking all the time with my friends, even when we're talking about serious things.
+- I write a lot when I'm feeling bummed, but other times, you get locked in, and it's totally personal. If you're really low and writing, you're not thinking about anybody at all.
+- Finger-picking, in general, is a hypnotic thing. I feel like I'm more A.D.D. all the time, so the music has to be hypnotic.
+- I just try to make as much money as possible. However I can do it. With as much integrity as I can have.
+- I feel like if you sit down and have an assistant engineer and a producer in a top-notch studio and everyone sets up all the mikes perfect, all of a sudden it's really hard to live that melancholy song. It's hard to really live it in the moment.
+- I've always been a music fan. I played trumpet. When I was in 4th grade, we were getting demos from the music teacher about different instruments we could play, and I said I wanted to play the trumpet right away. It was easy: it just had three valves.
+- The last blue collar job I had, I was 29. Even 'Childish Prodigy,' I had a day job that whole time. Those early ones, they feel like psychedelic, blue collar records. Especially 'God Is Saying This to You,' there's such urgency in that album.
+- I proved myself with 'Smoke Ring.' It was me maturing. I made a good pop record.
+- I had a wacky job driving a forklift for an air freight company. That was the worst.
+- That's one of my favorite Matador records: Cat Power, 'You Are Free.'
+- When I was 20, I moved up to Boston with my girlfriend, who's now my wife. She went to grad school, and I met a bunch of cool friends there.
+- Life is mortal. There are all these rewards and consequences. Sometimes you embrace them, and sometimes they knock you over.
+- Anybody that's from somewhere that's made it in music outside of New York or L.A., if it's a unique enough place, they'll always say, 'Dude's from Minnesota!' Or wherever, you know? So that's how I got the Philly connection.
+- I find that I get nervous before I play. Even sound checks can give me anxiety and screw with my mind. But as long as I can play a little acoustic guitar backstage if I'm feeling nervous, so I don't have to walk in there cold turkey, I'll be fine.
+- Life is so beautiful, but there are all these scary things you can't deny.
+- We'll play somewhere like London, playing to 2,000 people easy, and every time you play with more people, you think, 'You're a rock star,' and it makes you laugh. I guess I am, but I'm also, you know, not.
+- After I play a gig, I'm like a different person: I have superhuman strength.
+- I go through ups and downs in the psyche all the time, and then once you start moving again, it's amazing how you can always bounce back. You get, like, in a low rut, and you think, 'This is it; my life is a train wreck.' And then you bounce back again.
+- I've been known to just pass out instantaneously, like, anywhere.
+- I think 'She Drives Me Crazy' is hilarious and good.
+- I go in and out of mental funks all the time 'cause it comes with the territory.
+- I think that I identify with Philadelphia for a lot of reasons. Without even thinking about it, I called myself 'Philly's Constant Hitmaker' when I first got a MySpace, before I had any real hits. It was kind of just a funny slogan, basically lifted from the Rolling Stones' first album, 'England's Newest Hit Makers.'
+- Some people are so sad that, at times, that's what gets on my nerves - if they just hammer the doom, with no comic relief whatsoever.
+- Influence is all osmosis.
+- I had a really fun time working with the HARRYS guys and their whole crew.
+- The real reason I was lo-fi before was really just because that's what I could afford.
+- Around '93, the radio started playing 'Loser' by Beck and 'Cut Your Hair' by Pavement, and then I got way into Pavement. That was kind of a gateway drug into indie rock. I got all their B-sides, and I got that 'Hey Drag City' comp, so I got into all those Drag City bands.
+- Everybody goes up and down throughout their lives.
+- There's so many FM hits that I love. Bob Seger, there's two of his songs that I love. I would probably love more, but I don't sit around listening to Bob Seger records. It's the same thing with Tom Petty; he writes amazing hits, but it's not often that I sit around at home listening to a whole Tom Petty album.
+- I like the idea of having money.
+- I'm obsessive when I get an idea in my head.
+- If I had known I'd be on Matador back then in my childhood, it would have blown my mind.
+- I'm definitely influenced by Animal Collective. I watched them early on.
+- There comes a time when you've toured a ton, and a time to be inspired again. Listen to awesome jazz records that are mellow with no words, and just sit there and read a book, or space out on your couch. And eventually, all that inspiration comes.
+- My family was always playing music; I always enjoyed it. My cousin, who is a little older than me, he started playing music, so I wanted to, also. I asked my dad for a guitar, and he got me a banjo, so that was my introduction to playing. I played it like a guitar. I had a few lessons, learned out a few chords, and figured it out right away.
+- I'm always working on music.
+- There's too many favorite songs, so I'll just say right now my favorite song of all time is 'Poison' by Bert Jansch.
+- Nobody wants a complainer.
+- People can have their punk ideals, but I don't really care about that kind of thing.
+- I walk around a lot. People come up to me and say 'Hi,' but not that often. I mean, I get it plenty often, but sometimes I wish they'd come up to me more! I mean, I'm just a regular guy.
+- I benefit from a change of scenery; it's always inspiring.
+- I really like Cold Cave.
+- I'll know when a song's really awesome, for sure, and I get super stoked, and I'm so high when I'm hearing it back, but then you sit with the record forever. You're mixing it, and you can really just over-think everything.
+- 'Street Legal' is like a cult classic. It's pretty cheesy at times, but you learn to embrace it.
+- I always sort of liked Mesa/Boogies, but I wasn't sure if they were cool or not cool.
+- Critics always get the lyrics wrong in reviews, which is amusing - especially when they use them against you.
+- When I first got the record deal, I thought it felt like I won the lottery. But I always worked hard at it.
+- A lot of getting a song done is booking the studio time.
+- When I was a teenager, I was mostly getting tapes and CDs, and somebody hipped me to the fact that you can get things on vinyl that are not necessarily available on any other fomat.
+- John Prine in particular... just the chord changes combined with the words. He definitely can make you cry a little bit. Just a little bit.
+- There's so many ways you can play one chord progression that the repetition isn't ever exactly the same.
+- On one level, we're on Matador, but our amps still might explode on stage, or they'll be an echo in the mic. It's like climbing a ladder. I like to climb it really slowly. I could probably get really professional right away, but I like to take baby steps and find my own way.
+- If somebody else wanted to do a song for McDonald's, that's up to them. I wouldn't do something like that, but whatever.
+- Humor is important. Nothing against bands that are always a downer, but the reality is - it just becomes theater.
+- Cigarettes are the worst thing in the world for you.
+- My music has to be funny and sad and happy and loving; it's gotta have it all. When somebody's just too dark all the time, it's just drama. Or if somebody's too funny? Well, I like being too funny sometimes.
+- I feel like my music is like - there are always new influences in there.
+- I've gotten a lot more paranoid in my older age.
+- If I sit in the same square room and work on something too long, I feel like you just go mad.
+- I'm just used to the L.A. music life.
+- 'Smoke Ring' was a downer, then 'Wakin' was an upturn.
+- Even when I haven't played in a while, I can sit down and start with a chord, and just drop into it. It's like this tunnel I go into. The zone is where I want to live.
+- I love polished pop music, but stuff like Neil Young's Crazy Horse vibe or Waylon Jennings, that stuff is raw and real.
+- People do get mad at me for falling asleep sometimes, and it's the most frustrating thing. I can't help it. What am I gonna do?
+- I like New York. I like Philly. I like San Fran. I like when people are stoked. But Chicago's a real music town, and they're really good to us there. There's just something in the air there; people are just really stoked about music. Every time I go there, I have a great time, and the fandom is really heartwarming.
+- I want really badly to just be funny in a movie but be close to myself.

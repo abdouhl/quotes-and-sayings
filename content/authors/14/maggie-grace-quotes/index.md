@@ -1,0 +1,26 @@
++++
+author = "Maggie Grace"
+title = "Maggie Grace Quotes"
+quotes_len = "20"
+description = "the best 20 Maggie Grace Quotes"
++++
+- I think sci-fi films have become rather bleak, and understandably so - I think we've made some big mistakes globally with how we're developing, and we deal with that guilt by creating these very dystopian futures in films.
+- I used to be really insecure about my self-education. I'm definitely always learning. But there's many ways to learn. There are many, many ways to always be a learner.
+- A first kiss is hard to fake on screen. It's tempting to practice before you shoot, but why blow that natural awkwardness on a rehearsal? There's something so beautiful about it that can't be faked.
+- When you're doing a Broadway show, you have no free time.
+- I am very superstitious about toasts. I never toast with water, and I'm very careful to make eye contact with everyone I toast with.
+- I collect imported teas, I have a few cupboards full! It's like wine, each has it's own flavour and you get into their little nuances.
+- I believe love at first sight is possible. Centuries of literature and art and beauty has been dedicated to that idea, so who am I to argue, even if I've never experienced it?
+- I trip over my legs all the time. I'll wave to somebody, look up, and end up eating pavement.
+- There's just certain things you don't think about to enjoy a film. Bullets in space are one of them.
+- I can definitely be tough when pushed. In relationships, you have to take a stand for who you are and how you're willing to be treated.
+- Note to self: Never ride a motorcycle in stilettos and a miniskirt.
+- I would like to see more Bollywood films! The more stylized musicals are a new trend in the U.S. We are beginning to make musicals again after a long break, practically since the days of the studio structure, so perhaps we can learn a few things from Bollywood about this fun style of film-making.
+- I used to trip over my legs and get detention for my too-short shorts because none fit. I still trip, but now I like to show them off.
+- I'm a prolific overanalyzer. And I can always use 15 words in place of three 3, no matter what.
+- Every actor who has done an action film has a little tiny scar somewhere from that.
+- I went to a Christian school, and as a kid, we weren't allowed to really watch anything violent, even 'Teenage Mutant Ninja Turtles.'
+- Indian-styled garments are very popular in the U.S., especially in areas near the beach, like Hawaii and Los Angeles.
+- Talking about relationships is a surefire way to jinx them.
+- Ice-skating is a dangerous proposition and tennis is going to be something I'm probably not very good at.
+- I'm a Jane Austen/Jane Eyre kind of girl.

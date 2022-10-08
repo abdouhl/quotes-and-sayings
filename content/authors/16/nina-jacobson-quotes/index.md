@@ -1,0 +1,46 @@
++++
+author = "Nina Jacobson"
+title = "Nina Jacobson Quotes"
+quotes_len = "40"
+description = "the best 40 Nina Jacobson Quotes"
++++
+- The reality is that diversity as an overall subject has to continue to be addressed onscreen. That goes beyond having a gay superhero. There should be a black superhero, a Latino superhero and, while we're at it, we still aren't seeing nearly enough women behind the scenes and as the anchors of movies.
+- The more women and people of color who find positions of influence, the more women and people of color who will find positions of influence. So we need critical mass, and we're still working toward that. I won't be satisfied until we're at the 50-50 place, where we ought to be.
+- Honestly, I don't think it's harder to be a producer as a woman. I think it helps me because I don't get bogged down in shows of male dominance that can sometimes get in the way of the best idea prevailing.
+- Sometimes I work in my office, just reading material, meeting writers, working on scripts. Other times, I'm on location. There's a lot of variety.
+- Ultimately, only audiences decide what's a franchise.
+- Anytime that someone defies the status quo and defies oppression, it feels like a step in the right direction.
+- I know many filmmakers, and shooting in IMAX is challenging. Filmmakers love the vividness and power of those big images.
+- There's as much great authorship in the filmmaker community as in the literary community, and I'd love to welcome more filmmakers into the fold.
+- I think that women are underrepresented behind the camera as directors.
+- We always want to congratulate ourselves at having made more progress than we actually have.
+- My daughter and I have this thing we call a PMA: 'perfect moment alert.' I try to really notice when we're having a PMA.
+- The IMAX cameras are big and heavy. And they're loud. So you have to be mindful of whether or not they're worth it; I'd say the image quality is incredible and the scale is amazing.
+- When doing family entertainment, you don't actually worry about kids. You know what you can't do. But in terms of sensibility and sophistication and wit and ambition, aim for your own taste level, and kids will - if they're interested in the subject matter - be glad that you did.
+- I'm very superstitious. I come from a family that's big on not painting the nursery until the baby is home.
+- It's definitely a tough blow to your morale to get fired.
+- The majority of people are straight, and movies, with their bigger budgets and burdensome marketing costs, will try to appeal to as many people as they can. As the means of production and distribution become more democratized with advances in technology, more gay stories will make their way to the mainstream.
+- Ultimately, mentorship plays such a big role in breaking directors that successful male directors tend to reach the helping hand to guys who remind them of themselves. We need more women directors so they can reach out to girls who remind them of themselves.
+- When you're younger and you see something that really speaks to you, it's indelible in a way that's not the same as when you're an adult. So I'll always love reading books and making movies that resonate with young people.
+- Suzanne Collins, it was such a big thing for me to make the handshake with her and to say, 'You can trust me. I will not screw up your books. And I won't let them be diluted and softened. And I won't let them be exploited and made guilty of the sins that are being commented on in the books.' I take that really seriously.
+- I've never adapted a book I didn't love.
+- I think a lot of what I loved being a studio executive was the variety and freedom. But now, as a producer, you're much more able to enjoy those two things. What I loved about it doesn't necessarily exist anymore.
+- When I love a book, I really love a book. You don't get that very often.
+- There are still so few female directors. There are far fewer writers than we'd like to see.
+- I am happy to keep working on books because I'm always reading, and I'm always trying to fall in love.
+- When you read a book, you create that tonal bandwidth. You set a tone for yourself, as you're reading it, in which everything exists within the world of your imagination.
+- We owe it to the audience to put more characters onscreen that reflect them and that speak to issues of race and gender as well as to a character's sexual preference.
+- There is a variety of different kind of producers. I'm a very hands-on, creative producer. I find material that I think would make a good movie or TV show, find the right financier/studio/network, hire a writer, get a good script, find a director, and collaborate with him/her to cast the movie and hire department heads.
+- Dogs in the office are very important.
+- To me, a great story well told is a great story well told, and just because the protagonist is a young adult doesn't mean that story has less merit or worth than if the protagonist is a full-grown adult.
+- As a studio executive, I took the approach that people are competent until proven otherwise. But when you make a movie, because there is so little time to fix things when they break, you have to almost come to it with the mindset that everyone is incompetent until proven otherwise.
+- I realized so much of my college years were spent not wanting to be gay. I just imagined how different it would be if I were going through that experience in 2016 as opposed to 1984.
+- Ultimately, I am very filmmaker oriented, as a producer.
+- I've been fortunate enough to match up the material I'm producing with the right buyer, the company that will make it and that wants it, and that isn't saying yes to be nice, but is saying yes because they want and need that movie and it's going to be important on their slate.
+- The way we like to think of ourselves is not the way we look. We like to think of ourselves as more evolved than we frequently are.
+- When I became a producer, I told myself I will finally be able to bring my dog to work.
+- I think that one of the greatest perspectives that I have, from being a buyer for my whole career until I became a producer, is that I have a pretty good understanding of the buyer's mentality.
+- Our young people live in a world in which there's violence wherever you turn.
+- I don't understand why people still behave as though making movies with female protagonists is risky, given that - hello - we do make up over 50 percent of the population, and we go to movies.
+- Getting movies developed doesn't do me any good as a producer. It only does me good to get movies made.
+- Television is often out ahead on social issues. With film, we've only recently proved that one of the oldest misconceptions in the book is wrong, which is the idea that girls will see films with boys as protagonists, but boys won't see movies with girls as protagonists.

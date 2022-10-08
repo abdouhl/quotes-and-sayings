@@ -1,0 +1,28 @@
++++
+author = "Ted Shackelford"
+title = "Ted Shackelford Quotes"
+quotes_len = "22"
+description = "the best 22 Ted Shackelford Quotes"
++++
+- In January '77 I went out to LA and have been here 26 years.
+- The decision as to why a show makes it has to do with politics and money.
+- Knots Landing is the best thing that ever happened to me.
+- And I had a lot to play, which is what you want as an actor.
+- On daytime they continue to revisit a lot of the same stuff while nighttime does move on and show development.
+- The thing with being on a series that runs that long is that the writers run out of things to do.
+- I really wasn't on the Dallas set much. I did three or four episodes so I didn't see too much.
+- Thirty years ago dinner theatre used to be much more of a going concern than it is now.
+- It was unpredictable, good storytelling that brought you back each week.
+- Theater to me is acting but it's more real on film.
+- I went to the Westminster College for Men in Missouri, which is what it was called back then, and transferred to the University of Denver where I ultimately got my degree.
+- I have no interest in writing, directing or producing.
+- I act for the reality, for the moment, and most of all I do it for the process.
+- Everything I have in life comes from Knots Landing.
+- But no, I'm still living in LA and haven't dropped off the face of the earth.
+- What happens if you're the guy who's been on the show ten years and is highly paid but they have nothing for you to do is that they bring in other people, and you become a supporting character to those people.
+- One of the things I was so glad that happened to me on Knots was that I learned to relax.
+- I have German Shepherds that I train and have brought back to Germany. I love going there.
+- I can't really recall the first time I was noticed by a producer but the first time I was on television was doing Daytime for Another World, which I started in December '75 and went until December '76.
+- My wife is Danish and we go to Denmark a couple of times a year.
+- If I could work with Joan Van Ark every day for the rest of my life I would.
+- Television is so dictated by time constraints that you have to make quick decisions and go with them.

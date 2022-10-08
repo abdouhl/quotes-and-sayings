@@ -1,0 +1,106 @@
++++
+author = "Tim Minchin"
+title = "Tim Minchin Quotes"
+quotes_len = "100"
+description = "the best 100 Tim Minchin Quotes"
++++
+- I don't like courting controversy because I don't like people not liking me.
+- The Internet now is completely full of memes, and it's interesting, the idea that instead of having a sign crotched on your door or a magnet on your fridge saying whatever cliches and bon mots, pictures laid out with some text are passed around and move really fast.
+- In particular, Stewart Lee and Tony Law, people who could have been really critical, were really supportive of me, and I'll never forget that, and I want to be that person, so you have to work really hard to repress your natural jealousies and be one of those people.
+- Acting's just always been one of those things I've enjoyed.
+- I think it's great that these little various skills I have seem to add up to something, because I'm not the greatest pianist or the greatest vocalist or the greatest actor.
+- There's a lot of great, talented, passionate musical theatre practitioners and directors here. But it's very hard to suddenly start building great musicals in a town like Sydney where there hasn't been any great musicals built.
+- I'm not a good philanthropist yet; I'm not as good as I'd like to be... I believe very hard in luck. It's all chance; therefore, any privilege you have is chaos.
+- You do get a bit paranoid that you're becoming a sort of narcissist, an artistic solipsist when you're doing stand-up.
+- I can make rhymes. My style of writing is kind of childlike anyway.
+- I'm a comedian because I want people to like me. That's really why all comedians are comedians.
+- It was - I'm very didactic in my lyrics, but I've always been drawn to mock my own emotions, and so I write this very lyric-heavy stuff, which suits theater and comedy much more than it suits pop.
+- When I was 17, I rewrote the songs for a musicalized version of 'Love's Labour's Lost.'
+- I was rejected by every agent in Australia when I was starting out. No one would represent me, because I didn't fit into a particular box, and I wasn't a trained musician or performer, but history has perhaps proven that perhaps I have something to give.
+- I don't want my work or me, as a person, to be held up as a paradigm because, as Richard Dawkins knows, if people hold you up too much, you're only ever going to disappoint them by being a human.
+- I had written six scores by the time I was 20, and I'd never been paid a dollar.
+- My shows are basically about ethics.
+- I just always thought 'Groundhog Day' was potentially a great idea.
+- Just because you're right-wing shouldn't mean you don't believe climate science data. They're unrelated.
+- I often get references to 'slight' or whatever, and my weight's been a thing for me my whole life. I have to really, really work. I train six times a week to just be normal and not be fat.
+- I don't quite think I'm big enough to deserve an orchestra.
+- In terms of comedy, I never did five-minute sets or clubs or anything. I just started doing shows. Coming from that theater background, it never crossed my mind that I should start doing five-minute sets.
+- Given that everyone's got a voice, it's the age of the democratisation of information through digital technology. That means women can rise up, and people of colour can rise up, and these stories are much more present to us. And that's great.
+- I was lucky enough to grow up in Western Australia and know that the Australian Outback is vast and spell-binding and heart-stoppingly beautiful, and the characters that inhabit it are unique and hilarious and tough and cheeky.
+- I just see myself as someone who has a bit of a way with words, basically.
+- I don't think you should bring up your kids with no wallowing. Somewhere in there is an area where you make sure your kids are all right, but they can also cry. Just maybe not every morning.
+- I started writing songs for youth theater and stuff, and so it's really writing music for the stage that started me out, but then I eventually went to music college and did a two-year course in contemporary music and then just played in endless bands, cover bands, jazz bands.
+- I am not a redhead. I have never been and am still not. Well, just a little... but I was blond as a kid and then mousy brown. As I got older... it came up. I've got a lot of red in my hair, but I'm not a ginge.
+- I have these rhyme-based ideas because I love Julia Donaldson. 'The Snail and the Whale' is one of the most beautiful poems, and I feel like I could do that.
+- I was naive. Before 'Larrikins,' I thought passion, hard work, and a skill set will mean that anything you want to do will get done. I don't think that anymore.
+- Every song in 'Groundhog Day' works to forward the story in a chronological, narrative sense, to illuminate the state of mind of the person singing it and comment on the world.
+- That's the incredible thing about 'Matilda': it keeps manifesting itself in different ways.
+- I spent thousands of thousands of hours playing the piano, and by thousands of hours, I mean playing in cover bands or wedding bands or disco bands or original bands or playing cabaret for Todd McKenney.
+- Most of the best songwriters that ever lived couldn't read music.
+- You've got to teach yourself you can do your job no matter what happens.
+- I've spent years on stage adjusting the timing of a line to infinitesimal degrees.
+- Fight for what is true. What is true is enough.
+- I know people come to my shows expecting me to give voice to some of the frustrations that nice, happy, progressive people like me have with the world.
+- For whatever reason, luck and word of mouth - my comedy career couldn't have started better. I went to Edinburgh, selling out this 300-seater just because I got the right place, right time, right venue, right buzz, right reviews early on.
+- I've been atheist since I became aware of the term, but my material is not all about religion - not by a long shot - and when I do address the topic, it is to point out where religiosity meets discrimination.
+- In a global world, nationalism is a fantasy, and it's poison. It used to be appropriate, but it's not anymore, and we haven't learned that lesson yet.
+- Because I'm on my own on stage and wear bare feet and look like a pixie, people always think I'm little.
+- What I've created comedically owes a lot to my ignorance of comedy and love of making theatre stuff.
+- If we talk about 'Groundhog Day' as a humanistic text - we only have one life, and there's no punishment or reward afterwards - then the wisdom is, just be kind because that will make you happy and the people around you happy.
+- Trying to work out where you find meaning and sense in a meaningless world is my obsession.
+- Generally, there's a correlation between good work and good reviews. In the very odd, very rare case that they say it's terrible, but actually you're a genius who is ahead of your time, you are going to just have to suffer.
+- I see myself as an utterly unchanged Perth dude who likes sport as much as I like music and who just likes my family.
+- I lived at home while attending the University of Western Australia in Perth, while doing a gap year and - partly - while attending the Academy of Performing Arts on the other side of town.
+- My daughter was two weeks old when I wrote 'White Wine in the Sun.' I can remember just sobbing and having to leave the room.
+- Comedy actually works best when you're living in an OK world, and you are pointing out the hypocrisy in apathy.
+- My granddad had a 1,500-acre hobby farm that he had built up from scratch in Western Australia, so my siblings and I spent our childhoods going there a lot.
+- I'm the son of a surgeon and the grandson of a surgeon.
+- I never thought I was going to be an actor.
+- My most visceral childhood memory is getting home from hockey. Much of our family time revolved around hockey, and it rains a lot in Perth, and we'd get home tired and wet in our tracksuits, and the smell I'd hold in my nose is of mother's vegetable soup.
+- My whole mission is to have a long, interesting career, not a short spiky one.
+- If you don't have anything different to say, don't say it at all. That's my rule.
+- I just want people to hold themselves to account about what they think more, because I strongly believe that the way to live a moral life is to not allow yourself to have beliefs which are easy but which don't make sense.
+- I think there's something fundamentally wrong with thinking that there's a God who looks after you but kills everyone else. There's something, if not immoral, then gross, about it.
+- I have written a lot of musical theatre over my life - two Olivier Award-winning musicals - and I still don't think I'm ready to be the boss in the room.
+- Dad was known for his barbecues at weekends and bubble and squeak on Sundays. We'd all have to set the table and clear the table. We had our own seats, totally structured.
+- At its essence, 'Groundhog Day' is an existential journey of an unhappy, judgmental, slightly narcissistic, misogynistic, dissatisfied, aspirational, entitled, privileged male who has to learn to be the opposite of all those things to find happiness - to learn that learning is important and that you don't get to control everything.
+- I've always been aware that probably writing songs - stupid songs or, at least, theatrical songs - is, I dunno, I certainly don't think about that, about my persona on stage. In fact, I work really hard not to address it too much in my head.
+- The thing I love about my career is the variety and that people can't predict what I'm going to do next.
+- I am a very ginger-coloured person, but I don't have orange hair.
+- I saw 'The Wild Duck' at the Belvoir St. Theatre in Sydney, and it was one of the best pieces of theatre I'd ever seen.
+- I want to be here for my family. I want to make stuff in Australia. I want to take what I've learned and contribute it to the industry. I think there's a moral imperative to do so for people like me.
+- I was a late bloomer, but I realised that people really liked it when I played blues scales and, with the piano, I had that insatiable need to prove myself.
+- When you become successful, half the population puts you on a pedestal, and half the population treats you with less respect than you would have got if you were collecting their bins.
+- Hollywood seduces a person who's used to making theater, art, and having success on their own terms and then tries to squish them into a box and, eventually, throws the box out.
+- My brother and I played music together, and we all liked to show off. But I wasn't a particularly musical kid. I did piano lessons and quit. I got kicked out of the choir.
+- I want to write musicals for my whole life. I always did.
+- I never watch television, although, the other night, my wife and I caught an episode of 'Buffy the Vampire Slayer' from Season Six. It's the only series of which I've ever watched every single episode.
+- I'm not a total chump. I write stuff that's reasonably musically complex.
+- I'm quite a gregarious, outgoing person.
+- I was incredibly jealous of friends who had bit parts in 'Home and Away.' I just hoped I'd somehow be allowed into this game.
+- I'm not supporting nor not supporting TV casting shows - there is no doubt they are created for financial reasons - but I don't have a problem with wanting to sell tickets, and if you want to do an arena version of a rock musical, you have to sell a lot of tickets to justify the cast.
+- It's about the audience - if they laugh and clap, you feed off that, and if they don't, you doubt everything you've ever done.
+- I had lunch with Andrew Lloyd Webber at the end of 2011 because my musical 'Matilda' is in one of the theatres that he owns in London.
+- London represents the idea that someone pulled away the set from my life and replaced it with another. 'Here is your new baby. Here is your new life. And now you do comedy.' Without being smug, it's the best fun.
+- That's the great part about arts - someone taking your work and making it something else; it's becomes a true collaboration.
+- London's my favourite place. I lived in Crouch End for years and come back as much as I possibly can.
+- Mum and Dad had high expectations of us as human beings - it wasn't just about education. It's a fantastic way to go about parenting, and I aspire to that.
+- As someone who has never been in a gossip magazine, I do not deserve the contempt of the term 'celebrity.'
+- If you make a good show, you tend to get good reviews. I don't believe it is as arbitrary as some people tend to think, which artists do to protect themselves against bad reviews.
+- I played piano for cabaret stars and stuff and then eventually moved from my hometown of Perth in Western Australia to Melbourne, and somewhere in there, I decided to book myself a room and do a cabaret show of my own material.
+- I just do what I gotta do and try to show people I can write some funny lyrics and play piano, and hopefully that'll make them dig further. I really believe in my form. That's why I haven't done a lot of telly, and I'm not a regular on any panel shows, and I'm not in a sitcom or all those things.
+- I had terrible ear problems and asthma and allergies. I spent quite a bit of time in hospital up to the age of eight so was not - am still not - extraordinarily intelligent.
+- Trouble is, I'm not a real ginger. I'm just a ginger-bearded, pale-skinned, strawberry blond.
+- These days, I'm a hypocritical, philosophical vegetarian. Vegetarianism would be the right choice, but I really, really love meat.
+- The point of privilege and the notion of mansplaining is that sometimes I definitely feel like I should shut up. That's it functioning. That's the notion of privilege functioning.
+- I do feel infuriated by the things I perceive to be unfair.
+- When I came into comedy in 2005, I didn't even know there was discrimination against musical comics in the alternative-comedy strain.
+- I've stopped asking for criticism, even from friends, because I don't think anyone knows my little world of mega-thorough critical thinking/musical comic rambling better than I do.
+- I have come to the conclusion there is no point making anything if you're not going to make people laugh and cry.
+- If there was Twitter when I wrote some of my early stuff, there'd be no 'Matilda.'
+- I wake up in the morning quite excited by the notion that I get to immediately have a meal. That's the thing that gets me out of bed - just the thought of having a poached egg, or even some granola.
+- I like stories, and I really like words. So I like stories that rely on dialogue.
+- Christopher Hitchens's autobiography, 'Hitch 22', is a poignant read and very interesting because I have a very poor knowledge of recent political history - or, for that matter, distant political history.
+- I'm as strict as my parents - I have high expectations, too. I'd never ask the kids to do something outside their capabilities, but I'll encourage them not to be lazy and to try hard.
+- I can wax boringly about the role of comedy in mitigating pain. For so many comedians, comedy comes out of personal despair. I'm not a very despairing person myself, but I do fear despair and the death of loved ones.
+- Comedy is often a short career because you get to a point where you are no longer a small thing punching up at targets; you are the big thing, and it's hard to write from that position.

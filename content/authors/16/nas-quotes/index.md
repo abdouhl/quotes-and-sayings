@@ -1,0 +1,79 @@
++++
+author = "Nas"
+title = "Nas Quotes"
+quotes_len = "73"
+description = "the best 73 Nas Quotes"
++++
+- GaGa is one of my favourites. Her voice is incredible and she's fearless and she's ahead of the game. She's ahead of the entire game, and I admire that.
+- I see N.Y. hip-hop like I see N.Y. streets. N.Y. streets are grimy; it's a grind. N.Y. rappers are hustlers - whatever sound is in, we can adapt to that; there's nothing wrong with that.
+- I'm just little me, an American who wants to see his country do better.
+- Hip-hop is bigger than the South; hip-hop is bigger than New York.
+- There was a side of me that knew I was gonna change the game, but I didn't know how many people would respect it.
+- Hip-hop lasted and survived all these years that you have to give it credit. Even though it's not up to people's expectations anymore, its still here, and that's says a lot.
+- Once you make it to your point of making it, you'll appreciate the struggle.
+- I'll always love rap, no matter what's going on.
+- Your look reflects what's happening in your mind. You gotta have some swag to you.
+- I love the art world, I love art galleries, I love what it means - I love art.
+- I definitely have plans to do more collaboration albums in the future. I'm a big fan of Common. I'm a big fan of Scarface; I'm a big fan of so many people, from Jeezy to... well, there are a lot of people's music that I respect. I don't know who I will collaborate with, but there's a great chance of something happening.
+- It's never been seen that a street artist go as far as I've gone - keep consistent without wanting to do a bunch of ventures outside of music to keep my face out there.
+- We're all Africans, everyone - black, white, yellow.
+- Anybody can be a rapper, but not anybody can be a classical artist.
+- Marley is someone before his time, man. He's - he's almost - he's like a deity, like almost, you know what I mean? I just talk about what's going on, but of course, you know, Bob, before rappers, was already laying that kind of thing down.
+- I've been called everything. Gangsta rap. I've been called conscious rap. You know, everything. Whoever feels like calling it whatever they want to call it, that's on them.
+- Every time I get in the studio, I feel like I wanna have some fun. My fun is not doing the easy work. My fun is doing what's me.
+- I think the fact that I made enough noise in the world that I might be remembered is an amazing achievement. You can't ask for more than that.
+- To me, creatively challenging myself is my version of owning the Nets.
+- Hip-hop artists, especially the older ones, are the ones who knew hip-hop was a worldwide phenomenon before the mainstream caught on, so hip-hop artists are forward thinkers. We want to stay with the new.
+- You know, rap is sort of like a form of talking, right? So it's like you can hear, you know, the slaves doing it. You can hear, like, you know, Africans and Jamaicans doing it just kind of as, like, a rhythmic, poetic conversation, you know, to a rhythm.
+- I like the way hip-hop is now. It's grown up enough so that it can get involved with politics if it feels like it.
+- I don't have time for the news clippings. I got my own mission.
+- I don't get jealousy, I don't get how people hate each other - I never did.
+- When you're a teenager, you want to meet a lot of girls - you want to get the most girls. You don't know anything about respect; you don't know anything about being faithful and loyal to your girlfriend.
+- I think marriage is a beautiful thing. I'm still a supporter of it.
+- The sound of the '90s, to me, is a combination of soul and street - it's a feeling.
+- I don't go out unless I'm working. My quality time is when I'm doing nothing.
+- I want to sound like an instrument. I want my voice and my words to marry the beat. I go with the rhythm of it and the words start to come to my mind and those words could be based on things that's been on my mind for the past year, the past month, the past week, whatever; I write it.
+- The things that I have said when I was young and curious about whatever the subject matter was, I respect those - those are growing pains. Even if you make mistakes, I go back to those things, my not-so-great moments because those are my truest moments; those are my human moments. I'm not even mad at the things I said that were a little dicey.
+- Hip-hop is making a lot of noise. It should get some more spotlight.
+- I love PBS! I grew up on it. If I had to say which channels were good, I'd say, you got your PBS, your History Channel, your Discovery.
+- Every generation witnesses atrocities. People in power try to fulfill prophecy.
+- DJs play a big responsibility of what hip-hop is doing... At the end of the day, it's up to us to control and to own hip-hop. DJs need to challenge us rappers. They got so much power, they need to challenge us.
+- I don't want any title. I just say what I say, and hopefully somebody gets it, man. I'm not perfect, and I'm just here and trying to make a dollar, and being real at the same time, you know?
+- Hip-hop is really standoffish. It's really competitive and it's really about who's number one all the time. Sometimes it gets out of hand.
+- I think I've had the longest career of strength, focus, and still being able to sell records. I think I'm that guy. I'm still blessed with the opportunity to make music and pass out a message like, 'Life is good,' to the world.
+- I never stood for any president in my life, never voted, before Barack Obama. It changed my life to vote. It starts there with me. I never cared for politics before Barack Obama. I never thought it mattered to people like me.
+- No matter who you are, black, white, green, there's going to be things in your way, you know what I mean?
+- 'Stillmatic' is the rebirth of 'Illmatic,' my first debut album to come out in 1994. 'Stillmatic' is me coming full circle in my career and with everything, and just bringing pure hip-hop back.
+- No one's promised anything. You could have the biggest record on radio and sell no records.
+- Working with great people makes you great; you learn a lot and it also gives you the experience and confidence to move on with your own career.
+- I can't control what people think. They know who I am.
+- Whenever I received too much praise, it just didn't feel right to me - ever.
+- I think if I heard someone else talking about their life, describing all the problems I've had, they'd look like they were through. Done. But there's something about me - I'm smiling. Those things are really not bad enough to put me in a slump. I'm smiling with the opportunity to wake up every morning.
+- I think hip-hop could help rebuild America, once hip-hoppers own hip-hop... We are our own politicians, our own government, we have something to say. We're warriors. Soldiers.
+- Calling Michelle 'Obama Barack's baby mama?' Tell me, is that acceptable? But the Obamas aren't the only targets. Fox's pattern of race-baiting and fear-mongering regularly focuses on black leaders, black institutions and ordinary black people.
+- Divorce can be crazy. Man, if you're happy... Love is a beast, man. Hold on. Be prepared for any way it may go, and be honest.
+- I'm not talking about Russia in my music. I've never been to Russia. I'm not talking about Africa, Switzerland, China. I'm talking about me being American and growing up in a crazy world and helping to reflect all different sides of life.
+- I just enjoy life now. I just enjoy every morning I get to wake up.
+- You can't please everybody. You'd be crazy if you're trying to. So take some time out to do some things for yourself.
+- When I say 'hip-hop is dead,' basically, America is dead. There is no political voice. Music is dead.
+- I talk about life, and I make universal music with an American style - and that's what I do.
+- Hip-hop is the streets. Hip-hop is a couple of elements that it comes from back in the days... that feel of music with urgency that speaks to you. It speaks to your livelihood and it's not compromised. It's blunt. It's raw, straight off the street - from the beat to the voice to the words.
+- The flaws, the mistakes I make - that's the real me.
+- Anybody I'm dating, I don't want them to talk about my music. I don't talk about my music to them.
+- All fatherhood is very important because single mothers shouldn't have to raise sons or daughters; they need that help.
+- I wish the music business was a much easier thing, but you know what? Nothing easy is worth anything. So it is what it is. There comes a time when things can work out and everybody can be happy. And that's what it's all about in the end - everybody being happy and working it out.
+- When you have a daughter, you want to protect her from the things that I've seen out there, you know, the things that's out there that ain't good for her. It's a crazy world we live in.
+- 'Life Is Good' represents the most beautiful, dramatic and heavy moments in my life.
+- Some people say I'm conscious, some say I'm a gangsta rapper - it's just me doing me. I'm stomping in my own lane. I'm doing what I do.
+- Man, me and Biggie were the biggest artists in New York. When he passed, I was so messed up. My attitude was messed up about him dying. There was an East-West thing back then, and I was in war mode.
+- Africa has been going through so much for so many years; it's time that it stands up the way other nations are standing up.
+- N.Y. hip-hop is ok, but we gotta become brave again; we have to be brave enough and do something new - that's what New York is about... New.
+- Unfortunately, man, a lot of places in America have to deal with unnecessary violence. Somebody like me who knows it firsthand and could relate... I had a best friend killed, plenty other friends killed. I been through it. I seen it.
+- I had a pretty public divorce. They're not easy - divorces - and it took me a long time to really get through.
+- I want to have fun. It's a beautiful life. You learn, you win, you lose, but you get up.
+- Let's not forget, art can sell. You ain't gotta front all the time on your records.
+- My record company had to beg me to stop filmin' music videos in the projects. No matter what the song was about, I had 'em out there.
+- I have no tattoos that I regret - I have had some that I have had changed according to how my life was.
+- I think the hip-hop purists are purists through and through. They're here to criticize all of us. That's just how it is. We as MC's criticize each other. That's the nature of hip-hop.
+- My earliest memories of rap music was mixed with my earliest memories of reggae music. They were big sounds around the way, heavy bass lines, strong messages, definitely.
+- With age comes common sense and wisdom.

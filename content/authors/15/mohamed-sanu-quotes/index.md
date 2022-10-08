@@ -1,0 +1,42 @@
++++
+author = "Mohamed Sanu"
+title = "Mohamed Sanu Quotes"
+quotes_len = "36"
+description = "the best 36 Mohamed Sanu Quotes"
++++
+- I mean, who doesn't love one-on-one match-ups?
+- I play football, that's what I do, and people can bet on me if they want to, and if they don't, then their loss. Then they don't get a share of the wealth.
+- I feel like I bring the juice and the squeeze.
+- Just go out there and play football. Don't make it bigger than it has to be.
+- I want to be a successful businessman outside of football.
+- Get out of the house. A lot of kids play video games and aren't active, and that's one thing I like to do - keep them active and having fun, interacting with other kids.
+- Yeah, I loved playing in Atlanta, I enjoyed it.
+- I would say a lot of it came from a lot of different drills that Coach Fleck put me through. That's my man. He taught me a lot, a lot, a lot about receiver play. And he taught me a lot about catching the ball and just hand placement.
+- I love pressure. I don't know why, but I love the pressure of, 'oh it's third-and-five' or it's the two-minute drill and someone has to make a play. I'm that guy.
+- Ain't nothing going to hold me back.
+- I can move, I'm very shifty and at the same time I'm big.
+- When you drop the ball, it's not about, 'Oh, he can't catch,' or none of that. If you put time into something, of course you can catch. I wouldn't have got drafted if I couldn't.
+- Usually halftime's only like 15 minutes.
+- I know I want to do something with kids and help them become better mentally, physically and emotionally. They're the future after we're gone. So we have to prepare kids to be adults.
+- I think I just need to be consistent in everything that I do.
+- I love the bonds you get to build with your teammates, your brothers.
+- I know what I think of myself and the standard I hold myself to.
+- That's what they pay me to do is catch the football, so I'm going to do my job.
+- If we're all talking about something that doesn't matter, it can be bean talk. If we're talking about something that we're talking about together, it could be bean talk.
+- The book Relentless' is an awesome book. It taught me a lot about just staying consistent, being level-headed, being relentless at what you want to do.
+- It ain't about catching 20, 30 whatever. If I catch two I catch two, if I catch 10 I catch 10, as long as we win, that's all that matters to me.
+- I just pray that us as a country and a world can just be united as one.
+- I can't control what people think about me or how they choose to remember me.
+- I still want to play where I'm valued.
+- Whatever's called I'm going to do my part. If the ball comes my way it comes my way.
+- Part of my craft is catching the ball, so I definitely put a lot of pride into it.
+- There are a lot of guys who football is all they have. And I love football to death, it got me here, it's what I've been doing since I was nine years old, but football ends at a point in time and you've got to be prepared for life after football.
+- The NFL is a business and I accept it for what it is.
+- The NFL is a brotherhood - if you think about all the millions of people that live in America and there's 1,900 people in the NFL. That's not that many, so everybody knows each other.
+- My name's Mohamed, a lot of people know I'm Muslim, but I'm here because of my football talents, not because I'm Muslim.
+- I play because I love the game. I love the process, I love the work, I love playing football.
+- Throughout COVID, I just consistently grinded at my craft. I didn't let COVID get in the way of my goal and the goal is to be the best me that I can be for the team.
+- That's how people get better. Keep progressing, keep competing, and good things will happen.
+- I'm grateful for my time in New England. It taught me a lot. It just didn't gel out how I wanted.
+- I'm just focused on what I've got here in San Fran. I'm excited just to be a part of this team.
+- You put a lot of work into something, a lot of time, a lot of sacrifices, and the time you put in, you want the same result from it.

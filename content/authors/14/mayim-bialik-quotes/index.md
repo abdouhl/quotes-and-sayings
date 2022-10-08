@@ -1,0 +1,61 @@
++++
+author = "Mayim Bialik"
+title = "Mayim Bialik Quotes"
+quotes_len = "55"
+description = "the best 55 Mayim Bialik Quotes"
++++
+- Publicly I'm a very modest dresser, by Hollywood's standards.
+- I do believe babies are born potty-trained. They're born knowing and are able to give subtle signals that become very prominent if you reinforce them.
+- I don't wear pants, or like them; I'm a Jewish woman who's made the decision to wear skirts, so I wear mostly skirts past the knee.
+- One of the best things my mother passed on to me was being an efficient multitasker.
+- I'm a pretty quiet person.
+- The fact is safe co-sleeping is not difficult. The notion of babies being smothered is simply not true. And the benefits of sleeping together are profound.
+- Attachment parenting is not a passive parenting style.
+- I like bold colors but usually wear black.
+- I started acting because I enjoyed school plays.
+- When you're used to being prepared to reject conventional wisdom, it leaves you open to learn more.
+- I'm good with a script.
+- Well, I mean, I'm still a scientist, you know. I think once a scientist, always a scientist.
+- Being a caregiver for your child is part of the job description of being a mammal.
+- I came to parenting the way most of us do - knowing nothing and trying to learn everything.
+- It used to be that if you were on a sitcom you couldn't get work in film because it was so different. Now it's almost like you have to be on TV to do other film work.
+- Sleeping with your child, wearing your child in a sling as opposed to pushing them around in expensive strollers, those are things that matter biologically and sociologically for the structure of a family.
+- I get maybe four hours of sleep a night. I'm a little bit crazy.
+- There's a tremendous amount to be gained from being a performer, and being an artist, and being an actor.
+- I basically look like a lot of modern Orthodox people you know, but I work on a TV show where I sometimes have to kiss Jim Parsons. That's why I don't take on the title of modern Orthodox, but in terms of ideology and theology I pretty much sound like a liberal modern Orthodox person.
+- Actors are a lot like professors on dissertation committees - it's a lot of ego, a lot of rallying for position, there is a lot at stake in every single interaction.
+- I don't look like most women in the industry.
+- Even as a child, I felt very guilty about eating animals and never knew that there was something to do about it. And as I got older, it became clearer that there are things that I can do and choices I can make.
+- I think neuroscience is obviously very esoteric, but I think there are aspects of it that can absolutely be brought down to the level of an interested 11-, 12-, 13-year-old easily.
+- I'm big on my kids being conventionally polite, and it works really well for them.
+- I've never had a sinus infection or been on antibiotics since cutting out dairy.
+- I like army boots, I like peasant skirts - sometimes together! So I do know that I have odd taste.
+- My first son didn't really take a bottle, and I didn't like giving bottles.
+- I'm technically a vegan, but I do eat egg if it's in things.
+- I'm super grateful to be an employed actor.
+- I'm definitely on the spectrum of socially awkward.
+- I'm generally intimidated by adults.
+- I was raised on the purest comedy there is: 'I Love Lucy.' I was raised watching 'Three's Company' and sitcoms of the '70s and '80s.
+- The most empowering feminist act is for women to be taught about the ways babies bond and then decide what they want to do.
+- A lot of stuff I wear I've had since high school.
+- You don't have to be an at-home parent to be an attachment parent.
+- Auditions are hard. You should see what most of the women look like when I audition for things - they look like they should be on the catwalk.
+- I don't care much about conforming.
+- Breast-feeding is the natural, optimal way to feed a child.
+- I'm one of those people that makes a better adult than I did a kid.
+- I've become sort of an accidental advocate for attachment parenting, which is a style of parenting that... basically, the way mammals parent and the way people have parented for pretty much all of human history except the last 200 years or so.
+- I was raised on comic books, and I love science fiction.
+- To be honest, it's considered very late to start acting at 11 and a half, for the industry. Most kids are doing it from toddlerhood on.
+- I have a life. My kids don't run my house.
+- As a kid, I felt really weird.
+- I have a neuroscience background - that's what my doctorate is in - and I was trained to study hormones of attachment, so I definitely feel my parenting is informed by that.
+- I'm one of those people that thinks the Internet is amazing, and I can't believe it exists.
+- Drama is what I did before 'Blossom.'
+- I think a lot of times on TV we see caricatures - that's what's funny.
+- It's wonderful to be appreciated for being quirky, and to see Zooey Deschanel and the quirky, indie film types get mainstream play is amazing for women, because women are much more complicated than what we've see on TV in the past.
+- I don't want to say everything happens for a reason but every day is lined up right next to the other one for a reason. The best you can do is do each day well with kindness and as a good person.
+- Relationships are complicated no matter what style of parenting you choose.
+- I'm concerned about the ocean and the environment. And I love whales.
+- The level of communication you can achieve with an infant is really profound.
+- You know, there's a tremendous amount of genetic propensity not necessarily for what TV shows you like but for literally how you view the world, how you react to things, how things touch you and how things move you.
+- I was always kind of a school person - my parents were teachers, and my grandparents were immigrants, so their big thing was, 'Go to college, go to college, go to college.'

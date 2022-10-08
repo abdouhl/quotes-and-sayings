@@ -1,0 +1,12 @@
++++
+author = "Janine Shepherd"
+title = "Janine Shepherd Quotes"
+quotes_len = "6"
+description = "the best 6 Janine Shepherd Quotes"
++++
+- I know that I'm not my body, and I also know that you're not yours.
+- When I got home from hospital, and I was in a wheelchair in a plaster body cast, an aeroplane flew over. And I thought to myself, 'Well, if I can't walk, then I might as well fly.' And I was lifted into the aeroplane for the first time. And when I took the controls of the aeroplane, I knew this was something I could do. I thought, 'I can fly.'
+- I say to people that it's a choice that we make every day in our lives. Doesn't matter what you're going through. You don't have to be going through what I went through. But it's whether you decide to get up or stay down, whether you say 'yes' or whether you say 'no' to life. Basically, I decided to say, 'Yes.'
+- I think aerobatic pilots make the best pilots because you know, you're just so confident in an aeroplane. If you're gonna get into trouble, I'd rather be with someone that's a skilled aerobatic pilot.
+- We can think so much about life and take ourselves so seriously; I mean, I like to tell people, 'Don't take life too seriously' because you'll cloud the experience. That's what the meaning of life is to me - being able to enjoy the moment.
+- Life is about opportunities, creating them and embracing them, and for me, that was the Olympic dream. That's what defined me. That was my bliss.

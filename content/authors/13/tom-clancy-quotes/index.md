@@ -1,0 +1,47 @@
++++
+author = "Tom Clancy"
+title = "Tom Clancy Quotes"
+quotes_len = "41"
+description = "the best 41 Tom Clancy Quotes"
++++
+- Learn to write the same way you learn to play golf. You do it and keep doing it until you get it right.
+- The only person who has artistic control is the director, and 'director' is how you spell God in Hollywood.
+- Fighting wars is not so much about killing people as it is about finding things out. The more you know, the more likely you are to win a battle.
+- Success will ruin your life.
+- Whenever somebody comes up with a good idea, there's somebody else who has never had a good idea in his life who stands up and says, Oh, you can't do that.
+- I think about the characters I've created and then I sit down and start typing and see what they will do. There's a lot of subconscious thought that goes on. It amazes me to find out, a few chapters later, why I put someone in a certain place when I did. It's spooky.
+- Life is about learning; when you stop learning, you die.
+- Helicopters don't fly, they vibrate so badly the ground rejects them.
+- I was one of the first generations to watch television. TV exposes people to news, to information, to knowledge, to entertainment. How is it bad?
+- The good old days are now.
+- There used to be this country called the Soviet Union; it's not there anymore. Our technology was better than theirs.
+- Books and movies are different art forms with different rules. And because of that, they never translate exactly.
+- The difference between fiction and reality? Fiction has to make sense.
+- There was a time when nails were high-tech. There was a time when people had to be told how to use a telephone. Technology is just a tool. People use tools to improve their lives.
+- People live longer today than they ever have. They live happier lives, have more knowledge, more information. All this is the result of communications technology. How is any of that bad?
+- In the Soviet Union it was illegal to take a photograph of a train station. Look what happened to them. They tried to classify everything.
+- Wars are begun by frightened men.
+- Probably what pushed the Russians over the edge was SDI. They realized they couldn't beat us.
+- Before, it was always, 'Oh, no, here comes Clancy, that insurance agent.' Now it's, 'Oh, here comes Tom Clancy, bestselling author.' But I'm still the same basic middle-class slob.
+- Never ask what sort of computer a guy drives. If he's a Mac user, he'll tell you. If not, why embarrass him?
+- Ebola is a nasty disease to get. It's scary. But as a weapon, it is probably not likely. Ebola is a difficult malady to weaponize and deliver efficiently.
+- Fundamentally, I think of myself as a storyteller, not a writer.
+- Nothing is as real as a dream. The world can change around you, but your dream will not. Your life may change, but your dream doesn't have to. Responsibilities need not erase it. Duties need not obscure it.
+- Show me an elitist, and I'll show you a loser.
+- It's not right to say that our loss in Vietnam turned out to be a gain. But lessons were learned. And they were the right lessons.
+- The objective of a terrorist is to create political change in the society he targets.
+- Man is a creature of hope and invention, both of which belie the idea that things cannot be changed.
+- Collaboration on a book is the ultimate unnatural act.
+- When I was doing 'Executive Orders,' I talked about Ebola to people who know about infectious diseases and their use as weapons of war, and guys told me that these weapons are more psychological than physical.
+- The human condition today is better than it's ever been, and technology is one of the reasons for that.
+- I've made up stuff that's turned out to be real, that's the spooky part.
+- In battle, you forgive a man anything except an unwillingness to take risks. Sometimes you have to put it on the line.
+- I think about the characters I've created, and then I sit down and start typing and see what they will do. There's a lot of subconscious thought that goes on. It amazes me to find out, a few chapters later, why I put someone in a certain place when I did.
+- The U.S. Military is us. There is no truer representation of a country than the people that it sends into the field to fight for it. The people who wear our uniform and carry our rifles into combat are our kids, and our job is to support them, because they're protecting us.
+- What do I know about sex? I'm a married man.
+- I wanted to see my name on the cover of a book. If your name is in the Library of Congress, you're immortal.
+- No matter what you or anyone else does, there will be someone who says that there's something bad about it.
+- America is the most inventive country in the world because everybody has access to information.
+- The role of fiction is supposed to be divorced from the role of reality.
+- There are two kinds of people: the ones who need to be told, and the ones who figure it out all by themselves.
+- The control of information is something the elite always does, particularly in a despotic form of government. Information, knowledge, is power. If you can control information, you can control people.

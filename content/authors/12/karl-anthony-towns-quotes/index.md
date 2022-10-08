@@ -1,0 +1,106 @@
++++
+author = "Karl-Anthony Towns"
+title = "Karl-Anthony Towns Quotes"
+quotes_len = "100"
+description = "the best 100 Karl-Anthony Towns Quotes"
++++
+- I've always loved myself, always.
+- I live my life very Amish-like. Other than video games, I don't think I have a reason for electronics. It's a life that I've always loved.
+- You got to earn your buckets and earn your respect.
+- Anything I put my name on, I make sure I put my 110 percent towards it.
+- Other than basketball, I just come to KG for advice on life, just understanding how business works and understanding how I can be a better leader and also be a better human being.
+- I'd even say possibly I'm one of the best gamers in the NBA. I play everything. I play every single type of genre game.
+- I work on my body tremendously to be able to withstand whatever is thrown my way.
+- I think the biggest thing with me is that I just pride myself on being the best human being I can be.
+- When you're in part of the same draft class, you always have a certain connection that not many other people can have with each other.
+- My rookie year was so much easier, and it was so much shorter than most rookies due to the fact that I had KG. That changes everything. I was blessed to have the opportunity to play with KG - not only learn but play with KG. Not many people in the NBA are able to say that.
+- When we're doing everything we can to win, it's very fun.
+- I just feel that if you're the best human being, God will bless you with success.
+- I remember being back in Knollwood Middle School back in Piscataway. I remember waking up Saturday mornings playing with my age group and the age group above me.
+- You dwell too much on the past, you forget that you've got to take care of the present.
+- We need to find ways to grow as a team and get better to be the best team possible.
+- I've been a dedicated 'NBA 2K' fan since I was young, and being selected as the face of 'MyNBA2K17' is an incredible milestone this early in my career.
+- I think the biggest thing I want to learn from Kevin Garnett, with him having a ring, is how do I become a championship player? How do I see how a championship team looks like? How do I use myself to be a championship contributor?
+- Playing 'MyNBA2K' and 'NBA2K' is an essential part of my offseason and keeps me grounded during the season with all my travel.
+- My favorite memory of Kevin Garnett is not a memory - it's more of the experience I had with him for a year, just enjoying that moment of being his teammate, conversing with him every single day, learning from him every single day.
+- I love the game so much, I just want to play every time I can.
+- Anytime someone expects something from me, I expect about five times more from myself.
+- Marc Gasol, he's one of the hardest people to guard. His ability to pass, shoot, and his size is something that can be a benefit to him a lot.
+- You've gotta play a head game; especially blocking shots, you've gotta make it hard. You're playing against the best of the best: they're not gonna go straight to the basket, do a layup. You've gotta lure them into some shots.
+- It's amazing, the things you learn, the experiences you go through, the feeling of being like a rock star that goes with being a University of Kentucky basketball player. Just the ability to feel fame for the first time - that's something Kentucky gives you.
+- I'm never happy about anything, playing-wise. I always think there's things I messed up on, things I should've done differently that could've, A, made us win, or B, made the win easier.
+- I do not know how it is to be a great player, to be a Hall of Famer. I want to learn.
+- People who know me know I'm never satisfied.
+- Many people are in need of new shoes.
+- You've got to win. You've got to win to be respected in this league.
+- Every matchup is very important regardless of who the bigs are, who the guards are.
+- When I was on the chubbier side, I thought that whatever God and whatever my body told me to be at that time, that's what it was. I'd say I grew more of an understanding about my body probably around my senior year in high school. I understood my body physically as an athlete.
+- I only worry about what I can control.
+- It doesn't matter if it's game one or game 82, playoffs or whatever. Sometimes the basketball gods don't play in your favor that night.
+- I always have a motto: if it's going in-and-out one night, then the next opponent should be worried.
+- It's great for people who like the teamwork and that also like the commando style, and that's why I think 'Call of Duty' is so successful.
+- I want to be the strongest player, the most intelligent player, and the most skilled player on the court at all times.
+- I ain't no quitter: I'm a competitor.
+- Flip Saunders is a great coach and a great guy. Glen Taylor is the same way. He's a great human being.
+- I'm very passionate, and I love the game I play.
+- Thanks to my dad, I've always had it. He always told me how important it was to be versatile. Every time we worked out in the gym, it was always all the skills, not just being a big man.
+- The thing is, you don't ever want to have pressure turn to stress.
+- I work hard on my game.
+- I think it's just fun when you're being competitive and when you're in the game and winning.
+- I could care less about statistics. It's all about team success.
+- People feel that I have overachieved, but I feel that, myself, that I work tremendously hard in the gym. I feel almost I have underachieved a little bit.
+- I've talked to a lot of NBA superstars and legends about how I can improve my IQ offensively and defensively.
+- If you're versatile, there's no reason a coach can't have you in the game. That's what my dad's philosophy was, so from a young age, he taught me to be a guard first and a big second, though I don't think he had a crystal ball to be able to see what the NBA would become.
+- I have a huge admiration for fans in China. I think they're some of the greatest basketball fans in the world. I think they're passionate and love the game, almost second to none.
+- The personal impact KG has had on me is life-changing. He's been the most important piece to my career in the NBA and one of the best friendships I have in my life. So I'm always blessed to say that he's my brother. We bonded so well because of how passionate and emotional we both are.
+- It's amazing what video games have obviously done for not only the industry and for entertainment but for the world and social interactions.
+- Those are the ones you look forward to: going against a great, talented player, someone who's going to be in this league for a long time, who you're going to be seeing for a long time. Get a chance to go out, compete, and just have fun. Those are the fun match-ups.
+- All those teams I was on that were successful were the ones that everyone had love for each other and had fun. Things that seem minuscule - joking around, laughing, conversing, all those things that seem childish - that is what builds camaraderie.
+- When you're talking to legends, they've already went through this process of playing in the NBA and also living after their career is over. Being able to hear their stories, how they've had success and others have had success to get an idea of what we should be looking to do and know what we need to do is just really helpful.
+- I've been blessed that my dad taught me at a young age about versatility and how to not be specialized in one area, so it's made my transition from each step in my career very comfortable because I had the fundamentals and the foundation to do anything the coach needed me to do.
+- You never think that you're going to be in the NBA but be an All-Star as well.
+- The defense will tell you who shoots the ball. If it comes down to them trying to take the ball out of my hands, I trust my teammates to go out there and make every shot.
+- I'm not a guy who's about the material things.
+- It's hard to get me to even say I played good. That's just in me. I'm just never satisfied. A lot of my friends get annoyed by it.
+- I thank God every day that I get a chance to do all these great things in a Timberwolves jersey.
+- That's why esports is so awesome: it's just like professional sports.
+- These guys, just because we're NBA athletes, we're not superhumans.
+- One of the things that has benefited me in my career is being part of the new age of technology: the ability growing up to get on the Internet at friends' houses and go on YouTube and watch videos of great players.
+- It doesn't matter how successful or how unsuccessful a team is. It can all change with one pick.
+- Especially when you're a leader, you have to do the things that aren't the popular choice. But that's fine, you have to be able to make those decisions, without a doubt.
+- For me, it's about trying to do everything I can to help us win. Try to bring that energy every night, try to make it as contagious as possible and try to win a game.
+- When you have a player like Tyus Jones, instantly chemistry is made.
+- Never get too high; never get too low.
+- It doesn't matter to me where I play. It matters what you do at the place you play at.
+- I love Minnesota. The cold is fine with me, being from New Jersey.
+- Winning's always fun.
+- I think the biggest thing is, you have to understand the different rules. There are so many rules that change from college to the NBA. Change of pace is a big thing, also.
+- I'm an Eagles fan since I was young. I'm always going to stay loyal to my team.
+- We expect nothing but greatness from ourselves.
+- When everyone is buying into a system and puts their ego to the side, that's when greatness happens.
+- I've never felt like I've had a good game.
+- I compete at the highest level every single night, regardless what the outcome is.
+- I take what the defense gives me, and I roll with it.
+- My family brings me great energy.
+- I'm not too worried about points and all that stuff. It's about making the right play.
+- I love playing all types of games. I'll play everything, and the best thing is that 'Call of Duty' is dipping their hand in the battle royale genre. Anytime 'Call of Duty' puts their hands on anything, you know it's going to be the highest quality, so I expect nothing less of 'Call of Duty,' and they're delivering.
+- I think people are going to be surprised at how long my legs are compared to my torso, and my arms as well - I am a very lanky fellow.
+- I don't necessarily view myself as a big - I view myself just as a player, someone who can go out there and contribute to the team from any position.
+- I'm in the search for the perfect game.
+- Great teams, you see players working off of wavelengths. Telepathic, not even actual physical things.
+- I think my personality is not because I was born this way but because I was raised this way. I was raised with a lot of fun, a lot of joy, a lot of happiness, a lot of passion, and that's how my family is.
+- It's an honor to be named Rookie of the Year by the media.
+- If you want to be great, there are so many talented players who have come in and out the league. But only a few of them are remembered as being great. It's because they were willing to say they don't know. And I'm willing to say that I don't know everything.
+- We always have great practices, and the competition is high, and the intensity is high; it's just about doing that now in a game and sustaining it for 48 minutes.
+- We put pressure on ourselves because we want to be so great; we want to be the best team possible that we can be.
+- You just gotta change your game to the environment.
+- I've got an addiction to this game. An addiction to being perfect.
+- That's what my game is built around: versatility.
+- When you have a person like him who is going to tell you throughout the year about how to deal with little bumps in the road as the No. 1 pick, there's no one better to have than Andrew Wiggins.
+- Growing up, I'd always been told that my biggest weakness was my body and how that was probably going to hold me back from accomplishing my dreams.
+- When you have someone who is with you every step of the way and is trying to help you and guide you to the right direction, it just makes life much easier but also makes life more fun.
+- Every time I get to lace up my shoes, I am happy. Every time I see my jersey and I get to put it on, I feel like a kid in the candy store. Every time I get the chance to play, I am going to play.
+- When you have the chance to go against a brother of yours on the court, you're always looking at each other like, If you score, we're looking at each other. If I score, I'm looking at him.
+- When I was younger, I was taught to be as versatile as possible.
+- If we play defense the way we're supposed to and we play defense the way we do here in practice, we should have no problems against most of the teams in the league, and other teams, it'll be a great fight.
+- I love that I will have the opportunity to connect further with my fans through 'MyNBA2K17.'

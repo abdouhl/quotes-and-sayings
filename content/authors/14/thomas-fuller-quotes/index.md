@@ -1,0 +1,117 @@
++++
+author = "Thomas Fuller"
+title = "Thomas Fuller Quotes"
+quotes_len = "111"
+description = "the best 111 Thomas Fuller Quotes"
++++
+- Cruelty is a tyrant that's always attended with fear.
+- One may miss the mark by aiming too high as too low.
+- If you command wisely, you'll be obeyed cheerfully.
+- He is poor indeed that can promise nothing.
+- Vows made in storms are forgotten in calm.
+- Better a tooth out than always aching.
+- Wine hath drowned more men than the sea.
+- Many come to bring their clothes to church rather than themselves.
+- Memory is the treasure house of the mind wherein the monuments thereof are kept and preserved.
+- An invincible determination can accomplish almost anything and in this lies the great distinction between great men and little men.
+- Better break your word than do worse in keeping it.
+- Compliments cost nothing, yet many pay dear for them.
+- Change of weather is the discourse of fools.
+- Poor men's reasons are not heard.
+- A little skill in antiquity inclines a man to Popery.
+- Bad excuses are worse than none.
+- We ought to see far enough into a hypocrite to see even his sincerity.
+- Leftovers in their less visible form are called memories. Stored in the refrigerator of the mind and the cupboard of the heart.
+- Music is nothing else but wild sounds civilized into time and tune.
+- Prayer: the key of the day and the lock of the night.
+- Great hopes make great men.
+- With foxes we must play the fox.
+- All doors open to courtesy.
+- The fool wanders, a wise man travels.
+- There is more pleasure in loving than in being beloved.
+- Better be alone than in bad company.
+- Pride perceiving humility honorable, often borrows her cloak.
+- There is nothing that so much gratifies an ill tongue as when it finds an angry heart.
+- Be the business never so painful, you may have it done for money.
+- All commend patience, but none can endure to suffer.
+- Learning hath gained most by those books by which the printers have lost.
+- He that hopes no good fears no ill.
+- Despair gives courage to a coward.
+- If thou art a master, be sometimes blind; if a servant, sometimes deaf.
+- He that has one eye is a prince among those that have none.
+- A good garden may have some weeds.
+- Charity begins at home, but should not end there.
+- Let him who expects one class of society to prosper in the highest degree, while the other is in distress, try whether one side; of the face can smile while the other is pinched.
+- He's my friend that speaks well of me behind my back.
+- Choose a wife rather by your ear than your eye.
+- If you have one true friend you have more than your share.
+- Today is yesterday's pupil.
+- Thou ought to be nice, even to superstition, in keeping thy promises, and therefore equally cautious in making them.
+- Slight small injuries, and they will become none at all.
+- No man can be happy without a friend, nor be sure of his friend till he is unhappy.
+- 'Tis better to suffer wrong than do it.
+- The patient is not likely to recover who makes the doctor his heir.
+- Light, God's eldest daughter, is a principal beauty in a building.
+- A good horse should be seldom spurred.
+- Anger is one of the sinews of the soul.
+- Care and diligence bring luck.
+- With devotion's visage and pious action we do sugar o'er the devil himself.
+- A gift, with a kind countenance, is a double present.
+- Eaten bread is forgotten.
+- The devil lies brooding in the miser's chest.
+- If it were not for hopes, the heart would break.
+- We are born crying, live complaining, and die disappointed.
+- If an ass goes travelling he will not come home a horse.
+- He knows little, who will tell his wife all he knows.
+- He does not believe that does not live according to his belief.
+- Pride will spit in pride's face.
+- Bacchus hath drowned more men than Neptune.
+- He that has a great nose, thinks everybody is speaking of it.
+- Abused patience turns to fury.
+- Fame is the echo of actions, resounding them to the world, save that the echo repeats only the last art, but fame relates all, and often more than all.
+- He that travels much knows much.
+- Two things a man should never be angry at: what he can help, and what he cannot help.
+- A book that is shut is but a block.
+- Contentment consist not in adding more fuel, but in taking away some fire.
+- He that cannot forgive others breaks the bridge over which he must pass himself; for every man has need to be forgiven.
+- Unseasonable kindness gets no thanks.
+- An ounce of cheerfulness is worth a pound of sadness to serve God with.
+- It is madness for sheep to talk peace with a wolf.
+- A good friend is my nearest relation.
+- In fair weather prepare for foul.
+- A fox should not be on the jury at a goose's trial.
+- A man's best fortune, or his worst, is his wife.
+- A conservative believes nothing should be done for the first time.
+- Every horse thinks its own pack heaviest.
+- A man is not good or bad for one action.
+- There is a scarcity of friendship, but not of friends.
+- A man in passion rides a horse that runs away with him.
+- Absence sharpens love, presence strengthens it.
+- He that falls into sin is a man; that grieves at it, is a saint; that boasteth of it, is a devil.
+- Health is not valued till sickness comes.
+- Though bachelors be the strongest stakes, married men are the best binders, in the hedge of the commonwealth.
+- A wise man turns chance into good fortune.
+- Don't let your will roar when your power only whispers.
+- A fool's paradise is a wise man's hell!
+- If you would have a good wife, marry one who has been a good daughter.
+- Better one's House be too little one day than too big all the Year after.
+- First get an absolute conquest over thyself, and then thou wilt easily govern thy wife.
+- Travel makes a wise man better, and a fool worse.
+- 'Tis not every question that deserves an answer.
+- All things are difficult before they are easy.
+- We have all forgot more than we remember.
+- Memory depends very much on the perspicuity, regularity, and order of our thoughts. Many complain of the want of memory, when the defect is in the judgment; and others, by grasping at all, retain nothing.
+- It is more difficult to praise rightly than to blame.
+- Get the facts, or the facts will get you. And when you get em, get em right, or they will get you wrong.
+- Men are more prone to revenge injuries than to requite kindness.
+- Great is the difference betwixt a man's being frightened at, and humbled for his sins.
+- Nothing is easy to the unwilling.
+- He is not poor that hath not much, but he that craves much.
+- 'Tis skill, not strength, that governs a ship.
+- One that would have the fruit must climb the tree.
+- A drinker has a hole under his nose that all his money runs into.
+- Old foxes want no tutors.
+- Scalded cats fear even cold water.
+- The more wit the less courage.
+- Zeal without knowledge is fire without light.
+- A lie has no leg, but a scandal has wings.

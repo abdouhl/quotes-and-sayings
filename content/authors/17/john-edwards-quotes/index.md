@@ -1,0 +1,40 @@
++++
+author = "John Edwards"
+title = "John Edwards Quotes"
+quotes_len = "34"
+description = "the best 34 John Edwards Quotes"
++++
+- There's a lot of America that's Christian. I would not describe us, though, on the whole, as a Christian nation.
+- I'm not sure I had a political career for the future anyway. I'm not sure that politics was what I wanted to spend my life doing.
+- South Carolina, as a matter of compromise, displays the Confederate flag on a flagpole in front of the state capitol. Because I grew up in the South and believe that the Confederate flag is a very divisive symbol, I have stated publicly a number of times that I believe that South Carolina should remove the flag from the state capitol grounds.
+- The president of the United States actually has to be able to walk and chew gum at the same time.
+- I have grown up in the bright light of America.
+- We ought to follow through on an idea that was first proposed by President Clinton to allow people over the age of 55 who are not eligible for Medicare into the Medicare system, at cost, and below cost for those who can't afford it. That takes care of a significant number of the people who don't have health insurance.
+- I'd say if you live in the United States of America and you vote for George Bush, you've lost your mind.
+- The president said that he would unite this country, that he was a uniter, not a divider. Have you ever seen America more divided? Have you ever seen Washington more divided?
+- I think an Edwards-Kerry ticket would be powerful.
+- I think that America is a nation of faith. I do believe that. Certainly by way of heritage - there's a powerful Christian thread through all of American history.
+- The facts are the vice president's company that he was CEO of, that did business with sworn enemies of the United States, paid millions of dollars in fines for providing false financial information, it's under investigation for bribing foreign officials.
+- I would not, under any circumstances, try to impose my personal faith and belief on the rest of the country. I don't think that's right. I don't think that's appropriate.
+- I was wrong to vote for this war. Unfortunately, I'll have to live with that forever. And the lesson I learned from it is to put more faith in my own judgment.
+- I was slapped down to the ground when my son Wade died in 1996, in April of 1996.
+- I want to be a champion for the people I have fought for all my life - regular people.
+- I'm their sole parent, and there is nothing more important than being the best father I can be.
+- If we do the work that we can do in this country, the work that we will do when John Kerry is President, people like Christopher Reeve will get up out of that wheelchair and walk again.
+- I believe that presidential candidates actually have a responsibility to point out substantive differences: to point out perspectives that are different.
+- The fact that women are paid 73 cents on the dollar for work equivalent to work being done by men is unacceptable in America.
+- I am Quinn's father. I will do everything in my power to provide her with the love and support she deserves.
+- My faith informs everything I think and do. It's part of my value system. And to suggest that I can somehow separate and divorce that from the rest of me is not possible.
+- There is so much work to be done to treat gays and lesbians and gay and lesbian couples with the respect that they're entitled to. They deserve, in my judgment, partnership benefits. They deserve to be treated fairly when it comes to adoption and immigration.
+- I actually defeated an incumbent Republican senator who was part of the Jesse Helm's political machine in North Carolina, the result of which is I'm now the senior senator from North Carolina instead of Jesse Helms, which is a very good thing for this country.
+- There's no question that I've done wrong. I take full responsibility for having done wrong. I will regret for the rest of my life the pain and the harm that I've caused to others. But I did not break the law.
+- America's families will be safer in a world where we're strong, where we're engaged, but where we're respected.
+- In 2006, 2 years ago, I made a very serious mistake. A mistake that I am responsible for and no one else. In 2006, I told Elizabeth about the mistake, asked her for her forgiveness, asked God for his forgiveness.
+- Faith is not a political strategy and should not be a political strategy. If it is being used as a tool to garner votes, to convince people they should support one political party or the other, I think that is a huge mistake.
+- I'm in love with one woman. I've been in love with one woman for 31 years. She is the finest human being I have ever known.
+- In America we believe that every child, no matter where they live, who their family is, or what the color of their skin, is entitled to as good an education as the richest parent in America can give to their children.
+- This is America, where everything is still possible.
+- I don't think God's through with me.
+- I didn't get to the Senate by accident.
+- I went from being a senator, a young senator, to being considered for vice president, running for president, being a vice presidential candidate, and becoming a national public figure. All of which fed a self-focus, an egotism, a narcissism that leads you to believe that you can do whatever you want.
+- If you want to beat me up, feel free. You cannot beat me up more than I have already beaten up myself.

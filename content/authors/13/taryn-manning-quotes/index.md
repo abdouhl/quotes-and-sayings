@@ -1,0 +1,38 @@
++++
+author = "Taryn Manning"
+title = "Taryn Manning Quotes"
+quotes_len = "32"
+description = "the best 32 Taryn Manning Quotes"
++++
+- I would go visit my mom on Sundays, and my brother was working on stuff. I'd go in there and sing a little melody, then we started working with words and the next thing you know it was just born organically without really trying.
+- I went through the process of auditioning like every other struggling actress in this town.
+- It could be fun to sing with Prince or Michael Jackson. Justin Timberlake has an amazing new sound now.
+- I just had to find something else to fulfill me. Always being a singer and writing, it was a blessing. My brother started making music that was the kind of music I always saw myself singing.
+- Through teaching myself how to be happy and get through things, I hope I can also do that for other people.
+- I'm not really into movies on dates because you can't chat it up.
+- The Wreckoning is a darker song. But the record is positive.
+- I play, in real life, Kim, who is actually Marshall Mathers ex-wife as of now. She lies and says she is pregnant because she really wants to keep him and he figures her out.
+- I just get focused on whatever is in front of me. When I was filming Crossroads, it had all my focus. Now I'm all focused on finishing my recording so I can get that out. It's just day by day.
+- My dad was a musician and I traveled around with him, so it was something that I knew.
+- I would say our sound is soul pop.
+- There's really nothing else I'm going to do with my life. I'd be useless if I weren't singing or acting.
+- It's really hard for actors to cross over and get any respect as a singer, and if I could just keep it separate and not use my music in movies, it's cool.
+- It's just different in the music world. You come more with an entourage.
+- We wanted to write a whole song about partying and then taking Yellow Cabs home. That's the weirdest topic we've ever thought of centering a song around.
+- It's actually harder to write a fun song.
+- If you are being weird or silly you can be excused because you are just playing a character.
+- There's definitely a whole different vibe on the set when there's like basically royalty working with us. We could have whatever we wanted. I felt like Britney Spears.
+- As a brother and sister, our tastes were pretty different growing up. He liked a lot of early hip hop. My dad didn't understand it and would try to talk him out of it.
+- After reading Eminem's autobiography, which I did because I'm so interested in him as an artist, I respect him a lot. Even though he seems angry and mad, he's had to fight so many demons in his life.
+- It was Britney's movie. I liked that movie. It didn't get too much love, but a lot of people really liked it.
+- Lauren Hill, I always have her solo CD nearby. I have Coldplay, Radiohead, just a mix.
+- Even though it seems like there are a lot of parts, there is really tons of downtime in the acting world.
+- When we saw our plane on TV as breaking news, it was the most surreal experience. A lot of the women were crying. There was a gentleman who was writing in his journal and crying. Seeing that isn't easy.
+- I'm more like an animalistic rock chick.
+- Alison Lohman is an amazing actress. I was so proud to work with her.
+- Some people might say I need to learn how to relax.
+- After we wrote The Wreckoning, our record label did listen.
+- That's why I'm an actress, to do something completely opposite from myself.
+- The most interesting place I've gone on location was New Orleans.
+- I'm definitely the worker. My brother is the jokester.
+- My singing is my hobby. It's me and my brother. We just enjoy writing music.

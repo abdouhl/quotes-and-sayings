@@ -1,0 +1,31 @@
++++
+author = "Nonito Donaire"
+title = "Nonito Donaire Quotes"
+quotes_len = "25"
+description = "the best 25 Nonito Donaire Quotes"
++++
+- As long as I have that support from my team, and I have that confidence in myself that I train really hard, I think there's no one out there who can defeat me in my weight class.
+- The motivation is in my heart to work toward my goals and my dreams.
+- I liked Roy Jones, Sugar Ray Leonard, Ali... those were the guys I was looking at growing up.
+- For punches I never really choose, I take whatever opportunity is given to me. If it's a left, I'll take it. If it's a right I'll take it.
+- Everything in our family was always boxing. It was the life my father chose for me.
+- As a boxer, you have to put risk in to get to another level.
+- If there's a best, I want to fight them.
+- A lot of guys just punch with their arms; they don't utilize every part of their muscles they can use. I know how to use that, and that's where the power comes in.
+- I was always scared in the amateurs, but the minute I got in the ring it was like another person took over. I become more vicious. In there I love to hurt people. Outside I can't hurt a bug.
+- All I know is that I'm proud to be Filipino.
+- I was 11 when I started boxing. My brother was fighting before I did, and he got me into it.
+- Even the other kids who people made fun of made fun of me. That's where I stood on the school food chain.
+- I love my wife.
+- With me, boxing's a beautiful sport.
+- The best feeling is to win by knockout.
+- I have a lot of respect for Mexico.
+- I was always into cartoons and animation.
+- In school I was pretty fast.
+- People call me a nerd because I like to spend time on the computer.
+- My Internet friends who I play games with say, 'This guy's a fighter?' I'm the last person they expect to be a fighter.
+- Moving up and fighting the best keeps me hungry.
+- I'm not into being competitive. I never saw myself as a competitive type of person.
+- Usually, sprinting is my main source of energy and recovery time because that's how I move.
+- Being a world champion is something I'm already proud of and can take for the rest of my life.
+- Growing up as an amateur, I wasn't much of a power puncher. I was more of a speed guy.

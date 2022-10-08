@@ -1,0 +1,40 @@
++++
+author = "Michael Mina"
+title = "Michael Mina Quotes"
+quotes_len = "34"
+description = "the best 34 Michael Mina Quotes"
++++
+- I don't know if you call a burger 'recession food.' It's comfort food.
+- There are two ways to look at how life works and how people find their paths. One way is you take your time and try different things out. The other is you settle in early. I was into cooking very early.
+- I did want to share with you one of the greatest lessons I've learned over the years cooking for my kids - there is enormous value in bringing children into the kitchen.
+- I take after my mother more than my father in terms of personality. My mother's a worrier, and I'm a worrier. Both were very good with numbers and mathematics, so I kind of got that from both of them.
+- I'm not a big breakfast eater.
+- When designing a kitchen, always keep in mind the social aspect.
+- Food is all about balance; it is all about taste.
+- With chefs, the problem is we have to be very confident because people are looking at us for that. So pretty soon, you think you're a plumber, you think you're an electrician, you think you're an accountant.
+- When I first went to Las Vegas, I thought I would never go to Las Vegas; you can't get anything. But then I realized that they were trucking in almost everything; you could get a lot of your product, and I think that's why a lot of chefs actually went there.
+- Chefs become attracted to being able to get product and then clientele - those are the two things that attract you as a chef.
+- I'd rather have Daniel Boulud have 20 restaurants than some restauranteur. It's going to make the food in our country better.
+- Guests love to be 'wowed' in Las Vegas. They enjoy and embrace new tastes, new flavors, and they come to expect the unexpected in Las Vegas.
+- I loved the cooking; that was what I was passionate about, but getting to watch the guests eat - because you could see everything from the kitchen - just watching people eat and looking at the plates when they came back, just understanding, this is such an amazing job.
+- When your parents are Middle Eastern immigrants, you have three choices. You can become a doctor, a lawyer or an engineer.
+- You have to always remember who your guest is, and that's who we cater to.
+- Even in fine-dining restaurants, you have people that say 'I want to be out in half hour', 'I want to be out in 45 minutes.' It happens.
+- My last two years of high school, I did work-study half the day, and I ran the restaurant. It was just this little restaurant, but it was just so cool. I had 35, 40 employees.
+- The part that I know I enjoy most is the restaurants. You can't do everything, you know? For me, the priority has been being deeply involved in my restaurants and figuring out different ways to make them run better.
+- People love steak all over the United States.
+- Of course you do things differently in your 30s and 40s than in your 20s.
+- There's always room to improve in a restaurant. A restaurant is better or worse every day than it was the day before. It's impossible not to be, because it's human.
+- I love San Francisco; it's very hard to compete with San Francisco when it comes to availability of product, but one thing you can't replace about Las Vegas or Miami is people are walking in the door and they want to have a good time.
+- When restaurants start to mature - and usually the five-year time is the time when the restaurant starts to settle in and have its own personality - your job is to grow it.
+- I like complicated dishes but also appreciate simple foods.
+- I believe what makes cooking in Las Vegas different from cooking in most other cities are the guests that dine with you in Las Vegas.
+- Food feeds both the body and soul - there are clear reasons to eat a balanced diet, but there are also reasons you cling to your mom's secret chicken noodle soup recipe when you're sick.
+- Bringing your kids into the kitchen doesn't require you to be a top chef; only time and maybe a willingness to get a little messy.
+- I had always been told cooking was a servant's job.
+- I loved growing up in Washington, but I have been a diehard, 100 percent 49ers fan since I was 11.
+- I'm passionate about pleasing people.
+- I liked to screw around in the kitchen when I was a kid. But I started cooking when I was 15.
+- From a young age, I understood the idea of balanced flavor - the reason you put ketchup on a hamburger. I was that kid who wouldn't eat something if there was something missing. I never really understood it until I began cooking professionally, balancing acids, sweets, spicy flavors and fat.
+- If I'd never gone out and done more than one restaurant, my food wouldn't be as good as it is today. I've learned a lot from people who work for me.
+- I look at each one of my restaurants, and I want my personality to come out. Some are serious, some are intense when it comes to food and wines, some are meat masters supreme. I enjoy all my guests.

@@ -1,0 +1,93 @@
++++
+author = "Jenny Packham"
+title = "Jenny Packham Quotes"
+quotes_len = "87"
+description = "the best 87 Jenny Packham Quotes"
++++
+- I think it is very hard to design in colours you don't feel right about.
+- I love travelling and use my time abroad to be inspired.
+- Think about the style of the occasion before you plan your outfit.
+- Our silhouettes are quite classic, and the fit is very flattering. I just try to create something beautiful that complements the wearer.
+- From the 1920s through to the 1970s, bridal was related to the fashion of the times. Then in the 1980s, it became more historical, decadent, and ornate.
+- I have always loved to create pieces that are special, unique. It's very important to me that the dress means something to someone. I've no real interest in making something that's an everyday item.
+- When we first started doing bridal, I found the bridal business very archaic; it was very removed from general fashion.
+- I think with bridal fashion, it moves very slowly.
+- Sometimes, when we dress celebrities, there are always loads of Twitters and things like that. When I wake up, I think, 'Oh right, she wore it.' You kind of always know where it's going to be worn.
+- I felt my design point of view was more welcomed in New York, that I could show my collections in the way I wanted to show them.
+- I create fashion that is memorable.
+- I think it's very important to women what they want to watch. They're looking all the time to the red carpet to see what to wear, and it sets off all sorts of trends.
+- I don't like things that are uncomfortable - everything we do, however structured or detailed, needs to be made so that when someone wears it, they completely forget about it.
+- It was our belief we should have a customer base and that the catwalk was actually supporting and increasing the business.
+- If I don't see an emotional response to a dress, then I think something's wrong.
+- Our dresses take a long time to make.
+- I've always wanted to dress Cate Blanchett because I think she's so stylish.
+- I like to come home and completely forget about work.
+- A lot of my designs are inspired by the 1930s, when people were fabulous at dressing up. Then it just all kind of fell away.
+- When I design, I think about the desire someone might have for it and why. I want them to fall in love with it.
+- I don't really design for myself. It would be very limiting.
+- I think the evening wear criteria is that they want to walk into the room and get that 'wow' factor.
+- Young girls - like friends of my daughter's - always ask if we do prom dresses, and we do dresses that would be lovely, but £2,000 isn't realistic for most girls. The Debenhams collection will hopefully be great for that sort of event because the price point is much lower.
+- It's always a fantastic moment for me when someone wears one of our designs.
+- I always see bridal as a cultural thing: you have to get under the skin to find out what is needed in that market. For instance, the Italians love plain dresses, and the Americans loved beaded ones.
+- With the bridal wear I love the fact that people show me their pictures about what I've done for their special day. It's lovely that I'm a part of someone's history.
+- I'm certainly not in the business of making anything or anyone seem avant-garde. I make them feel beautiful.
+- Having made all the decisions, I think a wedding day is a day when you want to forget what you are wearing and be in the moment.
+- People keep getting married, even when times are tough. They want to keep celebrating. The special days appear to be the times where women are still happy to invest, both in terms of time and money. They want to be told that they look beautiful and be remembered for all the right reasons. They don't want to provoke much more reaction than that.
+- With a wedding gown, I have to make sure that people fall in love with it and that the details are very specific and special. There has to be a big story behind it and a great deal of integrity when it comes to the design.
+- I always love long shirt dresses with hand painting on it. It's just wonderful.
+- We've been seeing a lot of brides buying two dresses for their wedding, especially in America, and a lot of brides are talking about changing shoes halfway through. It is a very long day to be wearing one pair of shoes, however comfortable they are. It is about marrying that combination of style and comfort together.
+- It's funny; in fashion, you can never relax and feel like it's all sorted. Every season, you have to give yourself a challenge and come up with something new and fresh.
+- With the Bond girls, they've always been these sexy but quite strong women, and that's a nice combination to design for.
+- I think in L.A., every night they're going out somewhere. So you have this culture of dressing up.
+- We don't go to parties much. I am very serious about my work. But I also have two children, and I wanted to do that job well.
+- It's very nerve-wracking dressing someone because you obviously do everything you can to get them to be interested in something you've done, and then you hear they're wearing it, and then, obviously, they're going to step out in it, and you want to know that it's all going to work and what everybody's going to say about it.
+- I've always really loved the '20s and the whole Art Deco time. I just think it was just the most amazing era for style and design.
+- Most of our customers want something glamorous. They want to be looked at, but not for the wrong reasons.
+- I like the challenge of dressing ladies in lots of different things.
+- Old Hollywood icons such as Marilyn Monroe, Vivien Leigh, and Bette Davis are so inspiring; their style is romantic and feminine and their glamour mesmerizing. I love the idea of channeling that spirit on your wedding day.
+- I love the idea that we can dress all sorts of people, and they feel great in the dresses, and that make us feel good.
+- I like the American style. I love L.A. They have a completely different way of dressing.
+- We have a wide range of looks that address all the different types of women we cater to in all of the different territories we sell to.
+- Our customers are worldwide themselves - the Middle East, the Far East, Europe.
+- I love the way that girls turn up at our boutiques knowing all the names of the dresses, and that was happening before we launched our brand Pinterest board.
+- There is such an emotional connection between the bride and her wedding dress, whereas in ready-to-wear you may just be focusing on color or prints for that particular season.
+- If I can get someone to put on a dress, walk in a room, have them feel great, and have everybody think that they look lovely, too - that's my job, as far as evening wear goes.
+- I think it's always wonderful to dress people in the public eye. It's the icing on the cake and such an endorsement of what we do.
+- Research the venue and location before outfit shopping, as it helps set the mood and style focus: a traditional wedding in the countryside offers a different set of sartorial rules to a tropical, beach vibe, for instance.
+- I really enjoy the diversity of the people we dress.
+- Sometimes simple accessories are all you need when your dress speaks for itself.
+- I realised as a teenager that I was destined for a creative life and found that fashion design was something I enjoyed and was a potentially successful career path.
+- Don't be too influenced by what's 'in fashion.' Just be a bit more individual about it.
+- I do think there is a bit of Liberace in me.
+- I have always aspired to create beautiful designs that make women feel elegant and confident - for me, that is my greatest challenge and inspiration.
+- Sometimes you listen to a piece of music that inspires a collection. You listen to the music, which creates the mood, which creates the clothes.
+- Wonderbra is such an iconic brand with strong design values and great sense of humour.
+- I love Elizabeth Hurley. I have met her on a few occasions and was stunned by her beauty and her attitude. Very cool and easy going.
+- You should dress so that you feel confident.
+- When I'm designing, I'm thinking about what it would be like to wear that piece.
+- We've found that the more niche you are, the better off you are.
+- I always love the domineering, slightly wicked women on screen.
+- Nobody is going to buy one of our dresses because it will do, or as something to hide away in their wardrobe and wear at some dimly undetermined point. They always have an event of some kind in mind. They want to walk in the room and for everybody to think how amazing they look. That's the job, really.
+- I'm a big Prada fan. I always think that they seem to fit me well.
+- In America, I can just be glamorous, which is lovely. People are happy and accepting of exactly what it is I do.
+- I love it when people who don't normally see fashion shows see them, because they find it so exciting.
+- Accessories are the perfect way to add something special. A hair comb or a beaded clutch can be a lovely detail to finish your bridal look.
+- I think, for us, as an evening wear line, anytime someone on the red carpet wears our dress, it's an endorsement.
+- A dress is an emotional thing to make. You've got to fall in love with it and not just with the dress - the whole process of designing it has to be a good experience.
+- With an evening wear collection, each piece has to be quite individual.
+- Carey Mulligan- I'd love to dress her. And Nicole Kidman.
+- I play with those two eras a lot. The '70s did actually take quite a lot inspiration from the '30s. I love the '70s, the bold color. There's something very sophisticated about it now, looking back.
+- The L. K. Bennett and Jenny Packham bride is confident, feminine, and fashion-forward.
+- Both of my grandmothers were needlewomen, so I grew up around dress design.
+- There's nothing standard about a wedding dress or shoes anymore.
+- I loved dressing Elizabeth Hurley. I thought that was wonderful. She was one of those women who is so aware of how she looks in everything.
+- I'm so fond of abstract design in the style of Vanderbilt and David Hicks and that whole 1970s era. They took the 1930s and gave it a bit of technicolour.
+- In London, I did feel a pressure to be more avant-garde than I wanted.
+- I always design with the occasion in mind, so I particularly enjoy creating bespoke pieces; it's always an exciting challenge for me creatively.
+- I hated the '80s for years, and now I look back and think, actually, there was something really cool about it.
+- I feel our brides are empowered women who know what they want and have a strong sense of their identity. Obviously, they love fashion and glamour.
+- A dress should never take over someone.
+- The Wonderstar collection is a fantastic fusion of Hollywood glamour and Wonderbra's technical genius.
+- All I ever aim to do is make beautiful evening wear.
+- There is definitely a 'red carpet moment' to a bride's wedding day, but when designing for bridal, it is important to focus on the details that will captivate and capture the imagination of the bride - she has to fall in love with the gown.
+- My job is to make sure there's something about each dress that ignites the bride's imagination.

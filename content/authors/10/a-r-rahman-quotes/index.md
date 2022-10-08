@@ -1,0 +1,61 @@
++++
+author = "A. R. Rahman"
+title = "A. R. Rahman Quotes"
+quotes_len = "55"
+description = "the best 55 A. R. Rahman Quotes"
++++
+- The more dollars the studio producers put in, the less freedom we have. If the budget hits $100m, they get scared - they'll take the existing score of a successful movie and expect composers to copy it, like wallpaper. The biggest challenge for any composer in Hollywood is to be as creative as possible within those boundaries.
+- My mother insisted that I pursue music. I rented out my father's musical equipment and earned some money. As a child, I wasn't sure about a career goal, but I was always fascinated by electronic gadgets, specially musical equipment.
+- Some things are very low profile, but if they excite me creatively, I accept them. Sometimes there are high-profile projects, and you have to do it. We all have human limitations. It is a painful decision to turn things down. Even accepting 'Slumdog Millionaire' was a decision that I had to sacrifice another project.
+- It's like driving your car. If you drive too fast on the highway, you will topple, so you better maintain your speed. Life is similar to that, and that's the way you have to control your head.
+- Success comes to those who dedicate everything to their passion in life. To be successful, it is also very important to be humble and never let fame or money travel to your head.
+- I grew up on Bach and Beethoven, and now I'm listening to more modern composers who I can't even name. But since I'm constantly doing music, it's difficult to have that quality time to listen to music and do classical stuff.
+- Your inner voice is the voice of divinity. To hear it, we need to be in solitude, even in crowded places.
+- I feel blessed and humbled that people have loved my music. Nothing would be possible without their acceptance.
+- The institution of marriage works better when there's a spiritual connection. If you're marrying just for the sake of the woman, then you may lose interest in each other very soon. When we marry in the interest of the Holy Spirit with the intention of serving God and humanity, then it gives a much larger perspective.
+- Compared with other Indian film composers, I only write about six movies a year. Others write up to 60.
+- I usually work on a film soundtrack for two years, turning in a song every few months, and that keeps my creative energy high, because I'm constantly rotating projects. The trick is to make sure I don't work too hard and get exhausted.
+- I don't want to expose my personal life. It's best that people know me for my work. My family doesn't want to be surrounded by cameras. We want to live like any other family.
+- A musician is a professional, whether he or she is successful or not. The profession itself must be regarded as a stable job.
+- I divide criticism into two categories - one coming from those who understand music, who are worthy of being critical because they are knowledgeable about what they are saying; and then there is another category of people who would criticise you anyway, whether your work is good or bad.
+- I basically love classical music. I love a lot of musicians playing together and the whole culture of that, whether it's Indian or it's Western.
+- I am the kind of person who does not like to carry baggage. In fact, I don't go back and listen to my own music. I believe in closing chapters and moving forward. That's what gives me peace.
+- While my mother wanted me to be a musician, I wanted to become an electronic engineer.
+- My kids miss me when I'm away, but I don't mind living out of a suitcase. The U.K., U.S., France, Germany, Iraq... it's such a thrill meeting people of different cultures, learning about and from them. It's changed my perception about life, humanity and spirituality.
+- Music is the only passion I shamelessly indulge in. However, for recreation I enjoy watching movies. 'Wizard of Oz' was the first film I ever saw, followed by the 'Bond' movies. I also watch a lot of World cinema through DVDs mostly brought by one of my best friends who's now based in Toronto.
+- When I travel with my kids abroad, I am not myself, but I'm more a father who wants to protect them. Sometimes, I am even aggressive about certain things and get surprised seeing myself like that: for instance, when people want to take pictures of them. I am fine if they want to take my pictures, but they are not public property.
+- I was famous from the age of 13, and after a while you become immune to it - in a good way. You look at positives and what you can do with it.
+- I'm a Sufi Muslim, I would say. I believe in using the medium to create a good vibration because art is so important to society. Some projects I don't do because I feel that it's going to create a bad vibe. I don't do propaganda films that are anti another religion, anti-Muslim or anti-Hindu.
+- I am a friend when I need to be a friend, a father when I need to be a father, a musician when music calls. I switch roles accordingly.
+- The more I compose, the more I know that I don't know it all. I think it's a good way to start. If you think you know it all, the work becomes a repetition of what you've already done. I try to make sure that I don't repeat my music.
+- Each one of us has our own evolution of life, and each one of us goes through different tests which are unique and challenging. But certain things are common. And we do learn things from each other's experience. On a spiritual journey, we all have the same destination.
+- I follow a simple formula when I compose. I ask myself, 'What would the audience want to hear?' and 'Why would they buy my CDs?' And the process of answering these questions through music follows. Sometimes, it works. Sometimes, it backfires.
+- I joined the Madras Christian College but dropped out after three months. Telugu music director Ramesh Naidu asked me to assist him, and I did so for over a year. I did think of rejoining college, but by then, I was discovering the musician in me. I worked with Illaya Raja and Raj Koti and soon shifted to commercials. This led to movie offers.
+- The demand in India is to have a hit, which becomes a promotion for the movie and makes people come to the theater. You have five songs and different promotions based on those. But when I do Western films, the need for originality is greater. Then I become very conscious about the writing.
+- My mother's belief in spiritual healers grew stronger after our family went through a rough patch following my father's death. Sufi saint Karimullah Shah Kadri changed our lives, and all of us converted to Sufism. But it wasn't an instantaneous decision - it took us 10 years to convert. The change in religion was like washing away the past.
+- Comedy is a universal language. I grew up watching Nagesh, Surilirajan, Thenga Srinivasan and S.V. Shekhar's comedies. And, of course, Charlie Chaplin! These artists are so blessed: they can make other people happy.
+- Sometimes, a remix is good because it reaches a whole new generation. But when it gets too much, it's irritating. Also, the original composer needs to be credited properly.
+- Bollywood music is definitely a big part of Indian music and can be a great way to introduce people to the sound. But I hope to continue to incorporate other types of Indian music into my work.
+- I think I can get away, sometimes, with walking in the streets and not getting noticed. I like that. I want my work to get noticed, not me. And it's slowly getting there, which is good.
+- I'm continuing to learn more about music - it's an ocean, and you can never really say that you know everything. I'm grateful that I'm still living and making music among the greats.
+- I love great lyrics, and I love the way it could shape a tune into a very unpredictable one, and I also like taking a great melody and putting lyrics into it.
+- When you do something with a lot of honesty, appetite and commitment, the input reflects in the output.
+- I was a common man, and I will always remain a common man. No amount of stardom will ever consume my soul. Money comes, money goes. Fame comes, fame goes. I believe every human being is a celebrity in their own right.
+- I think music, in my opinion, is not about motivation in the way it's - it's not a running base. It's art. And my whole philosophy of music is different. It's almost like cooking and serving to people, seeing them smile and enjoying the food, really.
+- If you respect a language and culture, it shows in your work.
+- Wisdom comes from within. Knowledge is acquired and can sometimes put a screen on your wisdom.
+- I compose music for films, and by the grace of God, I've got a few awards. That's it.
+- It's true that I love to connect with my fans on the social networking sites, but I try not to go overboard, ever. I just give people a peek into my mind space, but never bombard them with my tweets.
+- After a point of time, when you get success and fame, money and everything, the purpose of life has to be redefined. For me, I think that purpose is to build bridges. Artists can do that very easily, more than politicians.
+- I believe that whatever comes at a particular time is a blessing from God.
+- Every time I sit for a song, I feel I am finished. It's like a beggar sitting waiting for God to fill your bowl with the right thought. In every song, I ask help from Him. Everybody around is so good, so to create music that will connect with so many people is not humanly possible without inspiration.
+- For me, there is no day or night for music. I often work through the night - without phone calls disturbing me.
+- I like to see a film and then start scoring it in my mind while doing something unrelated. You just grasp a film and start working, and something unpredictable comes out from a third element. The mind, the more active it is, the more productive it is.
+- A good film demands its own score, and if you are a musician, your conscience will never allow you to do something mediocre for a good film.
+- My music is mostly for the music. And it gives the liberty to do anything which I want. And nobody limits me to one genre of music. But I learn from life and I try to give back to life, in a way, whether it's the thought of the song or whether it's the approach to the arrangement or anything.
+- I want young Indian composers to be able to do more than just film music. I want to give them the skills that will enable them to create their own palette of sounds instead of having to write formulaic music. It doesn't matter if they become sound engineers, producers, composers or performers - I want them to be as imaginative as they like.
+- Beautiful film music can be made relevant to any period.
+- If there is no criticism, you become lazy. But it should be constructive, and it should be the truth. If it's biased and there's no truth in it, then I don't care about it. If it's true, it helps me grow.
+- The idea of music is to liberate the listener and lead him to a frame where he feels he is elevated.
+- I have too many responsibilities and principles. There's no time for 'guilty' pleasures.
+- So long as you do it truthfully, music is not to be judged.

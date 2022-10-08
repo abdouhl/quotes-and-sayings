@@ -1,0 +1,12 @@
++++
+author = "Tara Lynne Barr"
+title = "Tara Lynne Barr Quotes"
+quotes_len = "6"
+description = "the best 6 Tara Lynne Barr Quotes"
++++
+- I started out doing theater when I was really young, and I completely fell in love with it. I knew that this was what I wanted to do.
+- I love a good comedy, but the slapstick sitcom belly-laugh sort of comedy - the multicam thing - is not really where my interests lie. I'm very interested in single-cam, in intimate portraits. I like it when comedies have a little bit of realism and a little bit of darkness to them. It makes them more palatable and more relatable and grounded.
+- It's human when you get the sense that somebody likes you or is attracted to you - unless you're just completely repulsed by the person - I find that my first reaction is to entertain the idea.
+- Living life as normally as possible gives you a richer well of experiences to draw from.
+- Teenage girls in television and film, in my experience, oftentimes are portrayed as either the sweet, innocent virgin or the super-sexy, experienced, town bicycle. There never seems to be an in-between. I think most girls are somewhere in between those two tropes.
+- I've been lucky enough to play roles that are not just the preppy cheerleader or sullen emo girl. I've been able to play roles that are really vast and varied and very three-dimensional. Fingers crossed that it remains the same.

@@ -1,0 +1,106 @@
++++
+author = "Matt Barnes"
+title = "Matt Barnes Quotes"
+quotes_len = "100"
+description = "the best 100 Matt Barnes Quotes"
++++
+- I'm a target on and off the court. I've done some things I regret. But being a target is rough.
+- I've had to fight every year. That's kept me hungry.
+- Running in transition and scoring in transition, prevents you from setting your defense up on the other side.
+- The league feels like it's their job to protect the referees more than the players.
+- If I look at a ref funny, I'm getting a tech. If I say anything wrong on the street, it's on Worldstar or TMZ.
+- Everybody is looking for me to fail.
+- I think social media is a double-edged sword for athletes and celebrities. I think sometimes it's the worst thing. It gives people who are kind of cowardly the opportunity to kind of take an open shot at you or your family and say the craziest, most outrageous thing that they can think of, knowing that they would never say that to your face.
+- You don't have to be a professional athlete to be heard - the most powerful tool you have is your voice.
+- Refs need to get over themselves.
+- Early in my career I had to be a goon to survive. I did everything I had to do and probably some things I shouldn't have.
+- You only get one mom.
+- I just think that my road has been so difficult to get where I'm at that I don't take anything for granted.
+- In order to win a championship, you've got to be consistent.
+- I mean, this is basketball, you have a lot of different teammates and you move around a lot, to find true friends is something special.
+- It's us against the world when you step out on that court.
+- I kind of have a bad-guy reputation.
+- I hated Mo Cheeks.
+- You have to stay locked in. You're so locked in on guarding your guy you figure when the ball goes up the bigs are going to get it. But the possessions not over until you get the rebound.
+- It's a business when the NBA cuts you, trades you or waives you. But you're a villain, as a player, when you take your future and your happiness in your own hands and it's unfortunate.
+- Anytime that your name is up in a trade, I'm sure it can affect you mentally, and that obviously carries over to the court.
+- Everything I do is major news.
+- I always wanted to do NBA Cares but they didn't want me to represent the league. I just did Matt Cares instead. I went to Africa by myself to do camps and clinics.
+- Ever since I lost my mom, I'm really just trying to give back. At first, we were doing screenings and paying for surgeries, but now I've been fortunate enough to team with UCLA, and we're creating a scholarship program for kids who beat cancer.
+- There's so much that goes into being a pro athlete that people have no idea about.
+- I've traveled the world, made a lot of money, met a lot of amazing people.
+- Yeah, I'm doing some stuff behind the camera. Producing and directing. I feel like my face has been on TV enough in my lifetime that people don't need to see me like that anymore.
+- Until you get that championship, nobody's good enough.
+- Being traded and moving teams, it's difficult, especially when you have families.
+- Even though the city of Memphis and this organization has welcomed me with open arms, I play every game like it's my last. Play as hard as I possibly can. Been no different my whole career.
+- I just play hard.
+- I started Athletes vs Cancer as a way to honor my mother, but now giving back has become a part of who I am, and more importantly, this is a key value I hope to pass on to my own sons.
+- To win a championship, you need to win on the road.
+- There's no nightlife in Utah.
+- People don't realize that everyone in the NBA is really good. The difference is having a coach that believes in you.
+- I wear my heart on my sleeve.
+- I realize that I'm one of those guys that if I'm not with you, you hate me. But when I'm with you, you understand who I am and what I'm about and love me.
+- I think people on Twitter know that I'm real and I speak from the heart most of the time, and sometimes I'm going to make a mistake.
+- I was blessed to play 15 years, especially not even supposed to have made it. So, to be able to play 15 years, win a championship, I think that basketball chapter of my life is done.
+- I'm listening to 2Pac the whole time. While I'm getting treatment, while I'm stretching, I'm listening to music.
+- When you're in one of the biggest media markets and you have a good team and you're predicted to do well, if you struggle at any point, they're going to come after you. Even when you're playing well, you're not winning by enough.
+- I don't have friends when I'm on the court, besides my team.
+- Fatherhood is the best thing that ever happened to me.
+- Having kids, any time you can help kids, it's something that's close to my heart.
+- I was one of those guys that really had to fight to make it in this league. Early on, I really had to do whatever it took, whether it be fight, rough people up, to make the team. I looked at it as it's either me or them - and it was going to be me.
+- It's tough to stay focused and be able to separate life from our job. We are paid to perform, and we are performers. You gotta have good brothers to lean on.
+- I grew up in the '80s in an era that was tough. The Pistons, Celtics, Knicks, Charles Oakley, Anthony Mason. It wasn't dirty. It was just men playing basketball.
+- With 2Pac you can't go wrong.
+- I'm a competitor.
+- We call media out that hasn't played and have crazy opinions.
+- I am very excited about playing for Mr. Ballmer.
+- I love to be physical.
+- Good TV is not about people being happy; it's drama.
+- I really feel blessed to be in a position I am, to even have an opportunity to play in the league.
+- Some guys didn't have fathers. Some guys grew up with great dads but the weight of fatherhood shifts onto their shoulders because they make millions now. Some guys are away from their kids or divorced. I'm letting them all know they aren't alone when it comes to fatherhood issues and to encourage them to make time for their kids.
+- You can't take a night off in the NBA.
+- If I had to say how much I've paid in fines over my career, I'm sure it's over $500,000, going toward $1 million.
+- I look at my team as my family and I will do anything for my family.
+- If you take the chance to get to know me off the court, you'll see that I'm not the bad guy that everybody wants me to be on the court.
+- Some guys have one good year and fade away. I've worked too hard to get here and it's took me too long to just fade away.
+- I've learned that everything is a slow process in the TV and movie industry.
+- I think what I came from and what I saw molded me into a certain person. Nothing was ever wrapped or a silver spoon, so I don't think I would know how to live and I don't think I'd want to live if it wasn't a grind.
+- I still miss my mom every day, but when I see the smiles on the faces of the people that I help I know I am honoring her legacy.
+- Once I stopped playing I didn't have the urge or drive to play again.
+- I was the bad guy, the NBA bad guy.
+- This social media era is giving us a more in-depth look at our favorite people, and it's all aspects, from music to movies to television to sports. I think it has been somewhat of a distraction at times, but also a huge benefit.
+- I was playing tackle football in the street at five years old. Always being physical. Always being tough, just like a man's man. It was just always about being tough.
+- I'm an aggressive player. I always have been.
+- Athletes vs Cancer is a foundation that I started in 2008 after I lost my mom to cancer in 2007, and our goal is early detection, preventative screening and just really spreading knowledge about the cancer disease.
+- Where I came from, my upbringing, the ups and downs it took to get my career started, when I made it, I played every game like it was my last game.
+- I'm a football player playing basketball.
+- My mom was my rock, my confidant and my best friend. She was an elementary school teacher who worked with students with disabilities and she lived every day giving back to her family and her community.
+- I mean, don't get me wrong, being ref is a very tough job - managing 10 of the best athletes in the world. At the same time, I think there is way too much ego from their standpoint.
+- In the NBA you better come to play every night, where in the NBDL the talent level just isn't there and maybe you have guys taking a night off.
+- I play basketball hard-nosed and if you're not on my team, during that 48 minutes we're enemies.
+- The NBA never wanted to use me to market their work even though I have a huge following and lots of fans. I was the bad guy to them.
+- Overall, Twitter has been a great tool for myself and my family as far as promoting our charity and the events we do and really just kind of interacting with our fans. But it can be in the negative form, and guys have to be careful.
+- I was one of those guys who wasn't supposed to make it in this league.
+- It's obviously a blessing to be able to play on Christmas Night, the one big night everyone watches.
+- We can't beat any team by ourselves.
+- Co-parenting is probably the toughest situation that I've had to deal with because my ex and I really just don't get along. So, at the end of the day, I would tell any parents listening that once you're separated from your significant other - the father of your children, the mother of your children - the most important thing is the kids' happiness.
+- It comes with experience and learning and knowing the game. It's not necessarily about sticking your chest out and saying, 'I'm tough.'
+- It starts on the defensive end, but it's also just the ball movement and holding everyone accountable.
+- I've never had a huge contract.
+- I like being the hated one.
+- If I don't start, I'd like to try to win Sixth Man of the Year. And whenever I'm on the court, I'm just going to give it my all.
+- When you're going through a divorce it's hard.
+- I'm a role player, a journeyman. I know who I am.
+- I respect all my opponents, but I fear no one.
+- I was a good shooter in college, but it's a different level here in the NBA and I'm working on getting better.
+- My kids' happiness kind of outweighs everything. Just seeing the smiles on their faces and the anticipation leading up to Christmas is what I love now, having kids of my own.
+- Sometimes I act off emotion, but I also try to speak my mind. Take it or leave it, really.
+- Running hard I can get some easy points, and I'm definitely going to keep doing that.
+- Every one of us has the ability to raise awareness, volunteer, educate our friends and family, and give back to our communities.
+- I'll knock down the open jumper when it's there, but I want to get after it on the defensive end.
+- I'm all for a great fan environment to cheer us if we're home and boo us if we're the opposing team. But some fans are over the line with the stuff they say, the stuff they do.
+- I just think, obviously as players, we're held to a higher standard. I've had to watch myself on that, but I think if we're held to higher standards, the owners should be held to even higher standards.
+- When I feel something isn't right, I'm going to speak my mind and stand even if it's by myself.
+- I've been playing in L.A. for a long time through college and pros, just to be ready. It's different out here.
+- You're never prepared to lose anybody in your family.
+- I think there are things you can do to toughen yourself up.

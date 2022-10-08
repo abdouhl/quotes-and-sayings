@@ -1,0 +1,62 @@
++++
+author = "Martina Mcbride"
+title = "Martina Mcbride Quotes"
+quotes_len = "56"
+description = "the best 56 Martina Mcbride Quotes"
++++
+- I am happy that women can relate to my songs, and hopefully men can too.
+- It means so much being a part of country music and the Opry.
+- I really just tried to make a record full of great songs, which is the goal I always have.
+- I just love where I am right now in my career. I love country music. I don't ever feel restricted by the genre. I've been able to have a solid career that we've built one step at a time and a family. I know that I'm in a good place.
+- I do yoga, lunges, crunches, things like that for 40 minutes twice a week. For cardio I usually do the elliptical, treadmill or walking.
+- If I walk out onstage and I get a warm, excited response, it makes me feel so confident and happy, and then it's so easy for me up there.
+- The thing about my fridge is, it's a family fridge, so there's a little of something everybody likes in there.
+- Faith that it's not always in your hands or things don't always go the way you planned, but you have to have faith that there is a plan for you, and you must follow your heart and believe in yourself no matter what.
+- I love country music. I don't ever feel restricted by the genre.
+- I like the creativity of planning a party, or cooking and taking care of people, creating a memorable meal or event.
+- I think that being thrown into instant fame must be, at times, difficult.
+- The way you look is so dependent on the way you take care of yourself.
+- The best part is seeing my kids grow and become individuals, and the fact that they're happy and well-adjusted.
+- I was always into music. And none of my friends were really into music the same way I was. So it was just different. It was really not very well understood by most of my friends. They didn't tease me about it - they just didn't really relate.
+- I have a really amazing fan club, it's contemporary but it's a little bit old school. There's a lot of connection. I have a fan club president who really responds to people.
+- I always thought it would have been fun to spend an evening with Patsy Cline - just because I think she was really fun and interesting. I think you'd have a really good time with her.
+- I believe everything in moderation. But breakfast is important. I have two hard-boiled or scrambled eggs with whole-wheat toast and try to get some fruit in there.
+- I think we should all be tolerant of each other and embrace each others' strengths and differences and uniqueness and beauty.
+- It's hard to say no to your kid. It's hard for them to stomp off and not be happy with you for an hour.
+- I'm not fond of crunches or lunges, but I do them anyway because I do see results. For me it's about being fit and staying healthy more than anything else.
+- At the beginning of every week, I like to sit down and figure out what I'm going to make. I probably try at least two new recipes a week. But I have my standbys - jambalaya, meatloaf and mashed potatoes.
+- I wanted to make a record that people could put on year after year after year, and it would never feel dated.
+- I love to read about healthy eating and preach to my husband, who doesn't listen. Now I'm trying to teach it to my daughters.
+- I find that putting my makeup on and playing with different looks is really relaxing for me before the show.
+- It's always nice to be thought of.
+- Some days I do well and I eat really healthfully. But I don't think we should deprive ourselves of anything, so some days I indulge and give in to cravings.
+- A big part of who I am is just the way I was raised. Nobody is better than anyone else, and if you really work hard, you might get lucky and get what you want.
+- I listen to music I'm looking to record or catch up on news and TV, whatever is on the TV at the gym!
+- I have girls who are concerned about how they look compared to models or what have you. It's my responsibility to teach them that beauty is more than superficial.
+- Honestly, I just have to do what's right for me, and what I would tell people is what I believe, which is that tolerance is very important.
+- I always have apples and fruit in the house. It's easier to eat something healthy if it's within reach. I also have yogurt, cheese and crackers, and raw almonds.
+- I was into all kinds of music as a teen - country music, because my dad was in a band that played country, and whatever my sister and brother were into.
+- I just love where I am right now in my career.
+- I definitely feel a difference about my place in the industry. I feel like I have some longevity now.
+- In any small town, sports are really important to the high school, and I wasn't very good at sports.
+- I wish I could do an entire spa day.
+- Why do we get so angry at ourselves when we eat foods we love? Do you think guys walk around going, 'I just ate a cheeseburger and I'm so mad at myself?'
+- I can't be the big star in the family. We have a family, and we are all equal.
+- I was always thin. I guess I have good genes, so I never worried too much about my weight.
+- It's hard being away from home. But other than that, performing is the highlight of my day.
+- I'm not a big fan of flying. I definitely try to take the bus whenever I can. I've gotten a little bit better about it, but it was a pretty crippling thing for many years. I feel safer in a private plane.
+- I love producing! It's so much fun to start with a blank canvas and create the picture you want to create and see it all come together.
+- I love to sing with great singers.
+- My dad was a huge country music fan, but he also had a band and he sang. So he'd listen to a lot of music and the songs that he'd learn for the band were more from the male artists. So my earliest country memories were Waylon Jennings, Conway Twitty, George Jones, Johnny Paycheck even.
+- I don't really have any kind of rigorous or definite routine before I go onstage. I like to eat at least an hour or two before I go on. If I can't do that, I just wait until after. I try and drink lots of water before I go onstage.
+- My older brother was into Creedence Clearwater Revival and ZZ Top, and my sister was into pop radio. So somewhere along the line, I got into Ozzy Osbourne, REO Speedwagon, Heart, Pat Benetar, Journey.
+- I feel like it's important to use this gift God gave me, my life and my career to do something to make the world a better place. It's an easy thing for me to do.
+- I have been fighting writing songs for a long time. People keep telling me I should write, and other writers have offered to write with me, and to be honest, it's not something I've ever really had a passion for - plus I wasn't sure I had the talent to do it!
+- Raising three girls, I think it's important to teach them to support other women.
+- I find that putting my make-up on and playing with different looks is really relaxing for me before the show. It kind of helps me make that transition from 'mommy' to 'performer,' or star or whatever you want to call it!
+- You either have fans who stick with you, or they don't. It comes down to making music that people connect with and great fans.
+- That's the hardest thing about being a mom. You want to be cool, and you want them to like you all the time, but you can't always have that. You're gonna have times where you have to say no, and you won't be the most popular person in the house.
+- Not only do I know how to milk a cow, but I know how to herd a bunch of cows, too, which is a life skill that I think may come in handy someday.
+- I love to get books, because I love to read.
+- I make our family traditions a priority.
+- It's not the size of the house. It's how much love is inside.

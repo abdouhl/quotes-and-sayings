@@ -1,0 +1,84 @@
++++
+author = "Ayanna Pressley"
+title = "Ayanna Pressley Quotes"
+quotes_len = "78"
+description = "the best 78 Ayanna Pressley Quotes"
++++
+- I will sit at the table and compromise with anyone in the name of progress, but there are things I'm not willing to compromise and negotiate on, and that is the rights of women, of immigrants, of workers, and of the LGBTQIA community.
+- We need a permanent solution to TPS recipients and develop a path to citizenship. And, more fundamentally, we need to ensure that our immigration policies treat those coming to this country with the dignity and compassion that should be afforded to all human beings and immediately stop tearing families apart.
+- There's something to be said for perseverance.
+- I went to a school with the kids of judges and elected officials and architects, civil leaders, and influencers. And I felt very much a minority in every way. But it did expose me to incredible things.
+- People entrust me with the responsibility of actualizing our shared values and, that said, I'm not in the business of going to try to convert people and getting their buy-in. I just do the work.
+- Let me be abundantly clear: I am black, and I am a woman, and I embrace both of those facts.
+- Thanks to my mother's sacrifices, I was able to attend one of the best schools in Chicago.
+- I'm doing what Democrats said we needed to coming out of 2016, after that sobering defeat, which is to build a bench, to usher fresh faces and new voices and new ideas.
+- In Washington, we need to pass a clean DREAM Act.
+- There's many law changes, policy changes I can point to. But a lot of my work has also been to name the issue that no one else named - to spotlight it, to advocate for it. That's where all advocacy begins. I've asked different questions. I've raised different issues.
+- We should be uncomfortable with the growing gaps in our society, and we cannot allow ourselves to become desensitized to these injustices.
+- Listening is something as elected officials, as leaders, we forget to do.
+- Plans without price tags are simply pandering.
+- I have been really furious about the constant charges being lobbed against me about identity politics that, by the way, are only lobbed against women and candidates of color.
+- Because boys tend to dominate the narrative for who's at risk, sometimes they dominate the lion's share of services, too.
+- Our immigration system is fundamentally broken, and ICE's role in supporting the existing system - including separating families seeking refuge in the United States and conducting indiscriminate deportation raids in our communities - is creating an atmosphere of toxic fear and mistrust in immigrant communities.
+- We make a mistake when we stereotype neighborhoods as 'bad' and not worth our attention or investment.
+- When I was growing up, 'Ebony Magazine' was a must read in our household. In those pages I found our news, our stories, and my pride.
+- Not everyone is granted the opportunity that each of us deserves: to fulfill our God-given potential.
+- I'm an only child. My mother was raising me alone. We couldn't afford child care; child care hours didn't work according to her schedule.
+- Making progress on longstanding challenges requires a different lens and a new approach.
+- Players who take a knee during the national anthem do so to protest injustice across the country - fulfilling a patriotic duty to never accept injustice, but to call it out when we see it.
+- I think people want to live in a city that is welcoming and inclusive. I don't think people want to feel that they can only go into a place with a rainbow flag in front.
+- I'm asking people to vote for me because I'm an activist leader and a problem solver.
+- I don't put too much stock in polls.
+- I've always had a love affair with Boston.
+- I'm very confident about my ability to earn votes in every neighborhood.
+- I've not been a decisively re-elected city councilor and top vote-getter three times because I haven't done the work and because I don't work hard.
+- I know, given my own life challenges, that there are many non-academic barriers that get in the way of the scholastic and life success of our children and that complicate teaching.
+- If elected, I will work with federal leaders to rehouse the non-immigration enforcement functions of ICE - including human trafficking and money laundering investigations - elsewhere in the U.S. Department of Homeland Security while immediately eliminating funding for enforcement and removal functions.
+- Race is a factor in everything.
+- Our schools should be rewarding for all students.
+- Since being elected to the City Council, I have been unwavering in my commitment to address issues uniquely impacting women and girls and advance policies that stabilize and strengthen our communities.
+- I never thought I had the monopoly on struggle or suffering.
+- My mother did not raise me to ask for permission to lead.
+- My mother lost her job, so I left school to work full-time to support her.
+- If you look at the Affordable Care Act, ultimately that was saved not solely by lawmakers but because of the courage of individuals and families who went to Washington, who organized, who mobilized and said 'We're not turning around.'
+- I don't have stars in my eyes. I'm not personally ambitious. I'm very aspirational.
+- My mother informed me that the way to be a change agent to create change, the first line of defense, or however you want to phrase that, is politics and government.
+- My priority will remain supporting those courageous individuals and organizations, among both Israelis and Palestinians, committed to bringing peaceful coexistence to the region.
+- If the power was equitable, then our boards, then our commissions, our contracting, our wealth-building opportunities would all look very different.
+- Just as every animal is part of a kingdom, phylum, class, and order, every Dorchester resident has a parish, school, park, and neighborhood that they identify with.
+- An increase in bicycle ridership brings an increased need for measures to ensure the safety of cyclists.
+- I understand and appreciate and respect that any time a barrier is broken or history is made, people want to celebrate it and mark it as progress.
+- Bad influences and distractions were around every corner. But I also learned that my neighborhood could be a nurturing, positive place to grow up.
+- At some point or another, everyone has felt unseen and unheard and marginalized.
+- I would not invest in a Trump hate wall. We don't need to be protected from immigrants that are coming here seeking asylum and refuge.
+- It's important that people see themselves mirrored in government.
+- I think culture is a very challenging thing to reverse.
+- In tech communities, we consider disruption the way to lead to innovation.
+- As I have always said, those closest to the pain should be closest to the power.
+- Neighborhood restaurants matter.
+- One of my priorities is criminal justice reform, and there is certainly bipartisan appetite for that. I think we need to eliminate the cash bail system. We need to eliminate mandatory minimums. We need sentencing reform. I think we need parole reform as well.
+- Ultimately, we will never have a more inclusive and representative delegation - we will not change the complexion, the culture, or the representation - if we do not primary Democrats.
+- People close to me personally, politically, have expressed frustration that I'm not the political animal that they wish that I were.
+- When I was ready to buy my first home after years of renting, I immediately zeroed in on Dorchester.
+- I happen to be black and a woman and unapologetically proud to be both, but that is not the totality of my identity.
+- We must acknowledge that issues like systemic racism, economic inequality, and the achievement gap are the result of manmade policies.
+- I'm an only child, so I don't come from a big family. But it has been my observation from friends who do come from big families that usually, when you have a family fight, on the back end you come out better and stronger for it.
+- We desperately need comprehensive immigration reform in this nation, and yes, comprehensive immigration reform proposals are nuanced and complicated, but you know what shouldn't be? Our capacity to see each other's humanity.
+- I've just kept going, like millions of people do every day, because life does not allow them to do anything else.
+- When I hear 'politics,' I hear 'relationships.'
+- Public service and community organizing and movement building is such a part of my DNA that it's really hard to separate it.
+- We want Boston to be the safest bicycling city.
+- True enough, Trump is a formidable foe, and systemic inequalities and disparities are worsening under this administration. But they existed long before that. And I want to lead, organize, and legislate to disrupt these disparate outcomes.
+- For me, whatever vantage point that I'm serving, I'm going to be an advocate and do the work to actualize my values.
+- I have been a policymaker proven in tackling some very complex social issues on the municipal level here in Boston.
+- I am probably an outsider because I challenge conventional narratives about who should have a seat at the table.
+- Raising me as a single parent, my mother held many jobs. Most of them had to do with the betterment and the advancement of our community and society at large. I grew up seeing her active in ministries at our church, with the homeless, as a social worker, with elderly, with youth, as a children's rights organizer with the Urban League of Chicago.
+- I used to turn in, like, 20 money orders to pay my rent - $20 for this one, $30 for this one. I didn't have a checking account.
+- You cannot have a government for and by the people if it is not represented by all of the people.
+- My life as an advocate for those most in need is inspired by my mother's example. She believed in the potential inherent in each of us, and that belief is the foundation of my work.
+- From drug companies to health insurers to Wall Street banks, big corporations are spending millions to buy influence in Washington and drown out the voices of regular people.
+- I'm not naive. All politics is about identity, right? Neighborhood politics, cultural politics, issue politics. It's not as though I don't get that. It's just - it has to be, I think, tempered in a way that is for our overall advancement and not to our detriment or obliteration. When I say 'our,' I don't mean just communities of color.
+- I knew I would be demonized as entitled and what no woman can ever be: ambitious.
+- I am black and a woman and unapologetically proud to be both. But I've never asked anyone to vote for me because I'm black and a woman.
+- I don't think people that make history set out to make it.
+- At the women's march, we held signs that said, 'Today we march, tomorrow we run.' They didn't believe us, but it's coming to pass.

@@ -1,0 +1,81 @@
++++
+author = "Thelma Schoonmaker"
+title = "Thelma Schoonmaker Quotes"
+quotes_len = "75"
+description = "the best 75 Thelma Schoonmaker Quotes"
++++
+- 'Raging Bull' was just a dream to work on, but it took a lot of work to get all those fights to work right and incorporate them properly into the story.
+- In 'Casino,' there was this scene where Bob De Niro tape-records Sharon Stone's phone call. Then he asks her about where she's going, and he catches her in a lie. It was a great scene, especially for Bob's work, but we found that, in light of the whole film, it wasn't needed.
+- If I hadn't met Scorsese, I would never have become a filmmaker. He has taught me everything I know about editing and has given me the best job in the world.
+- Ballet dancers really know how to enter a room.
+- I always thought that's the wonderful thing about filmmaking: people see things differently.
+- I think everyone loves 'The Departed.' That was a movie that had a lot of problems structurally. And we had to battle with it. Fight. Experiment. Try different things. And I think finally we hit it.
+- I'm not a big believer in fate, but, boy, I've had a lot of lucky breaks.
+- When you're in a movie with an audience, you can feel where a film is dragging. People start to move. They fidget. You need that perspective. To give it a cold eye.
+- I love improvisation. I mean, it's hard to edit, because things don't necessarily fall together - you have to find ways to give it a dramatic scope, shape. But it's so much fun.
+- Doing 3D on 'Hugo' was a big learning curve for me, but fun!
+- When we were cutting 'Raging Bull,' Martin Scorsese was watching 'The Films of Hoffmann' on a 16-mm print over and over and over again.
+- You have to have a great director to make a great movie.
+- One day, I read an extremely vague ad looking for someone interested in working in film. Seeing as I loved watching films, I replied, and I found myself working for this guy who did his own personal editing of scenes from Antonioni and Fellini films.
+- It's part of your job always as an editor: you always have to drop stuff.
+- Even though my parents are American, I spent my whole childhood and adolescence abroad.
+- There are more women editors than people realise. I think we're more able to keep our eye on what the film needs. Between men, sometimes it's a real ego battle, and that's very bad for the film.
+- 'Raging Bull' was badly received at first. It took 10 years for it to be recognised.
+- It's wonderful to work on footage by someone who understands how to get it to cut right, which a lot of directors don't.
+- The studios are nervous on every movie. It never ends, because Marty's movies are so unusual. He doesn't repeat himself, so they don't know what to expect. We have to fight hard to keep them from being ruined. Film students can't believe that when I tell them, because they think, 'Well, it's Martin Scorsese.'
+- I know a lot of editors who are very bitter about the directors they work with. They feel they could have done a better job, and I say to them, 'Oh really? Why don't you go try - it's not easy.'
+- Whenever I can, I like to go to Cotswolds, in England, where my husband had a cottage. I spend my time reading his diaries, which I would like to publish.
+- Everybody would like us to make 'Goodfellas' over and over and over again.
+- Boxing is insane and, in my opinion, should be banned.
+- I do think there's not enough film history being taught and appreciated. Maybe it's being taught, but I've heard from professors that young kids don't want to look at black-and-white movies. And that's 85 years of film history, with masterpiece after masterpiece.
+- With Technicolor restorations, it's about getting the color right.
+- I don't think you can be a great director without knowing a lot about editing.
+- I won the Oscar for 'Raging Bull' for those fight sequences. If you look at those fight sequences, those were so incredibly storyboarded and shot in an incredible way - that is the conception a good director has to bring.
+- 'Silence,' I think, was the hardest, because it's so different from everything we've done before and required very delicate handling and trying to find the right meditative pace.
+- I can access footage much quicker, yes. But in terms of living with a film and knowing what's right, digital doesn't do that for you.
+- I particularly remember with 'Casino,' everyone was like, 'It's not 'Goodfellas!'' No, it's not 'Goodfellas.' That's right: it's a different movie. Now, everyone thinks 'Casino' is a masterpiece.
+- I don't think enough directors know enough about editing.
+- As you can imagine, between Michael Powell and Martin Scorsese, I've had quite a rich life!
+- I remember, at the Oscars in 1991, 'Dances with Wolves' won that year, and we were nominated for 'Goodfellas.' One of my peers said to me, 'Why'd you make that bad jump cut?' I said, 'Which one? We had about 20 in the film!' He was really upset about it.
+- Cutting improvisation is really hard, because things don't match, and you end up with some bad cuts sometimes. But we'd rather have the bad cuts and the great improv.
+- I started in documentaries, and that was a great help to me with improvisation, because with documentaries, you're handed a big lump of footage, and you have to shape it and make it into a story - which I love doing.
+- The difference between a film that ends up three hours and a film that is envisioned as three hours is that it's written that way.
+- We don't worry about continuity because when we're doing so many improvs, it's better to get the laugh. It's better to get the great lines even if they're in the wrong part of the room.
+- An actor's performance can be improved or shaped - or ruined - by what takes you use, how long you are on the actor's face, what line you put on the other actor's face, and when do you use close-ups or wide shots or two shots.
+- There's a great deal of mystery in film editing, and that's because you're not supposed to see a lot of it. You're supposed to feel that a film has pace and rhythm and drama, but you're not necessarily supposed to be worried about how that was accomplished.
+- Editing is a lot about patience and discipline and just banging away at something, turning off the machine and going home at night because you're frustrated and depressed, and then coming back in the morning to try again.
+- In the very beginning, women were editors because they were the people in the lab rolling the film before there was editing. Then when people like D. W. Griffith began editing, they needed the women from the lab to come and splice the film together. Cecil B. DeMille's editor was a woman. Then, when it became a more lucrative job, men moved into it.
+- Throwing things out is one of the most difficult and important things you ever have to do.
+- Editing is really like plumbing a good deal of the time. You put two things together, and a current runs through it.
+- We do documentaries on the history of cinema in between our feature films.
+- In certain fight scenes in 'Raging Bull' - for example, the shorter ones - I literally just took the head and tail of the shot and put it together, and it all worked beautifully.
+- I just happened to see an ad saying 'Willing to train an assistant editor,' and I learned enough from that to go to NYU for just one summer course. That's all that I could afford.
+- My family goes way back in New York. So I am a New Yorker; I feel like a New Yorker. It's in my bones.
+- I love being around great artists, and I've been around a few of them.
+- Scorsese has very defined ideas about how to shoot a scene, and he's an editor himself - we cut together. It means he's constantly thinking about my problems while he's filming.
+- I'm very lucky. Most of my friends wait long times for jobs and also don't get the chance to work on 20 films, like I have, with someone like Scorsese. I love working for him. I just would never - I can't imagine working for anybody else.
+- With digital editing, I now can make many, many versions of a scene.
+- 'Raging Bull' was staggering to work on. I was well aware of how lucky I was to be in this extraordinary situation. That film is very unique. It stands on its own. It's just burned into the screen.
+- The studio was very nervous about 'Raging Bull.'
+- I have the best job in the world.
+- I was just stunned when I came to America. I didn't know anything about rock music or football, and I felt very out of it... America was like a foreign country to me at first.
+- I have a great relationship and the highest respect for Daniel Day-Lewis and Leonardo DiCaprio. But working with De Niro has been simply incredible. While I was editing 'Raging Bull,' I was literally unable to take my eyes off him.
+- My job is so wonderful.
+- People expect artists to be too normal, I think. I've been around enough of them now to see that they're very extraordinary human beings who behave differently than ordinary human beings. If they weren't as sensitive as they are, they wouldn't be great artists. They are not the same as us. People should just learn to accept that.
+- I never thought I would get married: I'm such a workaholic.
+- It's hard for people to understand editing, I think. It's absolutely like sculpture. You get a big lump of clay, and you have to form it - this raw, unedited, very long footage.
+- Some young filmmakers, unfortunately, don't have the ability to resist attempts to maybe cut their films down unfairly.
+- In 'Silence,' there was no improvisation at all; really, you're dealing with a script and a 17th century way of speaking.
+- Having been raised overseas, I wanted to become a diplomat. But the State Department thought I was too 'liberal' to be happy with that job.
+- When you're a film-maker, sometimes you have to be a slave to continuity.
+- All great directors or anyone who has a strong vision like Scorsese needs to have a lot of support around them. I think from the very beginning - when we met each other - he realised he could trust me to do what was right for his movies.
+- That's the great thing about filmmaking: Things happen you don't know are going to happen at the end.
+- I knew nothing about editing when I met Mr. Scorsese... Through a series of weird events, I ended up at New York University, and there was Martin Scorsese, and he had some troubles with a film I was able to fix. That's the only reason I became a filmmaker.
+- Even in 'The Red Shoes,' a film that nobody ever has complaints about, there are enormous continuity bumps, and it doesn't matter. You know why? Because you're being carried along by the power of the film.
+- From the moment I met Martin Scorsese in 1962, he educated me about the films that had taught him so much about filmmaking. He had been deeply affected, even as a child, by great films that stretched his mind and struck into his heart, and he was eager to share them with friends and people who worked with him or with actors who were in his films.
+- Film, if properly cared for, will last almost 100 years, but digital will not.
+- One of our big tools is screening. We screen usually 12 times, which is much more than most filmmakers do, and we recut in between each one, because we really need to feel how the audience is reacting to the movie.
+- To receive footage that has been shot with editing in mind, it is a blessing.
+- I hope films will be somehow preserved and seen by as many people as possible in the future. There are endless treasures for audiences to discover, if only we can keep them from disappearing.
+- I'm not a person who believes in the great difference between women and men as editors. But I do think that quality is key. We're very good at organizing and discipline and patience, and patience is 50 per cent of editing. You have to keep banging away at something until you get it to work. I think women are maybe better at that.
+- If forced to choose my favourite film, I would have to say 'Raging Bull' because it was the first feature film I worked on, and it was like having pure gold in my hands. But my husband's film 'The Life and Death of Colonel Blimp' is equally a favourite because of its enormous emotional power.

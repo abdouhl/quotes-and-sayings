@@ -1,0 +1,66 @@
++++
+author = "Jack Kemp"
+title = "Jack Kemp Quotes"
+quotes_len = "60"
+description = "the best 60 Jack Kemp Quotes"
++++
+- American society as a whole can never achieve the outer-reaches of potential, so long as it tolerates the inner cities of despair.
+- People want opportunity so they can earn security.
+- Economic growth doesn't mean anything if it leaves people out.
+- To Republicans, I humbly suggest that we make it possible for Democrats to give up their quest for redistribution of income and wealth by our acceptance of an appropriate role for government in financing those public goods and services necessary to secure a social safety net below which no American would be allowed to fall.
+- I think Bush understands the Internet and the incredible expansion of global e-commerce.
+- Our goals for this nation must be nothing less than to double the size of our economy and bring prosperity and jobs, ownership and equality of opportunity to all Americans, especially those living in our nation's pockets of poverty.
+- There's always cause for concern if bad policies are pursued.
+- Democracy without morality is impossible.
+- I can't help but care about the rights of the people I used to shower with.
+- The Soviet Union represents a threat in terms of might. It is a joke in terms of its economy and what it has to offer the Third World - a laughingstock to countries that are looking for an economic-development model.
+- Of course, every job I ever had I thought I was born for.
+- There are no limits to our future if we don't put limits on our people.
+- The real problem is deflation. That is the opposite of inflation but equally serious to the borrower.
+- You don't boo at a Kemp rally. You boo at football games.
+- Pro football gave me a good sense of perspective to enter politics: I'd already been booed, cheered, cut, sold, traded and hung in effigy.
+- The problem is that the economy isn't growing fast enough to accommodate the level of spending produced through the democratic process.
+- I never met a poor person who wanted to soak the rich; they want to get rich.
+- The zeitgeist is for cutting spending and balancing the budget. But I do not want the Republican Party to be perceived as putting the budget ahead of people, jobs and education.
+- Every time in this century we've lowered the tax rates across the board, on employment, on saving, investment and risk-taking in this economy, revenues went up, not down.
+- My wife had a miscarriage. We have rarely talked about it. It did make me more aware of the sanctity of human life, how precious every child is.
+- The only thing I can do is tell the truth as I see it and let the chips fall where they may.
+- We don't need to bring down the rich folk to help the poor.
+- I've been a kind of a wildcatter. I've been able to say anything I wanted.
+- It's nice to be needed.
+- All too often the Democratic Party has taken the black vote for granted, and all too often the Republican Party has written it off.
+- If we are to change America, we must change the United States Congress.
+- I don't use labels a lot.
+- There ought to be a thoughtful welfare-reform debate that doesn't turn into something that could be called scapegoating.
+- There's only one race - it's human. We are all brothers and sisters.
+- I can't understand why the Democratic parties seem so hostile to economic growth and business.
+- Councils of war breed timidity and defeatism.
+- Ladies and gentlemen, communism didn't fall. It was pushed.
+- I can't hide my feelings.
+- Quarterbacks are always ready.
+- I learned about the market's power when I was traded to the Buffalo Bills for $100.
+- There really has not been a strong Republican message to either the poor or the African American community at large.
+- I would be a fool to put my feet down in a position where I can't accommodate metamorphoses.
+- I unabashedly, unashamedly, unequivocally support the explosion of entrepreneurs in the capitalist system.
+- Affirmative action based on quotas is wrong - wrong because it is antithetical to the genius of the American idea: individual liberty.
+- I am shocked that Republicans can't explain why our technological and economic advantages are the result of sound monetary and economic policy.
+- I believe in civil liberties for homosexuals. I guess I'd have to say I'd draw the line at letting them teach in the schools.
+- There are a lot of grotesqueries in politics, not the least of which is the fund-raising side.
+- Winning is like shaving - you do it every day or you wind up looking like a bum.
+- Republicans many times can't get the words 'equality of opportunity' out of their mouths. Their lips do not form that way.
+- I think the American people want to see the interactivity between candidates and audiences, and tough questions posed by people and how you handle them under fire.
+- He'll call that trickle-down. I call it Niagara Falls.
+- Just as the left has to be more willing to question 'Government knows best,' the right has to rethink its laissez-faire attitude toward government.
+- When people lack jobs, opportunity, and ownership of property they have little or no stake in their communities.
+- The Democratic Party is the party of the status quo.
+- I wasn't a great debater.
+- Taxes on capital, taxes on labor, inflation, bureaucratic regulation, minimum wage laws, are all - to different degrees - unnecessary slices of the wedge that stand between an individual's effort and reward for that effort.
+- Some people have theorized that I lurched to prove myself intellectually. But it was not any lurch. It was more a kind of awakening.
+- My passion for ideas is not matched with a passion for partisan or electoral politics.
+- If you believe these polls, you're making a mistake.
+- I am not antigovernment. I would not run a campaign against government.
+- With the end of the cold war, all the 'isms' of the 20th century - Fascism, Nazism, Communism and the evil of apartheid-ism - have failed. Except one. Only democracy has shown itself true the help of all mankind.
+- Its no secret that I've never liked tax credits.
+- I think I've advanced my views with compassion and tolerance.
+- There's no limit to what free men and free women in a free market with free enterprise can accomplish when people are free to follow their dream.
+- There is a kind of victory in good work, no matter how humble.

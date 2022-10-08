@@ -1,0 +1,42 @@
++++
+author = "Nadine Velazquez"
+title = "Nadine Velazquez Quotes"
+quotes_len = "36"
+description = "the best 36 Nadine Velazquez Quotes"
++++
+- I would love to have a drink with Meryl Streep or Prince. Those are my top two people I would love to talk to.
+- I got kicked out of a club for sticking up for my sister. And I got into a fight that was basically hair pulling and rolling around on the gym floor. The fights make me sound like a hell-raiser, but I'm not proud of them.
+- We spend so much of our lives not feeling but doing, doing, doing, and movies remind us that we are human. That life is all the things we see, and yet there is beauty there. There's a celebration of life and all of its intricacies. Movies are magnificent.
+- I like men in suits. Men in suits I think are so sexy. But I love men in suits who own their own businesses. That's even sexier... I just love a guy who has his own thing going on and believes in it.
+- As a child, I was hyper, I was a clown and I was sensitive. Today I'm all of the above, except I've refrained from bouncing off the walls.
+- I have a real taste for doing action roles. I starred in a movie called 'Blast,' which was my first action film, and I loved the fighting - I think I've got the build, the attitude and the look for it.
+- I'm attracted to men who just love what they do, have confidence in what they do and have potential to be on their own if they need to be.
+- When you're rehearsing, you get really inspired in the beginning, but then it becomes repetitious and you lose the magic. How do you get the magic again? The magic happens when you're not pushing it.
+- I'd seen 'Punky Brewster,' I'd seen 'Webster,' I saw 'Annie,' and it was time to either be an orphan or an actress.
+- Really hairy backs on men turn me off. I'm not into the ape thing at all. Or beer bellies and flabby arms, either. Also, one random nose hair which is longer than the others... that's gross.
+- I have a scar on my right arm from my ex-husband. He was cooking and he had a hot pot and he turned around and went right into my arm.
+- I'm a driven person, but I'm also cautious, and I overthink things sometimes.
+- My party trick is that I ask everybody questions. I'm just nosey.
+- I've never been driven to just be a celebrity or just get me on TV. Never ever. What's always driven me is being successful and being good at what I do.
+- I am the only one in my family to graduate college. It was a proud moment for me to receive a degree.
+- I simply wanted to get through college as quickly as humanly possible. I had no interest in extracurricular activities or anything that required me to be social. I was allergic to people.
+- Things aren't always clear at the beginning of a relationship. Be up-front. Don't play on her confusion or vulnerability. Women want and appreciate clarity.
+- I want to move people, stir something within them that makes them feel. That's what a movie should do and an actor should do, make you feel something. I think that's why people love films so much.
+- I have started my own foundation. It's called Follow Your Art. It's at its infancy but my goal is to mentor teenage girls through one of the most difficult times in their lives.
+- My dream role would be to act with Denzel again!
+- I would love to be a guys' girl, but they always end up falling in love with me, so I'm a girls' girl instead. I've tried having friendly relationships with men, but it ends up being impossible, and I've been around the block too many times not to see it coming.
+- I am Puerto Rican. I think Latinas are sexy, and being one, it has influenced a lot of my style, but being an official Los Angelite, this town has influenced most of my daily style, which is relaxed & easy.
+- My first job was a McDonald's commercial. It made me want to wake up at 4 A.M. to do something I loved. I haven't been the same since.
+- I don't usually like a smoky eye; if there is any smokiness, it's got to be a light color.
+- I went to a girls' school, and it was awful. The combination of my teenage anger and their jealousy meant I was always getting into fights. There was a lot of pulling of hair and scratching of faces and rolling around on the floor.
+- I'm very comfortable being naked. It's one of my favorite things to do.
+- I hope to land roles where my presence is carried on throughout the film. I'm looking forward to taking on a role with a complicated backstory and yet someone who refuses to lose sight of hope. I know that it will happen someday.
+- I am inspired by anything beautiful. Sometime it's a pair of eyes or flowing gorgeous hair, other times it's the sky or a sunset. I've been inspired by supple skin or the texture of a soft shirt.
+- I've always exuded some connection to my sexuality even as a kid. So to me, being sexy means staying connected to that part of me.
+- I love acting and I have a need to do it, even when the business is down.
+- Whatever's missing in your relationship, including a marriage, is what you're not bringing to it.
+- When I die, I want to be buried in a long long-sleeve black Ralph Lauren dress and brown chunky boots. I want my hair styled like his models, long hair that flows. I also want natural makeup with a light pink lip.
+- Hi, I'm Nadine Velazquez, and my green tip is: recycle.
+- It's true - women want the fantasy. So give them romance - but without the desperation, wondering, and waiting you see in the movies.
+- I want Prince to see something I do and call me and ask me to be on an album or if I want to dance!
+- Something like 'The Matrix' would be ideal, something where it's super agents and wire work and special effects - not necessarily running from bombs and shooting people. Something more sleek, like an assassin.

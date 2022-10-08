@@ -1,0 +1,81 @@
++++
+author = "Marquise Goodwin"
+title = "Marquise Goodwin Quotes"
+quotes_len = "75"
+description = "the best 75 Marquise Goodwin Quotes"
++++
+- As long as I have the respect and understanding of my teammates, that's all that matters.
+- Football has set me up to provide for my family, it has allowed me a better opportunity to do things in my life that track may have not.
+- After choosing football so many times, I feel like I'm inclined to make the right decision by finally choosing my family first, and that's real talk.
+- I'm not limited to running or jumping or catching footballs.
+- I haven't quite mapped it out yet, but working out and training is my lifestyle.
+- It's either join the workforce or become a professional athlete, and I'd rather be a pro athlete.
+- I really don't have to disprove anything - I'm in the NFL, so whoever is thinking of me as a track guy is worried about the wrong thing.
+- No matter what the outcome is, as long as you pray to Him and be genuine - because He knows when you're genuine and when you're not - and maintain the faith, I think things will turn around for you. I know things will turn around for you. And ultimately, you will always be victorious when it's all said and done.
+- To me, no doctor can determine when it's your time to go. God really knows, and He's the only one who can really give you the day. You just have to keep the faith and live the best you can each day.
+- My goal is to stay healthy and win games, that's it.
+- I have definitely got more than a few pieces of cheetah in my wardrobe.
+- It's pretty satisfying to make it through a season, only missing one game year.
+- I really don't focus on the competition at all. Like even on the football field it's me versus me.
+- I get to see my baby's development. I get to change diapers, I get to be a real father, something that I didn't have growing up.
+- My father was never really a big part of my life, he ended up passing away a few years ago, my biological father. And the guy I consider my dad, he was incarcerated for a crime he didn't even commit, which is part of the reason I protest.
+- I love long-jumping, and if I'm granted the opportunity without repercussions, then I will pursue it further, but I'm obligated to Buffalo Bills football and that's the main focus.
+- I'm thankful for the relationship that I established with guys here in my time in Buffalo.
+- They drafted me in the third round to come play receiver, return some kicks and that's my job. The Olympics are behind me and I'm just looking forward to helping the Bills.
+- I don't want to bring my personal issues to the field during game time. I don't want to take focus from anybody else.
+- I just believe in helping other people.
+- What I do in long jump and track and field, it definitely correlates with what I do as a receiver. With being fast and being explosive and putting my foot down. It's the same mechanics that I use in football and track.
+- I don't want to get too much on the football side and gain weight, so I'm as fast on the field.
+- I've always wanted to be what my father never was to me.
+- Just because something that you wanted your whole life didn't quite work out as you planned it to - a lot of the times it's not supposed to work out how you want it to - it will grow you as a person and make you better.
+- People outside the organization or outside of football, they don't know how hard it is to win in this league, such a high-caliber athletes and elite group of people competing each week.
+- I graduated with a double degree, I speak well, I play two sports at an elite level, I volunteer, I do things the right way - I even got down on my knee to ask my wife to marry me! - and I can't get sponsored? It confuses the hell out of me.
+- I'm tough. I have taken on hits, I've blocked. I even got MVP for blocking one game and I didn't even touch a ball that game.
+- You never know, God can take my ability away any day, so I just thank God for everything he does for me, and for putting my sister in my life and motivating me.
+- I told myself at some point that I've got to hold it down for my family. I can't let work and the check and the money dictate decisions that I truly want to make.
+- I always dreamed of doing this, being able to do track and field and the NFL at the same time.
+- I chose to leave my wife at the hospital after prematurely birthing our first baby due to incompetent cervix, which resulted in a fatality, to play in a football game. I felt like I had to prove to my coaches and new team that I was dedicated to winning and I wouldn't let anything keep me from that goal, not even my family.
+- People who don't understand will try to label me as one or the other. I'm an athlete and a lot of people just have to come to terms with that. I do well in football, I do well in track. It is what it is.
+- Dealing with injuries each year, it's kind of like a given that it'll happen. You've just got to push through it.
+- The number of really good athletes is decreasing. People don't want to work as hard anymore and they complain. In the future, there probably won't be as many good athletes because they won't work as hard. The world is getting lazy.
+- My sister means the world to me.
+- Who am I just to give up on track? This is something I've dreamed about since I was 9 years old, being an Olympic champion.
+- I've stayed sharp, basically through football workouts. I cater those workouts to track-specific things, so I don't lose the rhythm I've always had to keep football and track in balance.
+- It won't change that I'm an Olympian if you call me a football player, and it won't change that I'm an NFL player if you call me a track and field athlete.
+- I hate missing practice and games, not being out here.
+- I don't compare myself with anybody.
+- I went and played football so I can support my family like I wanted to. Track has been my real dream, to be an Olympic champion and God gave me another opportunity.
+- I like track and field for the simple reason that I determine my own outcome. I don't rely on my coach or the president or the CEO making a decision. I'm kind of like the CEO of my own corporation.
+- Never in my life have I failed a test. I have never been opposed to testing and, in fact, have always been compliant with each and every protocol and policy associated with my competitive career in track and field.
+- A lot of sprinters aren't football players. I'm a football player. That's the difference between me and a sprinter. My knowledge of the game. I'm totally different than any other track guy.
+- I led the world the whole year until the trials. I was in Birmingham, U.K. Broke the meet record, had the meet won already, beat the 2012 Olympic champion in long jump that day. It was a big moment. On the last jump, I blew it. Blew my hamstring.
+- I knew when I met Morgan that she was the perfect girl because she was in college, she was an athlete and we had the same morals and beliefs and I knew that she would be a great mom.
+- I don't think anybody in any sport ever sucks. You're an athlete. You're a professional.
+- Obviously, I'm going to graduate college. So if sports don't work out, I'll have something to fall back on.
+- I have the track label on me. I'm the track guy. So I have to go above and beyond the expectations of what other people will limit their bodies to.
+- With faith you can do anything and with love you can do even more.
+- I'm always hesitant to make any serious moves because you never know how the N.F.L. will treat you, you know?
+- I always knew one day fatherhood would be great, I just didn't think it would be this great.
+- I have a lot of things going for me, I try to be a well-rounded role model.
+- I pray for everybody throughout the game, even my opponents. Outside of the game, we still have to live life, still have to lead normal lives, and we still need our bodies.
+- A lot of people think track, you just run, that's all you do. No. There's a lot of technical aspects to it as well. A sprinter is not just going to get out of the blocks and start running. You do that, you're going to get embarrassed every time.
+- I'm just blessed to be able to be alive, to be able-bodied and be able to play this game.
+- My wife at home. She didn't have a pregnant belly anymore, nobody to cling to, no shoulder to cry on, no one to talk to, while I'm at work getting the love and everybody just patting me on the back. I was mad. I felt that I should be at home helping my best friend get past the grief.
+- All I can focus on is what I can control and that's being happy. My own happiness.
+- When the ball is in the air, my job is to catch it, no matter where it's at, no matter how it is, no matter how difficult or how easy, you've just got to make it.
+- If you have to cheat to win, it doesn't mean as much as if you did it on natural abilities and hard work.
+- My teammates give me a hard time about that all the time, 'Hey, if you catch the ball and get in an open field, I want you to long jump from the 10 into the end zone.'... I might make it happen one of these days.
+- My relationship with my sister is closer than white on rice.
+- I know I'm a dog. I'm a beast especially when it comes to long jump.
+- At the end of the day, all I can focus on is doing what I need to do, as a player, to help the team win.
+- I have proved I have more than linear speed. Track guys are known for not being able to catch, for not having good hands.
+- Football is my deal. Track is my fun.
+- I'd love it to be in Buffalo. I love football. But I know how important it is to live your life like you want to.
+- The type of working hours you put in sometimes is overlooked. The diet. The little sacrifices that you take from your family, people don't take that into account.
+- If Deja wasn't my sister, I feel like I would still be motivated but not in the way that I am today. Having a disabled sister, that's a lot more motivation, especially when she tells you growing up that she wishes she can be out there with the kids playing and she wishes she can be out there running around.
+- I can't dwell on something that has nothing to do with football at all - it will hold me back.
+- I'm definitely not a track guy playing football. I'm a football guy that just happens to jump really far.
+- A lot of people don't even know that about me, I grew up without a father.
+- I would give my life up if I could have a boy.
+- Like you see in the fairy tales, that's how it planned out in my head. Kids, little white picket fence, the American dream.
+- I'm looking to run the fastest, but I want to prove that I'm more than a speed guy.

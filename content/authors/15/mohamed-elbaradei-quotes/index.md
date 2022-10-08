@@ -1,0 +1,113 @@
++++
+author = "Mohamed Elbaradei"
+title = "Mohamed Elbaradei Quotes"
+quotes_len = "107"
+description = "the best 107 Mohamed Elbaradei Quotes"
++++
+- I worry about a democracy having nuclear weapons as much as a dictatorship having nuclear weapons.
+- The Muslim Brotherhood is a religiously conservative group. They are a minority in Egypt. They are not a majority of the Egyptian people, but they have a lot of credibility because all the other liberal parties have been smothered for 30 years.
+- You're shooting yourself in the foot if you isolate or disempower the moderates.
+- You either have a civil society or you don't.
+- The U.S. engages with North Korea, so I don't see why they can't engage with Iran.
+- The Egyptians have grown in confidence, they've tasted freedom, and there's no way back.
+- It is going to take a long time to switch Egypt into a democracy.
+- There is no religion that was founded on intolerance - and no religion that does not value the sanctity of human life.
+- I am an Egyptian Muslim, educated in Cairo and New York, and now living in Vienna. My wife and I have spent half our lives in the North, half in the South. And we have experienced first hand the unique nature of the human family and the common values we all share.
+- People talk about smart sanctions and crippling sanctions. I've never seen smart sanctions, and crippling sanctions cripple everyone, including innocent civilians, and make the government more popular.
+- People feel repressed by their own governments; they feel unfairly treated by the outside world; they wake up in the morning, and who do they see - they see people being shot and killed: all Muslims from Afghanistan, Iraq, Somalia, Sudan, Darfur.
+- My sister-in-law works for a group that supports orphanages in Cairo. She and her colleagues take care of children left behind by circumstances beyond their control. They feed these children, clothe them, and teach them to read.
+- Barack Obama has injected fresh momentum into efforts - stalled for a decade - to bring about nuclear disarmament.
+- I think the Egyptian people need to restore confidence that Americans, the U.S., means what they say when they talk about democracy, rule of law.
+- I still believe that any country understands that if they use nuclear weapons, they will be wiped out of existence. They could be irrational in many ways, but I don't think they're irrational to the point that they're ready to annihilate their own country.
+- Music gives me a lot of peace, either classic music with its structure or the spontaneity of Miles Davis. It brings the best in you.
+- Everyone in the Middle East pretty much wants to come and be an American citizen, but pretty much everybody is angry with the U. S. foreign policy.
+- The Nobel Peace Prize is a powerful message. A durable peace is not a single achievement, but an environment, a process and a commitment.
+- The sooner we put Egypt on the right track, the sooner we would be able to have an Egypt that is modern, that is moderate, and that is acting as a beacon for freedom and liberty across the Arab world.
+- I argue that for every country to have an independent fuel cycle is the wrong way to go. Because any country which has a complete fuel cycle is a latent nuclear weapons country, in the sense that it is not far from making a nuclear weapon.
+- Well, I think we still have to verify whatever declaration we will get and make sure that it is comprehensive and accurate. So, that would take care of the past activities.
+- Whether weapons exist in Iraq, Saddam Hussein or post-Saddam Hussein, it is a serious enough issue that require that we continue to go and make sure that Iraq does not have weapons.
+- Your economic and social development is linked to the kind of regime you have.
+- Only if you empower the liberals, if you empower the moderate socialists, if you empower all factions of society, only then will extremists be marginalised.
+- I guess law was always interesting to me because you deal with constants. I like to deal with constants, abstracts, constants and reason and ration, rational approaches to things. I don't know, I never really thought why I wanted to study law. But if you ask me whether I would do it again, absolutely.
+- Young Egyptians, gazing through the windows of the Internet, have gained a keener sense than many of their elders of the freedoms and opportunities they lack. They have found in social media a way to interact and share ideas, bypassing, in virtual space, the restrictions placed on physical freedom of assembly.
+- I have, as you know, the utmost respect for President Obama as a person.
+- All I know is, I think I would like to continue to do public service.
+- Well, first of all, we now have everybody with the exception of India, Pakistan, and Israel, and I don't think these three countries are going to join by simply providing them an incentive, in terms of technology.
+- Historically, Islam was hijacked about 20 or 30 years after the Prophet and interpreted in such a way that the ruler has absolute power and is accountable only to God. That, of course, was a very convenient interpretation for whoever was the ruler.
+- Managing a country is like managing a company in many ways. It maybe involves more complicated issues, but it's the same skills.
+- I hope everybody will go back to the negotiating table. I've always said this is the only way forward.
+- I'm a lawyer. I go for due process; I go for fairness and equity - these values mean a lot to me.
+- If we are addressing the issue of weapons of mass destruction, we need to send a uniform, consistent message that there is zero tolerance to any country who is developing weapons of mass destruction, North Korea included.
+- You will not really have durable peace without a proper security structure in the Middle East.
+- We continue to have nuclear weapons relied on as a weapon of choice. If that policy were to continue, we continue to have countries who are in a security bind, if you like, or perceive themselves to be in security bind to look for acquisition of nuclear weapons.
+- Psychology is as important as substance. If you treat people with respect, they will go out of their way to accommodate you. If you treat them in a patronizing way, they will go out of their way to make your life difficult.
+- We now have the right to have immediate, unfettered access to any site in Iraq and we have the right to interview people, both inside and outside Iraq.
+- In a democracy, when you get 20 million people in the street, you resign.
+- Challenging the integrity of the non-proliferation regime is a matter which can affect international peace and security.
+- Egypt under Hosni Mubarak had deteriorated to the status of a failed state. We must wipe the slate clean and start again.
+- It's up to any government to decide how to react to the denial of basic human rights anywhere in the world, including Egypt.
+- The dream of democracy has long been enshrined in the hearts of the Egyptian people. It only needed awakening.
+- I cannot bear the responsibility for one drop of blood.
+- Nobody wants any country to have nuclear weapons.
+- We have lived for thousands of years together, Muslims and Christians; we are part of the same society.
+- If you have nothing to hide, there is no reason not to be transparent.
+- We must abandon the unworkable notion that it is morally reprehensible for some countries to pursue weapons of mass destruction, yet morally acceptable for others to rely on them for security - and indeed to continue to refine their capacities and postulate plans for their use.
+- Threat is in the eye of the beholder.
+- Once in a while, I have to pinch myself to remind myself I am Nobel laureate, but that is not part of my work plan every day.
+- Whether one believes in evolution, intelligent design, or Divine Creation, one thing is certain. Since the beginning of history, human beings have been at war with each other, under the pretext of religion, ideology, ethnicity and other reasons. And no civilization has ever willingly given up its most powerful weapons.
+- I'm used to politics at an international level: people put together an argument and, even if you vehemently disagree with them, well, you can recognise it's an argument and respond.
+- What I see in the Arab world, in Egypt, everywhere is increasing radicalization.
+- Discipline is part of my professional training as a lawyer.
+- Egypt needs to catch up with the rest of the world. We need to be free, democratic, and - society where people have the right to live in freedom and dignity.
+- Countries that perceive themselves to be vulnerable can be expected to try to redress that vulnerability - and in some cases, they will pursue clandestine weapons programs.
+- The international community must do a better job of controlling the risks of nuclear proliferation. Sensitive parts of the nuclear fuel cycle - the production of new fuel, the processing of weapon-usable material, the disposal of spent fuel and radioactive waste - would be less vulnerable to proliferation if brought under multinational control.
+- You in the West have been sold the idea that the only options in the Arab world are between authoritarian regimes and Islamic jihadists. That's obviously bogus.
+- Iran has the technology to produce the highly enriched uranium, which is not automatically meaning nuclear weapon.
+- Nuclear proliferation is on the rise. Equipment, material and training were once largely inaccessible. Today, however, there is a sophisticated worldwide network that can deliver systems for producing material usable in weapons.
+- I think it is fair to say that it is under a great deal of stress, and if I am asking for significant changes, it is because the world is going through significant changes.
+- Democracy is not an instant coffee.
+- The gap between rich and poor is widening dramatically. There's a hangar at the Cairo airport for private jets, billionaires are on the Forbes list, and Egypt's annual per-capita income is two thousand dollars. How can you sustain that?
+- If a country is suspected of going nuclear, you need to understand why. Why does it feel insecure?
+- Israel claims it needs nuclear weapons as a deterrent against any threat to its existence. The Arab world in return feels that this is an imbalanced system; there is a sense of humiliation and impotence.
+- The globalization that has swept away the barriers to the movement of goods, ideas and people has also swept with it barriers that confined and localized security threats.
+- You don't get the fox to be in charge of the chicken coop. You don't give the outgoing regime - which has been practicing dictatorship, is an authoritarian system, it's a bunch of military people - the task of changing Egypt into a second republic, a new Egypt with democracy, freedom, rights, etc.
+- Democracy is more than a ballot box.
+- You need to form a grand coalition, and you need to put your ideological differences aside and work together to focus on people's basic needs. You can't eat sharia.
+- Every country has the right to nuclear technology as long as they use it safely, peacefully and in a secure way.
+- Sanctions are a bad idea.
+- I couldn't have imagined that I would live long enough to see Egypt emancipated from decades of repression.
+- I lose my temper at home. I try to control my temper at work. Sometimes, if you are under a lot of pressure, you let off some steam, but I also try not to do that because it's unfair to my wife.
+- If you bet on individuals instead of the people, you are going to fail.
+- I do not want to see the whole Egyptian people feel protected by my presence. They really have to fight for their freedom whether I'm there or not.
+- As long as some of us choose to rely on nuclear weapons, we continue to risk that these same weapons will become increasingly attractive to others.
+- We still live in a world where if you have nuclear weapons, you are buying power; you are buying insurance against attack.
+- If Egypt were going to change, it is going to change through the young people.
+- In my view, stability only comes with a government that is elected by the people and works for the people.
+- Even with the best intentions, you can have a nuclear war, a nuclear holocaust, through miscalculation, through accidents.
+- You can't, in the 21st century, continue to live in a system where people live under martial law for 30 years.
+- As much as we Egyptians treasure our military, acting alone it cannot provide the legitimacy to lay the foundations for democracy.
+- It would be, in fact, very ominous if Iraq were to be able to get weapon-usable material, hydro-plutonium or highly enriched uranium from abroad.
+- I hear that from so many different governments, people coming to me and saying, 'You should be careful'. But I don't want to go around with bodyguards.
+- I'm not a good small talker. I'm not into small talk, frankly.
+- I'm not a grassroots organizer; that is clear. I believe in a division of labor. I'm not trained to organize the grassroots, and grassroots has to come from the grassroots.
+- I think people are distrustful of politicians and are looking for someone who is telling the truth with no hidden agenda.
+- The time is right for a political solution and the way is negotiations.
+- How can you run for president if you don't know the job description?
+- America is always a good target for a populist. In many countries, particularly authoritarian systems, if you want to get an extra bonus, you bash the Americans.
+- I grew up in a conservative household. That was the life of the time in Egypt: a conservative, middle-class household.
+- Unilateral preemption should not in any way be the model for how we conduct international relations.
+- Libya is a good example of a country that has come to a realization that weapons of mass destruction threaten more than assure, and I hope that will be followed by others.
+- My father taught me that you have to stand by your principles.
+- The global community has become irreversibly interdependent, with the constant movement of people, ideas, goods and resources.
+- My conscience does not permit me to run for the presidency or any other official position unless it is within a democratic framework.
+- When I go to Iran, I see... that there are all different shades and colors in Iran, from atheist to religious zealot. So Iran is no different than any other country. I mean, they are connected with the rest of the world.
+- If a huge number of people call for change, the government will have to react. If you want to avoid uprisings, or demonstrations, you need to respond to the people's desperate need for change.
+- I have a lot of interests in global issues, as you know, humanity, inequity, arms control, and I continue to be active on all these issues.
+- The Israelis should understand that it is in their long-term interest to have a democratic Egypt as a neighbor, and that it is prudent to acknowledge the legitimate interests of the Palestinians and to grant them their own state.
+- Everybody has to chip in, I think, and see how we can have a functioning system of collective security where we do not continue to face the threat of countries trying to acquire weapons of mass destruction or particularly nuclear weapons.
+- The U.S. is not the holder of truth.
+- So, we need to delegitimize the nuclear weapon, and by de-legitimizing... meaning trying to develop a different system of security that does not depend on nuclear deterrence.
+- I feel relieved that we discovered that Iraq did not have nuclear weapons.
+- I think we still have a chance if we continue with our work, if Iraq provides full cooperation, we should still be able to avoid a war.
+- Iran's goal is not to become another North Korea - a nuclear weapons possessor but a pariah in the international community - but rather Brazil or Japan, a technological powerhouse with the capacity to develop nuclear weapons if the political winds were to shift, while remaining a nonnuclear weapons state.
+- I think one country with nuclear weapons is one country too many.

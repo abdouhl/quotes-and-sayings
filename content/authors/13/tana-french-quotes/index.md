@@ -1,0 +1,44 @@
++++
+author = "Tana French"
+title = "Tana French Quotes"
+quotes_len = "38"
+description = "the best 38 Tana French Quotes"
++++
+- With 'Broken Harbour,' a third of the way through, I worked it out and had to go back and bloody rewrite.
+- When I was acting, I got trained in creating a character as a three-dimensional person. If you're doing it right you should be able to draw an audience into the character's world and make them feel their fears.
+- I like books like 'The Suspicions of Mr. Whicher,' where the investigation of a crime becomes a way into an exploration of the society where the crime took place.
+- Donna Tartt blows me away - that impeccable writing, so rich you could eat it and so luminous that it lights up the whole room, and the way she brings her characters to life so completely and in such fine detail that you know them as intimately as your dearest friends.
+- I had a pretty happy, loved childhood.
+- I've been fascinated by mysteries for as long as I can remember. Real, fictional, solved, unsolved, I don't care; they all fascinate me. I think that's a core human trait.
+- I'm always looking for the potential mystery in everything; I can't imagine writing about anything else.
+- I've always seen places as being very deeply connected to the experience that people have in those places. I think that probably comes through very much in my books.
+- With acting, you have to depend on somebody else to decide if you are allowed to work. You can spend weeks and months when you are not acting at all.
+- I thought I could never write a proper book; I'd never done it before. But I thought I could write a sequence. Then I had a chapter. The next thing I knew I was turning acting down.
+- I came from a house full of books, so I took reading for granted. I was an outdoorsy little kid, too, so I got the best of both worlds by taking books up trees and reading there.
+- Your character is always right. No real person thinks they're being stupid or misguided or bigoted or evil or just plain wrong - so your characters can't, either.
+- The thing about being a mystery writer, what marks a mystery writer out from a chick lit author or historical fiction writer, is that you always find a mystery in every situation.
+- I don't really plan ahead very far. I have never known what I'm doing more than a few pages ahead.
+- I like writing about big turning points, where professional and personal lives coalesce, where the boundaries are coming down, and you're faced with a set of choices which will change life forever.
+- Ireland is such a young society. The British were the ruling class up until they left about a hundred years ago, and we've been trying to work out what our class hierarchy is ever since.
+- If you rewrite a paragraph fifty times and forty-nine of them are terrible, that's fine; you only need to get it right once.
+- In TV writing, Armando Iannucci's satire 'The Thick of It' is brilliant - equal parts hysterically funny, terrifyingly believable, and Oh-my-God-I-can't-believe-he-actually-said-that - and it's got the most satisfyingly creative insults ever.
+- I'm still very much in the apprentice stage of writing. I read somewhere that you need to write a million words before you know what you're doing - so I'm headed that way, but I'm nowhere near there.
+- We moved around a lot when I was kid. I'd lived in three continents before I was 12.
+- I'd always been fascinated by archaeology; it was my original career plan as a kid.
+- Don't be scared of 'said.' Writers sometimes go looking for alternatives because they worry that 'he said' and 'she said' will feel repetitive if they're used all the time, but I swear, they won't.
+- For me, a relationship with a place is very fundamental. When you're moving - when you're leaving your life and the place where you've lived on a semi-regular basis - you tend to connect the sense of your entire life to that place that you've left.
+- I'm slightly in awe of writers, such as Sophie Hannah, who follow outlines.
+- I read one book where the characters never said anything; instead, they spent all their time grunting and bleating and hissing and cooing and growling and chirping and... It was like a menagerie in there. After a while, I wasn't even taking in the rest of the book, because that was all I could see: the dialogue tags.
+- In terms of pure volume, I probably read more psychological mystery and historical true crime than anything else.
+- Both back when I was acting and now that I'm writing, I've always wanted the same thing out of my career: to be able to get up in the morning and do what I love doing.
+- Most animals are pragmatic about mysteries: If they run across something they don't understand, all they care about is whether it's edible and whether it's dangerous. Humans, on the other hand, are drawn to the mystery for its own sake.
+- I've got this theory that human beings are innately religious; we have a belief system. It doesn't have to be a theist form, necessarily. But we need a belief system, some framework on which to hang our behavior.
+- If you're too lucky, it can be very easy to lack the ability to believe that other people's lived experience is real when it doesn't match up with yours.
+- I love writing. I feel ridiculously lucky that this is what I get to do all day.
+- My night stand is permanently jammed with books I want to read.
+- Everybody has ways in which they've been lucky in life, and everybody also has ways in which they've definitely rolled snake eyes.
+- I remember reading about the Marie Celeste when I was a kid and becoming obsessed with what happened.
+- It's OK to screw up. For me, this was the big revelation when I was writing my first book, 'In the Woods': I could get it wrong as many times as I needed to.
+- If you're writing a scene for a character with whom you disagree in every way, you still need to show how that character is absolutely justified in his or her own mind, or the scene will come across as being about the author's views rather than about the character's.
+- I'm a big admirer of Daniel Woodrell for his beautiful, precise, sparse prose - I don't do succinct well, so I'm in awe of writers who do.
+- I reread a lot. I must have read 'The Once and Future King,' 'Watership Down' and Mary Renault's 'Theseus' books at least a dozen times each.

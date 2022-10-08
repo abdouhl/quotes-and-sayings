@@ -1,0 +1,78 @@
++++
+author = "Martina Navratilova"
+title = "Martina Navratilova Quotes"
+quotes_len = "72"
+description = "the best 72 Martina Navratilova Quotes"
++++
+- I just try to concentrate on concentrating.
+- So many athletes are afraid to use their platform to do the right thing and speak what they feel, and that's very depressing. Sure, they are afraid of insulting people and losing money because of it, and everyone wants to make the maximum amount of money in their lifetime. But at the expense of who you are? I don't know. That just wasn't in my DNA.
+- Russia is now very far from being a communist country, but when I walked around Moscow, I kept glimpsing these haunting images. There were statues of Lenin and some neon signs of the hammer and sickle. I remembered myself then as a little girl, living under that oppression.
+- Ted Cruz, if he's elected president, the first thing he will do is return Don't Ask Don't Tell and roll back same-sex marriage laws. Which is law - hello - you can't really take it away. It's really terrifying the direction we're going in now.
+- Just by being out you're doing your part. It's like recycling. You're doing your part for the environment if you recycle; you're doing your part for the gay movement if you're out.
+- For six years, I was really on my own and did not have a coach.
+- Goodbye 2010. If you were a fish, I'd throw you back.
+- I've given many lessons in many sports over the years to many different people.
+- Sport doesn't know barriers, really. You are judged on your performance... how far you can jump, how fast you can run, how well you can hit a tennis ball.
+- Whoever said, 'It's not whether you win or lose that counts,' probably lost.
+- Disability is a matter of perception. If you can do just one thing well, you're needed by someone.
+- I've always been a rebel, always curious about the world around me.
+- The mark of great sportsmen is not how good they are at their best, but how good they are their worst.
+- The goal for the Laureus Sport For Good Foundation is to give kids an opportunity to be involved in sports and hopefully learn some lessons along the way. We want to put them in a safe environment, help them if they need it and maybe they will get a scholarship to a school because of the skills that they learn. Sport is just a starting point.
+- I do get pissed off when I'm at some gay event, and there's a 25-year-old, and he has no idea who I am. And I say, 'You need to know more about your gay history, boy.' I think the younger generation takes it a little bit for granted.
+- When you make a lot of money, it just means you made a lot of money. It doesn't make you a better person.
+- The Czech tennis federation wasn't holding me back, but they could still pull the plug anytime they wanted.
+- My life is very well managed. I have a lot on my plate, and at the same time, there were still holes, and what I do and where I am dovetails nicely with what Agnieszka needs. I don't think I could be a coach for a Madison Keys because she needs somebody more hands-on. But Agnieszka is almost a finished product.
+- Tennis is the purest form of democracy. There was a symbiotic, chicken-and-egg relationship for me between democracy and tennis.
+- After I retired, I was in Aspen, and after two months of being at home, I started to go nuts. I needed to go somewhere because that was the longest I never travelled.
+- I am just sorry my own mother had to live under that regime for most of her life. I was lucky. I got out and, 14 years later, Czechoslovakia became a free country. So I feel anger, even fury, at this bloody system that ruined so many people's lives for no reason whatsoever.
+- I can teach many sports, but obviously, tennis is the one. When you do other sports, you see things from different perspectives: different footwork drills, body positions, angles and geometry. All that stuff is helpful, and so when I do other sports, I can see things, because once you know one sport, then the other sport becomes more clear.
+- Playing tennis, I didn't tie in my self-worth into winning or losing matches.
+- I hope, when I stop, people will think that somehow I mattered.
+- You can't live in the past, there's nothing you can do about it.
+- The more people come out, the less it will be an issue.
+- The moment of victory is much too short to live for that and nothing else.
+- Players are saying, 'I don't have to have a coach who has only played a little bit. Instead, I can have somebody who won something'.
+- People in the States used to think that if girls were good at sports their sexuality would be affected.
+- To those people doubting Serena Williams, writing her off - do not do that to a champion.
+- I am healthy. I have been blessed with a very good body, and I have worked hard at it. I had surgery on my toe, and I'm still recovering from that. That's the only joint that was hurting. Earlier, I had a knee replacement, hip replacement, shoulder surgeries, but I have been lucky. I don't feel any pain when I play.
+- I know propaganda when I see it, and I can speak with authority on it.
+- I've been in the twilight of my career longer than most people have had their career.
+- I regret that I had to leave my country. But I had to do it in order to achieve and decide my own fate. I was forced into it. Democracy came about 15 years too late for me. But I have to say that it's there now, and Czech Republic is a fantastic country; it always was but just had the wrong regime at the top.
+- If a man can coach a female, why can't a female coach a male? When I was looking for a coach, the gender of the coach never occurred to me. It was about who I thought was good and who I could get along with and listen to.
+- I shouldn't say I'm looking forward to leading a normal life, because I don't know what normal is.
+- Life is about challenges and how we face up to them and the attitude we take into every day life so hopefully we'll be able to motivate people to do more with their life.
+- I really couldn't come out until after I got my citizenship, because it was a disclaim - back then, it could have been a disqualifier. I could have been denied my U.S. citizenship because I was gay. So I didn't - I stayed quiet.
+- I never felt I had anything to hide. I never felt being gay was anything to be ashamed of, so I never felt apologetic. I didn't have issues with it, didn't grow up with any religion, so I didn't have any religious, you know, issues to deal with as far as homosexuality is concerned. So, I accepted it very easily. For me, it wasn't that big a deal.
+- We're criminalizing economic inability to stay out of the system. Women get penalized more than men for the same crime; blacks get penalized more than whites for the same crime. We need to bring out more into the light, because it's not fair... I applaud Colin Kaepernick for speaking out.
+- I didn't realize until I was doing commentary what a gladiator-like competition tennis is - other than no one dies. The crowd is waiting for the players to come, and they walk through the tunnel, and they get on the court, and they get out their rackets, their weapons, and now they start.
+- The difference between involvement and commitment is like ham and eggs. The chicken is involved; the pig is committed.
+- I think the key is for women not to set any limits.
+- I think we will have full marriage rights in Colorado. But in 1992, there was a very hateful Amendment 2 that basically made it legal for any institution to deny gays and lesbians access, whether it's hospitals or restaurants or employment. Anybody could fire you or not let you in a restaurant because you were gay.
+- It is easier to do a job right than to explain why you didn't.
+- It takes a lot of guts to come out to your friends and family. For most gay people, coming out is the most traumatic experience in their life because of the worry about the backlash: 'What's going to happen? Are my parents going to accept me? Are my friends going to accept me? Are my sisters and brothers going to accept me?'
+- I've been active in animal rights and all kinds of environmental stuff and children's charities over the years.
+- There was a joke in Czechoslovakia: The Communist Party dance, it's one step forward, two steps backward, and everyone is still clapping.
+- I just wanted to play tennis. It wasn't a job. It was an ambition. I knew I could make money at it. I was 18 - old enough to think I could do it, young enough not to consider the consequences.
+- I was political by coming out of the womb. I was gay, and I wanted to play tennis.
+- I think men are more adventurous in that they're more likely to take chances. Women play it safe. But now, maybe more of the women that see how it's working for the guys think, 'I can do that, too'. Maybe they'll pick male players, not necessarily female players; it's just whatever that match is that works for that player.
+- Sure I know where the press room is - I just look for where they throw the dog meat.
+- Just go out there and do what you have to do.
+- I've a great family, two children to take care of. Then, of course, I do commentary for TV. I do speak about various women's issues around the world - like LGBT, motivational speeches. I have a lot on my plate right now. But eventually, yes, I would like to pass on the knowledge and something that I would like to do.
+- When I reached America, there was so much space and colour. The possibilities seemed endless. At least that's how I felt at 18. But of course, I didn't have to take the usual immigrant route of battling to find a job and a home in a strange country. I could play tennis. I spoke the language, and I was making money. It was easy, really.
+- My worst memory is of my first dance lesson as a 14-year old in Prague. My mother put me in this silver and pink lame dress. My hair was all curled, and it was the first time I wore a garter belt. I felt so out of place!
+- Variety is what I would recommend: As variety is the spice of life in food, so it is in exercise. Change it up. But most of all, don't overdo it.
+- That's the media now. They get lazy. Rumors become fact. Some blogger says something, next thing you know, it's in 'USA Today.'
+- Tennis has given me soul.
+- You can have a coach for five or six years, and eventually, that coach has so little new to say. So get somebody else to give a different point of view. Somebody will see something I don't see and vice versa. You evolve with your game and your coaches.
+- The Williams girls compete extremely hard on court because they hate losing - it's just that they haven't played an awful lot of tennis over the years.
+- Julia, I promise to love you, to cherish you, in sickness and in health. No matter what, I will be there for you and our family. I promise not to make the social media another member of our family.
+- I tell you, if I was in the same position I was in 1975, trying to leave a communist country and trying to live a free life, America is not the country that I would think about going to considering how many rights the GOP is trying to take away.
+- My mom told me to cover up my arms ever since I was little because I was muscular. She wanted me to be feminine, which did not come easy to me. My body was what it was, and I worked it to be a better tennis player.
+- Labels are for filing. Labels are for clothing. Labels are not for people.
+- When I worked with Billie Jean King and Craig Kardon, and we would be working on something, Billie would show up and say, 'What about this?' Neither one of us had seen it.
+- I'll do some running with the dogs, ride a bike; if I go to gym it's usually for cardio. I don't do weights as much; every once in while, I throw in some pushups and do leg exercises to strengthen my legs.
+- If I feel strongly, I say it. I know I can do more good by being vocal than by staying quiet. I'd have a whole lot more money if I lied, but I wouldn't enjoy spending it.
+- I was always controversial, being gay, so nothing was more controversial than that.
+- I'm 58 years old. I got married for the first time - it's about time, right? Growing up as a gay woman, you just don't ever think about that, and then I thought, about 10 years ago, 'You know, I think within 10 years gay marriage will be legal.' And here we are, 10 years later, making it legal.
+- The tennis ball doesn't know how old I am. The ball doesn't know if I'm a man or a woman or if I come from a communist country or not. Sport has always broken down these barriers.
+- Gender is irrelevant. Certainly the tennis ball doesn't know what the gender was of the tennis coach.

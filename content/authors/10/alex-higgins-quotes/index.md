@@ -1,0 +1,34 @@
++++
+author = "Alex Higgins"
+title = "Alex Higgins Quotes"
+quotes_len = "28"
+description = "the best 28 Alex Higgins Quotes"
++++
+- I had such a great affection and love for playing snooker.
+- When I was 15, I was about seven stone - the average weight for a kid of 11 in them days was about nine stone. I managed to keep my head down because there was about half a dozen heavies in the class and there was bullying in them days. But I stayed one step ahead of them all the time.
+- I'm very good when it comes to the crunch.
+- I haven't really had much to do with my life. All I've done is take part in it.
+- I have been a fighter all my life.
+- I always played on my nerves - on the edge.
+- I think my presence around the table was mesmerising at times. It captured people.
+- Would I have done anything different? I might have put a golf club in my hand instead of a cue. I love watching those guys play. Every situation is different, everything - every shot - has to be so precise.
+- I want to be the Cassius Clay of snooker. Cassius is the greatest at boxing and that's what I mean to be at snooker.
+- I have a strong will-power.
+- No Alex Higgins, no snooker.
+- I think I was the most natural, charismatic player who ever lifted a cue.
+- I am trapped in snooker.
+- I might have been a jockey, you know. I started by riding horses bareback and holding on to the mane before they finally threw me off.
+- Nobody worked as hard to make snooker a popular sport as I did.
+- I invented every shot that has ever been played.
+- I'm quite a studious person, I think.
+- What chance has cancer against me?
+- I don't want my kids to live like I do, sweating in a little metal box. I want them to have sunshine. I want them to have light.
+- The tobacco companies and snooker were as thick as thieves.
+- By my very nature, I would never achieve a great level of consistency. That's my appeal and my downfall rolled into one.
+- I just love playing snooker. Every single frame is different. Not one referee ever sets the balls up exactly the same.
+- I could think six shots ahead. It's no different to playing chess.
+- I love to sit and watch a bit of 'Cash in the Attic.'
+- If I'd been from a different background, I could have gone to a grammar school, I suppose. I might have been a different person.
+- I never had any doubts about my ability. The problem was getting into so many scrapes because of my erratic temperament.
+- I used to play snooker in millionaires' mansions with marble floors and eat at the best places, but that's all over now.
+- The reason that I was so quick was because I was impatient. I couldn't wait to hit the next shot.

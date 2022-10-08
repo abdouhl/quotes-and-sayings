@@ -1,0 +1,48 @@
++++
+author = "Natti Natasha"
+title = "Natti Natasha Quotes"
+quotes_len = "42"
+description = "the best 42 Natti Natasha Quotes"
++++
+- There's always a spot for rest, and I find a way.
+- It's not easy for an artist, especially for a girl. But you know, you just have to work very hard, persist, trust what you have, your essence.
+- I want to keep representing for all Latinos - for men, women, young girls, and young kids that have a dream.
+- Little by little, I get to see my music reach people's hearts. There was a time when it was all part of a dream that others didn't believe in, but I had all my faith and trust that one day it was going to be a reality.
+- I want to enlighten the world. We all need it. We need love and light.
+- That's the key to becoming successful in this industry: to dare and to not be afraid.
+- In order to advance in this world, you need to have respect for yourself.
+- It feels amazing to see all of my hard work finally pay off.
+- What I really want is consistency - to keep working, for God to keep blessing me with all the amazing people in my life, to keep making good music, and to keep representing females out there.
+- Lauryn Hill inspired me so much. She had that whole women's empowerment vibe in all of her songs back when that didn't even exist.
+- I used to have imaginary friends.
+- Supporting other girls and other women in your surroundings - it could be anything, not necessarily music - it is you giving back to the world.
+- I own my sexuality, and I don't try to hide it.
+- It's my first baby, 'IlumiNATTI.' I'm taking risks, but I feel like I'm doing it for all the Latinos out there.
+- I have to worry how other women and girls will react to my music. Will they really understand the message that I'm trying to put out there?
+- I really like dancehall. I really like reggae. I'm a big fan. Bob Marley and all that.
+- I want to bring light to my music, to women all over the world. I want to illuminate them with power and a voice, to feel special.
+- As a little girl, I was in the church chorus.
+- I really like to vibe with people and to connect, and I know that I'm a stronger artist now than what I used to be.
+- Women have a voice; they're empowered, and they're heard.
+- I feel like women have so much more to offer: our essence, or flavor, and our part of the story.
+- They say Latina women are spicy. But we are more than that. We have power, and we run things.
+- 'Makossa' is from Africa, and it means 'dance.' It's also the name for this type of music. In my song, I decided to mix in some Jamaican sounds, like the steel drums.
+- I watched 'Dexter,' but it ended in a really weird way. I think it's going to start over again because he's a new character; he's like a fisherman.
+- The culture of the Dominican Republic definitely influenced me. We enjoy music in this crazy way; we celebrate absolutely everything.
+- In my music, I'm uncensored, which has helped me stand out as a female artist.
+- It was definitely harder being a girl in the industry, but sometimes you have to struggle, and you have to work harder to actually enjoy when you start getting the results.
+- I was a girl who believed in the color of my voice and what I had to say.
+- Own what you have, be happy, love your family, and be sure of yourself no matter what passion you are chasing.
+- At the end of the day, I feel like it's a mistake to generalize that all men are the same.
+- When you're a little girl, you never think anyone's gonna tell you 'no.'
+- Music is so unpredictable, but it's universal.
+- The hardest part about the music industry for anyone is getting into the ears of the world.
+- What International Women's Day represents to me is a time that gives women their position, honor, and respect, which represents empowerment to all of us.
+- Being recognized as a professional by other males is the hardest thing that women have been able to do.
+- I watch 'Under the Dome.' Oh my God! I love it.
+- Working with Thalia was a dream come true as a longtime fan of her work.
+- I'm always focused and enjoying the journey because this life is meant for savoring every goal reached and striving for more.
+- When I was little, I used to listen to Lauryn Hill, so that's that hip-hop and R&B influence in me.
+- It's an honor to be the voice for girls who are not scared and who want to have someone to connect with.
+- I got to know myself in the sense that I like to do songs with no filter. I'm not afraid of saying things that are real.
+- 'Oh, Daddy,' was a remake of the Ritchie Valens' song 'Oh Donna,' and I really like that one because it's a story of a pregnant woman who was dumped by her baby daddy, but she was always waiting for him. It's a sweet-and-sour situation.

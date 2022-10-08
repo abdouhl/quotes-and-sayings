@@ -1,0 +1,15 @@
++++
+author = "Maciej Kranz"
+title = "Maciej Kranz Quotes"
+quotes_len = "9"
+description = "the best 9 Maciej Kranz Quotes"
++++
+- Traditionally, in the technology industry, companies need to re-invent themselves every 3-7 years to survive. If the company misses one transition, it can still recover, but if it misses two, it is usually fatal.
+- Lone wolves won't succeed with IoT. This is a team sport.
+- Like two sides of the same coin, you can't separate IoT from underlying business processes.
+- Co-innovation between a startup and an enterprise works best when each party fills a gap in the other's capabilities and when they share equitably in both the work and the rewards.
+- Attracting the next generation of IoT talent will take more than money - it's just as important to nurture a team-based culture of diversity and openness in which every voice is valued. This not only appeals to younger workers but also aligns with IoT's network character.
+- Share your IoT experiences. Share your successes, best practices, and failures. We know that IoT doesn't work perfectly every time, but we can learn from each other's mistakes and vow not to repeat them.
+- Device makers, especially consumer-focused ones, have been the Achilles' heel of IoT security. These vendors have often viewed proper security implementations as extra cost, complexity, and time-to-market burdens with an unclear payoff.
+- I have long been an advocate of starting an IoT journey with a small, low-risk project that can produce immediate benefits. But don't confuse small with non-strategic. Align each project, no matter how small, into your larger strategic vision.
+- The primary goal of IoT is to solve business problems, not to deliver a cool project or new technology. Focus on a business-relevant problem, and work with your customer to solve it.

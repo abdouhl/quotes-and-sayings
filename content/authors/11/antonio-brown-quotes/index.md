@@ -1,0 +1,91 @@
++++
+author = "Antonio Brown"
+title = "Antonio Brown Quotes"
+quotes_len = "85"
+description = "the best 85 Antonio Brown Quotes"
++++
+- Yeah, I've always been a big Chunky Soup guy. I'm digging all the new Chunky Maxx flavors, which are packed with protein. Specifically, the black angus beef.
+- The great thing about Snapchat is your fans can get a detailed experience of what your life is like behind the scenes.
+- I lift weights in the offseason about four times a week; during the season, I'll lift three times a week. The weight training is key because most guys come in during the summertime as strong as they are going to get, and they fizzle down as the year starts.
+- I've never held out. I'm a first-class guy in any relationship. The first way of getting better is showing up, so I'm always going to show up and do my part and be ready to go.
+- Money is not important to me. I've got enough. The organization has extremely blessed me. I'm here to play football, and that's what I want to be known as.
+- I try to swim once or twice a week. I basically hold my breath for, like, 12 laps, down and back, to kind of expand my lungs so that I can have better breathing when it comes down to two-minute drives where you've got to play a lot of plays all in one series and you're hurrying up.
+- Holdouts never go well. Just look at history. It always ends badly. It wouldn't be the best decision. I make a lot of money. I pull up to camp in Rolls-Royces.
+- It's so hard in the NFL, man. You spend the course of a long week preparing for one opportunity. And once you get that opportunity and you get in that moment, it's just an amazing feeling. It's something you should celebrate about, something you should be excited about.
+- I know everything I do is going to be magnified.
+- You've just got to train hard. Conditioning is key, recovery is key. As hard as you work, recovery is just as important. All the soft-tissue work daily, all the things that keep me clean. And you've always got to be aware of what you're eating, what you're putting inside your body. That's key as well.
+- I just like to bring energy. I always try to create a moment. Memories are important to me, and I like my look to go with the mood or the moment.
+- At the onset, I decided to name my brand LVL XIII - which means Level 13. The number 13 identified within the name and concept of the brand references throughout history that every creation begins at the level of thought and idea.
+- My goal is always to get better every day. No one will ever outwork me. That's how it will always be for me. That will never change.
+- I am filled with so much sincerity and gratitude to know where I came from and what I'm doing now.
+- Being passed up by teams because of my size made me hungry. I've seen a lot of first-round guys who come in and never really do nothing because they may not appreciate the opportunity because everything has been given to them. I think guys who come from the bottom understand how hard it is, so they appreciate the opportunities more.
+- We usually have a rookie show when camp is almost over. It's a chance to get to know the rookies and to have fun and set the pace for the season.
+- You have to take care of your guys. If a guy underperforms, you get rid of him. If a guy overperforms, you take care of him.
+- I think Von Miller's got great style. For a defensive end, I think he has receiver-type style, swag.
+- I think things will work out for the greater good for not only me but the city of Pittsburgh. I'm extremely grateful to get out in the community of Pittsburgh and not only play the game but affect other people and kids in that regard, and I'm excited about the whole process of that.
+- At the end of every year, I always get a blood test to see what's on the inside of my body. You've got to see what you put into your body, not just care about the outside of your body - make sure you get in all the supplements and all the protein and all the carbs and the low cholesterol.
+- All great players want to be the reason the team wins.
+- This organization has been nothing but first class to me, believing in my talent and my skills since I got here. And I'm just here to pay them back with my work ethic.
+- You don't throw your quarterback under the bus, the guy who makes you who you are.
+- As long as we keep winning, that's all it's about. But it's evident I do need the ball.
+- It's always great to engage with people. You never know who you can make an effect on. And I love interacting with the fans, hearing what they have to say and joking around with them. Anytime I can reach out online and give encouragement, motivate people, be a better citizen, that's what it's all about, man.
+- I never want to make the quarterback feel like I'm being a distraction or I've got any negativity toward him.
+- It's not about me. It's about the Steelers.
+- You can always get better. The day you stop getting better is the day you shouldn't be living. Gotta constantly improve and continue to grow within yourself.
+- I want to bring more manufacturing jobs to America. For starters, I want to be behind the initative to build a manufacturing facility in Atlanta.
+- If you want to be the best, you can't take the path of least resistance. Every morning, you wake up, and your mind tells you it's too early, and your body tells you you're a little too sore, but you've got to look deep within yourself and know what you want and what you're striving for.
+- Spreading my love and extending my hand is what life's all about.
+- We gotta show up and pay attention to details, embracing the process of hard work, and developing our bodies and minds to get ready for the season.
+- I'm a true professional. I don't play no acting games, and I take pride in my work and being a professional.
+- It's the NFL. It's hard to score touchdowns.
+- When you see people taking shots who were on the same team and wearing the same jerseys, that's a sign of not having that team camaraderie.
+- I've been fighting for my life before and sleeping in cars and trying to find a place to lay my head. I've had situations where I've had nowhere to go. This is the easy part. I overcame life.
+- If you play this game long enough, you're going to get your tail kicked at least once.
+- In a competition, there's always winners and losers. And I think everyone is here to win, which makes it fun for us all.
+- I'm a good guy with a good heart, and I have good intentions.
+- We do a lot of great things, but it's a competitive league. A lot of great guys around us do the work and help us elevate our game, and that's what makes the NFL so special. We have a lot of competitive players who are the best in the world at what they do, and they all compete against each other.
+- I know the position I'm in. Guys are going to try and take me out, but I got to be able to overcome it all and not let those type of things affect me.
+- My job is to catch the ball no matter how they throw it - hard, soft, medium. You've got to be able to catch it.
+- The team goals are always more important than individual goals. The ultimate goal is to win the Super Bowl and to do something special. The other little goals that you guys write up, those things take care of itself in the midst of playing football.
+- I'm passionate about the game. Anytime you work as hard and a play doesn't go the way you wanted, you get frustrated.
+- I probably do 10 to 12 Snapchats a day. Spending time with my family or my chef, my workouts, my outfits, or any events I'm attending. Playing music in the car is a big one for me. Dancing sometimes. Or asking people, 'How's business?'
+- The NFL does a great job of taking care of the players.
+- Matt Ryan does a great job of throwing the ball. No quarterback within the 20 to 25 yard range is throwing the ball any better than Matt Ryan.
+- You've got to motivate the fans and the people to get your teeth cleaned. It's called daily hygiene. You've got to take care of yourself.
+- I don't think of myself as a small receiver, but you can't control what somebody says about you. It hasn't held me back - actually, I think I've changed the perception of smaller receivers.
+- I'm a Steeler for life.
+- Over the course of the game, you can't let negativity get in your head. Any time a guy playing negative upon emotion, it's not going to be a great day.
+- You can get excited and feel unstoppable, but every week presents a new challenge. Each week, you have to work and get better.
+- I feel like guys don't want to stop me no more.
+- Aaron Rodgers - I love the way he scrambles and how he plays the game - he always makes great decisions with the ball.
+- The journey is never ending. There's always gonna be growth, improvement, adversity; you just gotta take it all in and do what's right, continue to grow, continue to live in the moment.
+- Anytime you get an opportunity to put more fun into the game, that's good. I've got a lot of positive energy.
+- You get caught up thinking about the future, you lose sight of the present.
+- We always want to see each other do well. And I think we all want to win. As competitive as you are, you always want to win.
+- We're focused on ourselves and winning our games and handling our business. We'll let the chips fall in place.
+- BioRhythm was a perfect fit for me, as I can relate to the company's attention to detail when producing its products to a very dedicated fan base. Detail is a key to my success on the football field.
+- I got a strong spirit that I rely on and go into. It allows me to prepare and drive forward.
+- Karma is karma. Karma is in life. You do the wrong things, you get the wrong things out of it.
+- I've got to take responsibility and be a representative, not only for the Steelers but myself, my family. I've got to be smart.
+- People are brainwashed into believing that Italy is the seat of luxury manufacturing. If it's made in Italy, it must be good. That's just hype. Quality is where you bring it.
+- I play with a lot of great peers around the NFL - to even be mentioned with those guys is something special.
+- When everyone turned away, the only person I could turn to was God within myself, and that is what I continue to rely on.
+- It's a team game, but you've got to have individuals that really want the ball and want the pressure of being there to help get in a position to win.
+- Allowing guys to celebrate and get the fans involved and excited - it makes the game better.
+- I was real skinny in high school. I was real fast and explosive. I just didn't really have a good nutrition plan; I didn't understand how important it was to be healthy. I was eating hot fries, potato chips in the morning, Capri Sun. That was like my breakfast. That changed when I got to college - I put on 20 pounds of muscle.
+- I started playing full-equipment football when I was 6 years old. My mom actually got me started in it.
+- The NFL is the only sport where you can be on a team five years, and your contract's not guaranteed. You can go through the whole process of training camp, and then as soon as it's the season, it's a week-to-week job, and they can cut you at any moment, or you can get hurt at any moment. It's not like that in other sports.
+- I don't have no issue with any guy. I'm a football player. I'm a competitor. When we're in the field, we're going to compete and be competitive. It's not personal between none of these guys. It's all in the game.
+- The battle of getting better is never ending.
+- I want to be known as a guy who, regardless of circumstance, always gave 100 percent, always went the hardest and the smartest. Pray up, inspiration to God, put in what I get out.
+- The game has been great to me. The Steelers have been great to me, and I think things will work out and take its toll. But I'm just singularly focused on being a great player, being here around the guys and my teammates, and representing my family.
+- If you're not a first-round pick or you're not 6-2, they always say you can't be the best. But the only time there's a weight class is before the draft. This is the NFL. It's all about what you do. I can run past guys and get done what I need to. I can do everything the big guy can do.
+- I don't have a number, I just want to catch them all. That's always my goal is to maximize every opportunity and every throw that's coming my way.
+- I love playing with fashion.
+- I knew as a kid that every decision I was going to be making, I would have full responsibility. So I knew I had to do what's right and protect myself, you know?
+- Nutrition is important, training is important - but so are rest and recovery, massages, acupuncture. Your body is your temple, and you've got to take care of it.
+- Blue is the color of peace. Water is blue. I like the color blue because it just puts me at peace. The patriotic symbol is blue. I just like blue.
+- I always modeled my game after the guys from Miami. Chad Ochocinco, Santana Moss, Andre Johnson. I used to love Roscoe Parrish as a returner.
+- No matter what you do in life, you want to make it boom. It can apply to anyone. Wherever you at, you always got to grow.
+- It takes a lot of hard work to be successful in the NFL.
+- I found out there is a production paradise in Brazil. I was able to make my second collection for less money but without sacrificing quality. More importantly, manufacturing in Brazil also fits in with my global initiative: to provide work and empowerment in a third-world country.

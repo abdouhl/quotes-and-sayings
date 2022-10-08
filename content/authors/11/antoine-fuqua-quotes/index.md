@@ -1,0 +1,72 @@
++++
+author = "Antoine Fuqua"
+title = "Antoine Fuqua Quotes"
+quotes_len = "66"
+description = "the best 66 Antoine Fuqua Quotes"
++++
+- I grew up watching 'Rocky.' I still love that movie, the original one.
+- I like the platform to show your art and everything that goes along with that. To show your voice and hopefully find films that are more politically driven, films that maybe inspire.
+- So it's hard to be an artist and be true to the reality of the world you want to create and also make it entertaining and successful financially.
+- I just think you can't shut your life off to just, you know, one thing. You gotta be open-minded. Explore things. Feed your artist.
+- The world we live in is like a Benetton ad. It's changed, and we have to appeal to a broader audience. You want younger kids of every race to be able to see themselves in the movie.
+- I used to get off the bus, and there'd be a crowd around, you know, and I was thinking, 'God, I hope this is not for me.' And it normally was, and it was because someone said something to my sister, and the first she says is, 'Well, I'll get my brother.'
+- I believe in God, absolutely.
+- I don't know, you know, when I look at it now, I don't know what in the world made me think I could become a director. I really don't.
+- I became a director just for the love of movies, because of the power of cinema.
+- I only pay to take my son to the movies, because most of the time I only watch European movies, independent movies, or screen them privately. But I like to go to movies with my son because it's still fun; it reminds me of why I make movies.
+- If you want to be in Hollywood, and if you want to make big international movies, you have to be able to make movies that don't have anything to do with social status or politics. To limit yourself to just do these little small movies and call it black cinema itself is a mistake to me.
+- People in Hollywood go home to their wives and children who look like they do. If you're in that position, your natural thought pattern is sometimes to think, 'Superman, oh yeah he's white.' You can't get mad at somebody for doing that. It's the world they live in and for some, they only live in that bubble.
+- Bruce Willis. Pain in my ass, no problem about that. We just didn't get along. We got along off camera, but shooting we just didn't get along.
+- Kurosawa is the sensei, the Shakespeare, of filmmaking.
+- I started studying mythology, just on my own. Joseph Campbell, mysticism.
+- If you are wearing the right jersey, people rallying in around you, and hugging each other when you win, and there's so much love and excitement when you're together. And then people seem to walk away, take their jerseys off, and start focusing on the color of your skin. It didn't matter for that couple hours at the game - why does it matter now?
+- We've been fighting our whole lives to say we're just human beings like everyone else. When we start separating ourselves in our work, that doesn't help the cause. I've heard it for years: 'How do you feel being a black filmmaker?' I'm not a black filmmaker, I'm a filmmaker. I'm a black man, I have black children. But I'm just a filmmaker.
+- I don't know if Prince even really paid attention to time. The moment of creativity is the moment, and you go at that moment.
+- I take them seriously but I try not to read them. I take them personally, that's why I don't read them. I think people are lying when they say they don't care, that's not true. I take them personally.
+- The simple answer is I'd just be a guy trying to feed my family, like everybody else. The complicated answer is, I think I'd be in some sort of military or government world of some sort.
+- Cinema Paradiso, because it reminds me of why I make movies, the magic of movies, the romance of movies.
+- At one point, there wasn't a black quarterback in the NFL. When you start winning, then you start seeing more. Jumping up and down and screaming and calling people names is not going to change anything.
+- I like making movies.
+- It's not worth it, it's not about money, especially when you're dealing with a culture. It should be about elevating the idea of what we are and who we are as people in the cinema, and that kind of stuff keeps dragging us back down.
+- If you win, if you make money. If you do quality work, then other people of color, whatever color that is, can get in the door.
+- What I learned is, don't forget who you are, because that's what's going to make you a filmmaker.
+- When you're sitting ringside, there's a primal thing there that hooks into violence and excitement. It's just two guys going at it in the ring - there's no team, no one to pass the ball to - and there's a certain excitement to that.
+- Remakes have been done forever. People talk about 'Scarface' and don't even know it was a remake.
+- Being a kid growing up with Kurosawa films and watching Sergio Leone movies just made me love what it could do to you, and how it could influence you - make you dream.
+- It's a hard line to walk, man. Cause you know you want to make this movie, you want to make it dark and real, you want to show all this stuff but unfortunately you can't always do that.
+- In our culture, I think that there is no markers anymore. Young men don't really have something that says you're a grown up now, until you have a baby.
+- You don't just have to see superhero movies. Ultimately, those movies are westerns - superheroes are good guys fighting bad guys in a landscape. In westerns, that divide couldn't be any more clear, but the only superpower you have is that you're a quicker shot than the other guy.
+- My experience of test screenings is that you don't know what kind of mood people are going to be in, and sometimes the studios accept what Joe Blo says - and this guy could just be a frustrated filmmaker, or not paying attention.
+- I'd like to think that the door is always open for just the best actor for the role, you know? Race or gender shouldn't have anything to do with it, unless the character or story is focused on that for some particular reason.
+- We talk about how hard it is now. But if we look back at the '60s, we actually had a president that was assassinated. We had riots, we had Vietnam, Martin Luther King, Malcolm X, the FBI, and the Black Panther war. There was so much happening at the time where it felt like America was coming apart at the seams.
+- It takes all sorts of people to come together to fight tyranny. It's not about one race anymore.
+- Denzel's all about the work. He's all about the acting. He's an actor. He'll tell you himself, 'I'm not a movie star, celebrity, something else. I'm an actor.' He steps on a set, that's what he is, and that's what he gives you. He gives his heart.
+- It's a dumb question, because I don't look at things as a black director, just as a director, so ask me as a director first and we can segue into the colour thing later.
+- My responsibility is, I'm always trying to look for new people of color or even artistic people who need a chance.
+- If you disagree with the way a colleague did something, call him up, invite him out for a coffee, talk about it. But don't do it publicly.
+- I box every day. I have a gym built wherever I go, so I still got my gym. Every day, I try to get in there and work out the mitts.
+- Each time you see a Western movie, it's a good reflection of where things are in the world at that time. It's probably one of the purest forms of cinema that really tells you where the world is.
+- When you're a director, and you look at Scorsese's work, he's always challenging us to push the envelope and break the rules. Someone like that is necessary and a godsend.
+- I grew up an athlete, growing up in Pittsburgh. I played basketball. I played football. I played a little bit of baseball in my earlier years.
+- What's it like finding out Denzel Washington wants you to direct his next movie? It's like getting a phone call from Muhammad Ali or Michael Jordan saying they want you to coach them.
+- If Prince decided that he liked you, or he liked your art or what you brought to the table, it wasn't something that ended. It was a continuation of that thing until he went to the next thing.
+- I watched the 'Seven Samurai' a lot because I loved it growing up. I can't describe to you how powerful that was. When you're a kid, you can't watch an almost-three-hour movie, but this was a war I just never saw before, with these samurai. I could relate to it, just being poor.
+- Westerns are simple stories where there's good and there's evil and where people had a sense of space and freedom. Growing up in the city, as a kid, you've never really seen that before. It's a beautiful dream to go from concrete to big skies, dirt and horses.
+- My grandmother was a huge western fan. She'd have me watch with her. 'Shane,' 'Bonanza,' 'Duel in the Sun,' I saw them all with her. I used to watch them until the TV turned to snow.
+- When I was younger, growing up in Pittsburgh, they had a 'Golden Gloves' program through the Boys and Girls Club. In Pittsburgh, New York, Philly, Washington, those areas, I would go and spar at competitions.
+- 'Cause movies are human drama, that's it.
+- Every time I look through the lens with Denzel, I'm like a 12-year-old kid. It's hard for me to look at the monitor because the fun is in watching him.
+- Making a movie to entertain people, that's just as important as telling people about our stories.
+- I think men under pressure - I mean, that's what brings out the worst and the best of us. I like to explore that quite a bit in my characters because I don't see a lot of it on the screen that moved me like the films that I grew up with - that are honest, at least, about honest emotions and honest heroism.
+- Anyone who's done their homework knows that the West was a pretty rough-and-tumble place. People from all over the world were there - and when you were there, you had to be tough as nails.
+- I think that the dialogue between police officers and the black community has to get better, but not better in a way where, 'Oh, let's talk about it when something horrible happens.' The dialogue has to be going on consistently, every day.
+- I've become friends with Michael Mann and Oliver Stone; I've seen those guys work and that was great to see.
+- The challenge for a director - and I think a lot of directors feel the same way - is that today we have to put on a producer's hat, too. Meaning, you have to sometimes think of it being 'business show,' not just 'show business.'
+- The story is also about the battle between Arthur and the Saxons. The Saxons were destroying everything they came across and Arthur was left when Rome was falling because this movie takes place in 400 A.D.
+- I was a fan of baseball growing up. We played baseball; I used to play in an A&P parking lot. It wasn't always easy to find a good baseball field to play in.
+- Some men don't gel when it comes to work - you have different work ethics, different opinions, different points of views, different methods of filmmaking - and we didn't gel.
+- I grew up on the East Coast, and we always used to say, 'Go get your hustle on,' whether it was playing sports or making money. You do what you have to do to do what you want to do.
+- I don't understand why we give up genres, and the Western is a great genre. It's a part of the rich history of cinema and who we are as we've evolved as people, as a community.
+- I like the opportunity to make films.
+- You have to feed your soul and spirit, but you also have to be a professional and remember the business that you're in. Everything is not your passion project.
+- But I like to go to movies with my son because it's still fun; it reminds me of why I make movies.

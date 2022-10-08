@@ -1,0 +1,18 @@
++++
+author = "Michael J. Massimino"
+title = "Michael J. Massimino Quotes"
+quotes_len = "12"
+description = "the best 12 Michael J. Massimino Quotes"
++++
+- The Earth - from our altitude at Hubble, we're 350 miles up. We can see the curvature. We can see the roundness of our home, our home planet. And it's the most magnificent thing I've ever seen. It's like looking into Heaven. It's paradise.
+- I think the astronaut job is the best job in the world. I realized when I was older and started applying for it that it's a pretty cool job.
+- I saw this movie 'The Right Stuff' when I was in college, and it really rekindled my interest in being an astronaut. I started taking those steps, and then I realized it would be the chance of a lifetime. It would be a dream life: not just a job, but the whole life.
+- Being outside during the space walk, the view of the Earth is just spectacular, and getting a chance to do that is just unbelievable, everything about it. You are going around the Earth at 17,500 miles an hour, so you have 45 minutes of sunlight followed by 45 minutes of darkness. You do a lap every 90 minutes.
+- The thing I remember most about space is the view from the spacewalk. When I was inside the space shuttle and looking through the window, you can see the earth and the stars, and it's very beautiful, but it's like looking at an aquarium, sort of. When you go outside and spacewalk, you become a scuba diver.
+- In New York, the Mets are winning the World Series in 1969; that was pretty big, but I would say the moon landing was right up there with the Mets in the World Series. So it made a, a big impression on me as a little kid.
+- The reason we have the stars twinkle at night is because the light is being kind of blurred by the atmosphere around the Earth. That is why the Hubble Space Telescope is so good, because it is above the atmosphere. So it is kind of like looking at the sun from the bottom of a swimming pool, versus looking at the sun above the swimming pool.
+- Astronauts cannot pick their nicknames and can only get their nicknames from other astronauts. Any astronaut who tries to give himself a cool nickname will regret it by getting just the opposite from his astronaut friends.
+- I had always been interested in the space program, and I didn't know if I could be an astronaut like I'd dreamt about when I was a little kid - to me it sounded kind of silly, someone grow up to be an astronaut - but, when I was in my 20s, I thought maybe I can get a job with NASA or a contractor, do something with the space program.
+- For me, the Earth had always been a kind of a safe haven, you know, where I could go to work or be in my home or take my kids to school. But I realized it really wasn't that. It really is its own spaceship. And I had always been a space traveler.
+- My odyssey to become an astronaut kind of started in grad school, and I was working, up at MIT, in space robotics-related work; human and robot working together.
+- I think most astronauts are not risk takers. We take calculated risks for something that we think is worthwhile.

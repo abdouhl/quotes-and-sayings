@@ -1,0 +1,142 @@
++++
+author = "Nikki Sixx"
+title = "Nikki Sixx Quotes"
+quotes_len = "136"
+description = "the best 136 Nikki Sixx Quotes"
++++
+- Rock n' roll is dirty, and it's bad, and it's either clever or it's not clever.
+- I know I'd feel emotional if one of my favorite bands was going out.
+- Growing up in the '70s, it was only a few years before that when men started to grow their hair long. And in the '70s, people were pushing the envelope a little farther, with men having even more style and piercing both their ears and wearing makeup.
+- For me, one of the things that I get excited about is getting in situations I shouldn't be in.
+- I don't know if I believe in life after death so much as I believe that there is something out there.
+- For those that don't know, my sister was born with Down Syndrome, and she was institutionalized in the very early sixties. Me, being just a small boy and being shuffled around between my mother and grandparents, I never knew her.
+- It's about what happens on stage, whether we can deliver it in a hungry way that is who we are in our hearts.
+- My main camera is a Nikon D3. I use a French camera from the 1800s for wet plate photography, I use a Hasselblad sometimes. But to me the camera really doesn't matter that much. I don't have a preference for film or digital.
+- The funny thing is that when you have any form of presentation to your band, meaning you have the foresight to see outside of your creativity, you have a bigger vision.
+- Fans are so grateful when you go places they don't expect you to go.
+- Sometimes when people can't speak English, they hum the melody instead of singing along. Having 20,000 people humming your song is incredible.
+- I'm always willing to talk to somebody if they have something to say that is interesting.
+- They say the music you listen to in your formative years stays with you and leaves an impression for the rest of your life. For me, the things that I fell in love with happened in the '70s, when artists were nurtured by record companies and it wasn't about singles.
+- I know when I wear a Led Zeppelin shirt, I am happy to put that Led Zeppelin shirt on. It's not, 'Well, they kind of suck.'
+- You don't base records on success; you base it on creativity.
+- I've got five kids and I'm married, Tommy's got two kids and he's been married, Vince just got married again, Mick's out of a relationship, Tommy's single as well. We've done a lot in our life, we've covered a lot of miles.
+- If I'm watching my favorite boxer, and he's just won the heavyweight championship of the world, and he retires, it kind of makes the guy a legend.
+- It's really cool to know that there are so many people out there that are attached to me or projects that I've done to really feel that it's a personal relationship.
+- You get clarity as you get sober, and you get clarity as you get older.
+- It's just kind of known in the music industry that a farewell tour means 'for now.'
+- If you're getting different prescriptions from different doctors, there has to be some sort of check and balance in there somewhere.
+- I just think if I can go from being a homeless kid with a dream of being in the biggest band in the world and making that happen, I can do a lot of other cool stuff, too.
+- Like all artists, I go through creative spurts.
+- What inspires me? I am so inspired every day. I am inspired by thinkers. I am inspired by rebellion. I am inspired by children. I have been inspired by love.
+- Do I think anything I ever do will be as big as Motley Crue? It's impossible.
+- I listen to NPR a lot. I love that.
+- In the end, the whole Internet thing kills me, because you can use it as a positive thing or you can read into all the negativity. And I think you've gotta put out positive energy, put out cool viral stuff, and then just stay out of people's opinions.
+- When I go into rehearsal rooms and meet with bands, they're genuinely excited to be with me because of what I've done as an artist, not because of anything else. There's that whole celebrity rock star thing, and artists are into artists who have been able to achieve success their way.
+- It's hard to find vehicles for your music.
+- Motley Crue, collectively and individually, have done things on our own terms.
+- I love those Keith Richards solo records, but it's not the Rolling Stones.
+- I think that music is a lifestyle that you sort of intravenously plug into and unplug from when you do and don't need it. Some people live it 10 hours a day, some on weekends. It's no more important or non-important than that.
+- We all fall off the wagon. It's only one day; it's not the rest of your life. Pick yourself up and go again.
+- I understand quarterly billing, how the record companies run.
+- I never understood the hit-single, quick-success, get-airplay mentality.
+- There's a sound with Motley Crue, and it comes with Vince's voice, which is such an important part of the show, and Mick's guitar. And the way Tommy and me play together is an important part of it.
+- I know some people who've gotten tattoos that they probably shouldn't have, like the name of somebody they were dating, and that never ends well.
+- We were telling everybody we weren't getting back together when we were in the studio actually recording. We wanted to try it on, to see how it would fit.
+- Hey, man, I like to look good; I wear make-up.
+- Reflecting back, we all make mistakes; we all go through our stuff - relationships, financial, all kinds of stuff - and if you can grow from that and pass that message on, it's a pretty cool thing.
+- Addiction is a really hard thing to kick.
+- I love Starbucks. Maybe that's a bit sad. But I definitely need my caffeine. It's what gets me out of bed in the morning.
+- Los Angeles has been my home since the days even before Motley Crue, so I am beyond excited that 'The Side Show' has found a home on 98.7 FM. This is the station I listen to - my friends listen to it, my family listens to it. It's the station I wanted to be on, and I'm psyched to get started.
+- It takes all kinds to make the world go 'round. If everyone was straight-laced and uptight, it would sure be a drag. We need a little tug of war in society.
+- SIXX: A.M. is a passion project. I think when you do things like that and put your heart into them and do your best and don't necessarily put them on a marketing grid, that's when things turn out the best.
+- When it comes to putting together a new show, we always push the envelope, and that's part of Motley Crue's legacy.
+- I think - I honestly think that my story is not 100 percent that unique. I think that I'm - just the whole rock star part kind of throws an interesting twist on it.
+- I'm not bothered by my appearance.
+- Each guy has his own space. We all end up in one of the other guy's rooms all the time. We always end up together, as far as people getting along.
+- You can't lie to your audience. You can't lie to your fans.
+- I'm not religious, but by nature I am spiritual. I'm an artist, and creativity seems to go hand in hand with spirituality. But I have a knee-jerk reaction against organized religions. Actually, I have knee-jerk reactions against anything that's organized.
+- There's nothing unique about me as a parent. I am a parent. My kids are kids. We do the best we can do.
+- I think anything that's creative really takes my mind off whatever it is that I'm going through in my life. If you're going through heartbreak, and you can write a song, it's a wonderful win-win, because it takes your mind off the heartbreak, and you get to vent.
+- It wasn't like I picked a camera up in 1989 and stopped making music. I picked a camera up and found another form of expression.
+- We have a growing new fan base, and we wanted to get out now, and play now, and the timing was right.
+- Let's just say I have expensive taste.
+- Through recovery, I've been able to do so much good stuff.
+- When the addict gets recovery, his family gets recovery, right?
+- I'm a sponge for information.
+- I've got so many mountains to climb and goals to conquer. I've got so many scars I want to leave on the planet. I just feel like I'm not there yet. I feel like I am just getting started.
+- Let me explain something: I'm not incredibly rich.
+- I sport a cave-man mentality.
+- I remember Iggy and the Stooges' song 'Search and Destroy' reaching out from my speakers to me like my own personal anthem.
+- You can't pee like a puppy if you wanna run with the big dogs.
+- I love the way my tattoos look. I especially love Japanese-style tattoos and being completely sleeved by them, so it's not just these little individual and unrelated pieces, but everything's working together to create a larger design.
+- If your album sells, that's cool, more people find out about you, more people get turned on to what we're really about-which is a live rock and roll band.
+- I don't want to jump through hoops for people.
+- How lucky can one guy get? I was a runaway, and then I was in one of the biggest bands in the world. I've sold out every arena. I've sold millions and millions of records.
+- Beauty, to me, is kind, generous, and people that are humble.
+- It's physically very, very, very trying to be onstage as a performer, not unlike an athlete, for thirty years.
+- The industry needs to be run by artists, because we are the only people that care about art.
+- What's scummy about the music industry is that everybody loves you when you're dead.
+- The other day I went to a movie with some friends, and they were like, 'Let's look it up on the Internet and see what people are saying,' and I was like, 'Man, that's messed up.'
+- There's no difference if you're a supermodel or if you've lost both your legs. What are you doing that's beautiful or ugly on the inside?
+- Being able to say something lyrically, to say something that will do more than just be words, is really hard. It's easy to do when you're writing a chapter of a book or writing poetry, but it's really hard to do when you're confined to a melody line.
+- There's a pattern when tours start - a pattern of infighting, of making up, of breaking up, of addiction. There's a pattern of going to jail. There's a pattern of passion for music.
+- If you leave me in a room long enough, I'll redecorate the room.
+- Ego is the great enemy. Ego will hold you back every single time.
+- I forgive my mom for being a psycho and my dad for being a loser.
+- Traveling around the country, meeting fans and hearing their stories in person and on my radio show has reenergized my commitment to creating honest and inspirational content that not only serves my own creative purposes but can help and touch others as well.
+- Nothing that Robert Plant does will ever equal Led Zeppelin, but that doesn't mean he's going to stop being creative. Jimmy Page has so many incredibly cool projects, but it's not Led Zeppelin; there will only ever be one Led Zeppelin.
+- I don't really care what people do.
+- I don't want to interview people. I want to have a conversation. I want to talk to Paul McCartney about the bass sound on 'The White Album.'
+- The book is really, really dark, to the point where some people that I've talked to have said that it could be a series. And I'm like, Where? VH1? It's a little hard for VH1.
+- I'm very interested in architecture.
+- Some cats, Iggy Pop, they're going to always have that hunger.
+- What's the best angle to cut someone's throat? Well, usually from behind. That's usually how it works.
+- If you don't deal with your demons, they will deal with you, and it's gonna hurt.
+- We did something this year that was not based on animosity.
+- What can I say that will make people that are in recovery want to stand up and support Recovery Month? A friend of mine said, 'You know, the fact that you did a really honest book and it changed people's lives, that's something to talk about.'
+- You want to love unconditionally everything you do, or don't do it.
+- Artists are very young, and say, Um, ok, to these industry dudes.
+- The thing is that I've known the guys from Motley Crue longer than just about everybody.
+- When you have so many things, and you have no idea why, you think, 'Maybe I'm supposed to do things for other people.'
+- Politicians really worry about being politically correct.
+- Radio stations play what they believe is in, and they all talk to each other.
+- There's so much history amongst ourselve that reminds us of something, and we start cracking up.
+- It's getting harder and harder to feel inspired to spend six months on a record.
+- Every day, I wake up, and the first thing I think of is my kids.
+- Who's the new Ramones, who's the new Guns 'N Roses, who's the new Motley Crue, who's the new Black Sabbath? They're coming, they're on the street, they're 16, 17 years old.
+- Formats are going to change because this is what the people want. It's not what the labels want.
+- I never understood bands saying Nirvana had anything to do with derailing their career. Maybe those bands didn't have the goods.
+- I'm able to make decisions even in the face of adversity.
+- Sometimes I journal three pages, sometimes I journal thirty pages, but I'm writing all the time, and whatever's happening is happening in real time for me.
+- I do believe that when I'm writing music, I get addicted to the music of the concept of what the outcome of the song is, or the passion behind the lyrics.
+- You can get through anything if you want it bad enough.
+- You have to age gracefully. And that's what I love about Keith Richards. That's what I love about the Rolling Stones. They are aging gracefully. They are falling apart at the seams right before our eyes, and they are doing it gracefully. And that's the most beautiful thing that we can do.
+- My studio, nicknamed 'Funny Farm,' is in a hidden location. It's very private. Not only do I create my photography there, but it is also where I write my books and create music.
+- I love women. My life revolves around them.
+- I have a wonderful assistant. I tell her I need four amputees and a midget, and she finds them.
+- I do believe that I'm an addict on one level or another at all times.
+- I had to find the courage to turn my life around.
+- If you actually dissect the lyrics in 'Motley Crue', you'll notice that there's a lot going on beneath the surface.
+- As a lyricist, I'm really trying to raise my level of quality.
+- I harbored a lot of resentment as a teenager and as a young adult. I still have a problem with authority, I'm trying to listen!
+- We each have our own tour bus. We've never done that before.
+- How can you have a rock n' roll circus without a midget?
+- I just love doing radio. I've learned to be more vulnerable through radio than even I've been through books and writing lyrics. It's a different type of experience where, if I'm writing a lyric, I can sort of hide behind it a little bit.
+- I remember opening up my first vinyl and seeing the incredible artwork it had. There's nothing like it. You also get that true gritty sound on vinyl that really makes a rock record sound great, which CDs can never achieve.
+- I remember, when I was a kid, listening to the radio and hearing 'Big Bad John' by Jimmy Dean - and it just blew me away. I used to sit there and call the radio stations and request that song. And then the Beatles were obviously out already, but I really didn't know about the Beatles.
+- For me, to turn people on to new music, on to things that are going on in the world, is important.
+- My mom, you know, took off when I was about 6. What ended up happening is I ended up being with my grandparents.
+- People say I have a distorted lens. I think I see things as they really are.
+- The music industry is saying, This is the format, and if you'll fit into this format, you can be on radio, and if radio will play you, MTV will expose you, and MTV will expose you, we'll sell records.
+- There's always people saying that rock is dead, rock is over. People are always out to kill rock and roll.
+- Some kid gets his first iPhone, signs up to Twitter, and then tweets, 'Nikki Sixx sucks.' And I'm supposed to take that personally.
+- One thing I've always loved doing is hanging out and talking music with other artists.
+- If you were on the phone with me and Tommy right now, we would probably forget you were there, we'd just be cracking jokes. It's like Beavis and Butthead.
+- Celebrities, movie stars and rock stars are losing their mystique.
+- I can't stand people who try too hard.
+- Even as a kid, I saw the world in my own way and thought most things that were different were beautiful and magical. Even things that other people thought were horrifying and disgusting and weird.
+- It's interesting. People go to an animal shelter and pick a dog that's been kicked, beaten, and has lost a leg and an eye, and they'll take that dog home and give it love and support, but they don't do that with people.
+- When Ozzy calls and asks you to go on tour, you say, 'When do I start?'
+- In '85, I went through rehab and I wasn't ready. If you're not ready, you're not ready. You don't want to hear the truth, and you're gonna keep doing what you keep doing.
+- I've always had an eye for the oddities in life.
+- The industry is a menace to artists.

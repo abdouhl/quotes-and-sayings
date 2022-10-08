@@ -1,0 +1,44 @@
++++
+author = "Ann Cotton"
+title = "Ann Cotton Quotes"
+quotes_len = "38"
+description = "the best 38 Ann Cotton Quotes"
++++
+- Girls' education is a human right. And along with its fundamental justice, it promises so much for the individual, for her family, for society, for all of us.
+- You need to listen to the people experiencing the problems, and their ideas need to crowd out the words of the 'can't be done-ers.'
+- Key to success for the education of young African girls is building a model that works with communities, schools, and national Ministries of Education to build a system of protection and support around girls, ensuring that they receive the education that is their right. Financial support is provided alongside a social support system.
+- I hear, 'But why do poor people make such bad decisions?' But actually, their decision-making can be far more complex than that of the better-off in many ways. They're not financially illiterate: they're constantly weighing up choices based on the reality of poverty. Somehow the international development community has resisted accepting this.
+- All countries have poor people. Yet it's a very rare country which understands the indignities of poverty, while education systems maintain the status quo. The children of the elite go to the best schools and get the best jobs, not because they are the best. We're not taking advantage of the intellectual power on this planet.
+- If you can't send your daughter to school when you know it will help her, you feel a sense of failure, and you feel that failure deeply.
+- Never take your eye off the ball. Always remember that you and everyone on the team is the servant of the cause - in our case, girls' education and young women's leadership in Africa.
+- The organization I founded in 1993, Camfed (the Campaign for Female Education), was in large part inspired by the generosity shown to me by a community in a village in Zimbabwe. During my visit to Mola to research girls' exclusion from education, the people of Mola fed me, shaded me, walked and talked with me for hours each day.
+- The prevailing view was that girls were outside of school because of the resistance of families to their education. But when I visited a local village, what everyone told me - the chiefs, the parents, the children - was that girls weren't in school because it was the boys that had a better chance of getting paid work in the future.
+- For more than 20 years, Camfed has supported a generation of African girls and women with access to secondary and higher education, employment opportunities, and, ultimately, into positions of leadership.
+- The aim of militants such as Boko Haram, whose very name means 'Western education is a sin,' is to sow hatred and enmity between Muslim and Christian communities, which have co-existed largely peacefully for generations. Education, in particular the education of women, is a threat to Boko Haram's goals.
+- I have seen the transformative effect that education has in the lives of young women and their communities.
+- To expose the hardships experienced by children who are deprived of the right to attend school, Camfed has produced a series of films about educational exclusion. 'Every Child Belongs in School' provides a glimpse into the lives of children who have been forced by poverty to leave school at a very young age and take a difficult life path.
+- In the family pattern, men support boys and women support girls, and because women have far fewer financial resources, there is less money to invest in girls.
+- I am honoured to join education innovators like Ms. Vicky Colbert, Dr. Madhav Chavan, and Sir Fazle Hasan Abed as the fourth WISE Prize for Education Laureate. I accept this prize on behalf of the million girls Camfed is committed to supporting through secondary education.
+- My journey started with the understanding that poor parents share the universal desire for education for their children. No family in our experience has ever turned down educational support for their daughter.
+- Camfed graduates are active in their villages using their skills and resources to improve as many lives as possible. They are teaching financial literacy to marginalized women and bringing vital health care information to rural schoolchildren. Through example, they are demonstrating the power of philanthropy.
+- Have faith in your intuition and listen to your gut feeling.
+- I recall an 18-year-old girl named Rachel in Zambia who was given a grant to start a business of her choosing. She decided to breed goats so she could sell the meat and the milk, and donate the kids to orphan children. She herself was an orphan, stepping into young adulthood with no resources, and it was her first opportunity to earn her own money.
+- The world has proved enough times that it can scale cruelty and violence. Compassion and kindness can and must be scaled to create a world of justice for children.
+- Money is hardly neutral. Its connection to power makes it a highly charged social phenomenon and a mediator of relationships. Because it has historically been controlled by men, it has given men a tool for controlling women.
+- Women's vulnerability around money is hardly exclusive to Africa. Throughout the world, women struggle with financial power. In the West, women's financial literacy is notably lower than men's. That lack of knowledge means that many women slide into poverty when they become widows.
+- For the poor, learning to manage money well is central to improving their lives.
+- At base, financial literacy is inextricably connected to control over one's future.
+- If women have an income, they will invest a higher proportion of that income in their children than men do. So you do get those societal returns very quickly.
+- Confidence is instrumental to those climbing out of poverty.
+- The exclusion of girls from education is an issue of justice. But it's also an issue of economics because it's holding families, communities, and nations back. The chiefs are often a bridge between the traditional and the modern world and are very powerful implements to change.
+- When I first worked in Zimbabwe, I was a complete novice. I was doing a study, and I continued to learn more and more through the years. And where I have learned most is in the village, from the communities.
+- The culture of philanthropy is alive and very well in Africa. International aid strengthens and extends it, but in the communities where I have spent time, it is all-pervasive.
+- All children everywhere deserve the opportunity that is unlocked for them by education.
+- Be greedy for social change, and your life will be endlessly enriched. The only failure lies in not trying, or giving up.
+- Camfed has worked for more than two decades in partnership with poor families, transforming this desire for girls' education into reality, and showing the measurable benefits of girls' education for all of us.
+- There are 45 million children in Africa who are not in school. While other children are learning, exploring, and growing in the myriad ways that children were meant to grow, these children are trapped in a life of constant struggle. Without education, how can they be expected to escape such struggle? How can their children?
+- Poverty is more than a material experience; it's a psychological state as well, one that is infused with anxiety. And decision-making is very complex because every decision you make has an impact on your future and survival.
+- Poverty diminishes confidence. So if someone offers you a grain store, even if you really need a plough, you take what is offered to you.
+- You can't raise the aspirations of a child and then leave them hanging. Poverty can't be solved by a project. It's solved by a relationship, collaboration.
+- The work being done by Linklaters to help organizations understand keys to success in the development sector serves as an important international affairs issue and crucial element in how all of us work to support service provision in impoverished communities in a lasting and effective way.
+- At Camfed, we have focused on transforming the vicious cycle of poverty in many rural African communities into a cycle of opportunity. Alumnae of Camfed's programs go on to become role models and mentors for future generations of young students. We call this the 'virtuous circle,' and we know this is a model that works.

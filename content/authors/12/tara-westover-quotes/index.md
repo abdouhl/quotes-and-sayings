@@ -1,0 +1,85 @@
++++
+author = "Tara Westover"
+title = "Tara Westover Quotes"
+quotes_len = "79"
+description = "the best 79 Tara Westover Quotes"
++++
+- I think that when memoir goes wrong, it goes wrong from too much memory, too much detail. It's about clearing all that away and just getting to the story.
+- My parents would say to me, 'You can teach yourself anything better than someone else can teach it to you.' That was the whole ethos of my family.
+- When you write, you are alone. It can be a bit of a shock later to discover that people have read what you've written!
+- BYU was a really positive place for me.
+- There's a sense of sovereignty that comes from life on a mountain.
+- I think reading an audiobook is a real skill - for one thing, you have to be able to do impressions and voices, which I cannot do - and it's just not a skill I have.
+- I didn't know if I would ever reconcile with my family, and I needed to believe that I could forgive, regardless.
+- I had grown up preparing for the Days of Abomination, watching for the sun to darken, for the moon to drip as if with blood.
+- Because I never attended elementary schools of any kind, I missed most of the books that were popular with other kids my age. There was an exception, however, which was 'Harry Potter.' My grandmother gave me the first book when I was about 13, and I read it, then read all the rest.
+- I knew how to write like an academic, so I knew how to write academic papers and essays and things. But the things that are great for an essay are unbearable in narrative writing.
+- I don't really feel like I belong anywhere.
+- All my father's stories were about our mountain, our valley, our jagged little patch of Idaho.
+- At BYU, I discovered history, then historiography. I became fascinated with the study of historians and historical trends, with the idea that the way we remember the past changes and shifts with our own preoccupations.
+- I taught myself algebra and a little grammar, and somehow I scraped a high enough score on the ACT to be admitted to Brigham Young University, even though I had no formal education.
+- I'm no longer religious, but the Bible fascinates me. Hardly anyone reads it anymore, but it's got everything: it's a book of poetry, it's a book of principle, it's a book of stories, and of myths and of epic tales, a book of histories and a book of fictions, of riddles, fables, parables and allegories.
+- I had to be - I was in school for probably three or four years before I began taking courses in history and political science, and I just started to realize how big the world was. I mean, when I arrived in college, I didn't know anything.
+- I used to roof hay barns for my father. It's dangerous work. Writing is much better.
+- I think you can change your belief, but sometimes your behavior takes a lot longer.
+- There is a certain panic, at least if you're raised Mormon, to being single at 31. But what they don't tell you is that it can also be kinda great.
+- I adore Toni Morrison. I think we would all be better writers if we read more of her.
+- During my first semester of college, I raised my hand in a class and asked the professor to define a word I didn't know. The word was holocaust, and I had to ask because, until that moment, I had never heard of it.
+- Things that I now recognise as just part of my personality - willfulness and assertiveness, maybe even a bit of aggressiveness - these are things that I had been raised to think of as masculine features. I always thought there was probably something wrong with me.
+- I do think we have collectively begun to conflate the institutions of education for education itself. Education is an individual's pursuit of understanding and has a lot of implications for that person, for the kind of person that they are.
+- Publishing a book is a very different thing than writing one.
+- In families like mine, there is no crime worse than telling the truth.
+- I felt like we had stories about family loyalty; I didn't feel like we had stories about what to do when you felt that loyalty to your family was in conflict with loyalty to yourself.
+- When I was 17, I went to Brigham Young University. That was the first time I had set foot in a classroom.
+- I can't have my family in my life because they are abusive, and I don't have control over that. There is an abusive culture in my family, and I have to turn away from it.
+- The things about my childhood that I really loved the most, writing about those things was hard because I knew they would never happen again.
+- I have very non-eccentric hobbies. I like to read, to have dinner with friends, and junk out on TV like everybody else.
+- Psychologically, when you hear something a number of times, you start to believe it.
+- When I came to Cambridge, I was involved in the ward for a little bit, but I did have a very gradual process of trying to work out what I thought a good life consisted of.
+- My family always spent the warm months bottling fruit for storage, which Dad said we'd need in the Days of Abomination.
+- You can miss someone every day and still be glad you don't have to see them.
+- I think for people who are inside these relationships that are really hard to leave, there is always a compelling reason to stay. It's not that they are wholly bad people.
+- When you abuse someone, you limit their perspective, and you trap them in your view of them or your view of the world.
+- I had a mental breakdown while doing my Ph.D. at Cambridge, soon after I cut off contact with my parents, and I started seeing the university counsellor, one of the best decisions I ever made. There's something very nourishing in setting aside an hour a week to talk.
+- Not knowing my birthday had never seemed strange. I knew I'd been born near the end of September, and each year I picked a day, one that didn't fall on a Sunday because it's no fun spending your birthday in church.
+- I choose not to see my parents because I value myself - and they didn't value me or my mind.
+- I read a handful of memoirs to get a sense of what the genre meant. I needed to learn the fundamentals of the craft. I had never written a word of narrative. What is a tense shift, what is point of view? I didn't know any of it.
+- I might just not be a big-city bug.
+- I get up when I feel like getting up. That's the deal I've made with myself: I can stay in bed as long as my dog's bladder holds. The other half of that deal is that once the dog is walked, the very next thing I do is write. It's mechanical. It's programming, very nearly brainwashing.
+- An education is not so much about making a living as making a person.
+- I spent my summers bottling peaches and my winters rotating supplies. When the World of Men failed, my family would continue on, unaffected.
+- I felt like I needed to come to terms with the decision I'd made to let go of my family. What do you do when you want to be loyal to your family but you feel that loyalty to them is in conflict somehow with loyalty to yourself?
+- I think if you're going to abuse someone, you really have to convince them of two things. First, you have to normalise what you're doing, convince them that it's not that bad. And the second thing is to convince them that they deserve it in some way.
+- My loyalty to my father had increased in proportion to the miles between us.
+- I was 17 the first time I set foot in a classroom, but 10 years later, I would graduate from Cambridge with a Ph.D. 'Educated' is the story of how I came by my education. It is also the story of how I lost my family.
+- They were a very good form for me - the way a short story has to be designed in order to function, to get in everything it needs to - and they tend to be absolutely chock-a-block full of mechanisms and tricks that writers use to do the things they need to and have the effects they need to have.
+- We'd had books in my house growing up, but we had never had anything like lectures. I had never written an essay for my mother. I had never taken an exam. Because I was working a lot as a kid, I just hadn't elected to read that much.
+- I had access to books, and I could read... but that more foundational, basic historical awareness, I didn't have any of that.
+- Academic writing is such a different way of writing.
+- We think love is noble, and in some ways, it is. But in some ways, it isn't. Love is just love. And sometimes people do terrible things because of it.
+- I had been raised in the mountains of Idaho by a father who distrusted many of the institutions that people take for granted - public education, doctors and hospitals, and the government.
+- I hate the the word 'disempower,' because it seems kind of cliche, but I do think that we take people's ability to self-teach away by creating this idea that that someone else has to do this for you, that you have to take a course, you have to do it in some formal way.
+- For a long time, I didn't think I had the right to walk away from my family.
+- We think about education as a stepping stone into a higher socio-economic class, into a better job. And it does do those things. But I don't think that's what it really is. I experienced it as getting access to different ideas and perspectives and using them to construct my own mind.
+- Forgiveness isn't just the absence of anger. I think it's also the presence of self-love, when you actually begin to value yourself.
+- I think a lot of people have grown up with the idea that they can't learn things themselves. They think they need an institution to provide them with knowledge and teach them how to do things. I couldn't disagree more.
+- I think it's a belief that you can learn something. That's something that I really value from the upbringing I got.
+- There was a lot of beauty in my childhoood.
+- I didn't read much in high school, maybe because I didn't go to high school. Instead, I worked.
+- Anger can be a good thing. It's a mechanism that your brain uses to get you out of situations that are bad for you. But in terms of leading a peaceful life, it is not very productive.
+- My older brother bought textbooks and was able to teach himself enough to go to college. When I was 16, he returned and told me to do the same thing.
+- I have books I like very much, but I don't think there are any books that everyone should read. I prefer a world in which some people read this, and others read that.
+- My family was, I think, a bit more radical than most Mormons, especially on the question of gender. So in my mind, growing up, there wasn't ever any question of what my future would look like. I would get married when I was 17 or 18. And I would be given some corner of the farm, and my husband would put a house on it, and we would have kids.
+- It's very difficult to continue to believe in yourself and that you're a good person when the people who know you best don't.
+- If you want to live a miserable life, making your life all about other people is the way to do it.
+- So, I was born and raised the youngest of seven children on this really beautiful mountain in Southern Idaho. But my dad had some radical beliefs. And because of those beliefs, we were isolated. So I was never allowed to go to school or to the doctor.
+- I had been educated in the rhythms of the mountain, rhythms in which change was never fundamental, only cyclical. The same sun appeared each morning, swept over the valley, and dropped behind the peak. The snows that fell in winter always melted in the spring.
+- Although my family attended the same church as everyone in our town, our religion was not the same. I could stand with my family or with the gentiles... but there was no foothold in between.
+- Learning in our family was entirely self-directed.
+- Anyone who grows up reading the Bible for spiritual reasons, you get accustomed to reading things that are too much for you, too profound for you... Having that belief that you should read them anyway gives you a great advantage over people who only read what they think they can understand.
+- I have a theory that all abuse, no matter what kind of abuse it is, is foremost an assault on the mind.
+- My mother was a midwife and a herbalist, so we would go on these long walks, looking for yarrow or rosehips or whatever she needed to make her tinctures.
+- It was a quality of my childhood that everything had these two sides. Even though things could be really beautiful and peaceful one moment, they could also be a bit chaotic or maybe terrifying in another.
+- I didn't even have a birth certificate until I was 9 years old, which meant that, according to the state of Idaho and the federal government, I just didn't exist.
+- My brother once lit his leg on fire. And after, when the fire was finally out, his leg was covered in third-degree burns. And we made the decision - or my parents did - not to take him to the hospital but to treat that at home with a salve my mother made of comfrey and lobelia.
+- I think, initially, my rebellion, my rebellion of going to college when my dad would have liked me to stay home and work in the herbs, I think that it was a pretty mild rebellion in the sense that I thought, 'Well, I'm going to go learn how to be a music teacher so that I can come home and do choir.'

@@ -1,0 +1,13 @@
++++
+author = "Mordecai Wyatt Johnson"
+title = "Mordecai Wyatt Johnson Quotes"
+quotes_len = "7"
+description = "the best 7 Mordecai Wyatt Johnson Quotes"
++++
+- Acquiring a dog may be the only opportunity a human ever has to choose a relative.
+- Western civilization, Christianity, decency are struggling for their very lives. In this worldwide civil war, race prejudice is our most dangerous enemy, for it is a disease at the very root of our democratic life.
+- The Negro people of America... have cut our forests, tilled our fields, built our railroads, fought our battles, and in all of their trials they have manifested a simple faith, a grateful heart, a cheerful spirit, and an undivided loyalty .
+- There will be a meeting of the great powers who will disagree, and the next noise we hear will be the screeching of elevators going up and down from heaven to hell.
+- When the Negro cries with pain from his deep hurt and lays his petition for elemental justice before the nation, he is calling upon the American people to kindle about that crucible of race relationships the fires of American faith.
+- Now they have come to the place where their faith can no longer feed on the bread of repression and violence. They ask for the bread of liberty, of public equality, and public responsibility. It must not be denied them.
+- We're living under the illusion that we have the power to determine what to do with it.

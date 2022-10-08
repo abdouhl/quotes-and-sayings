@@ -1,0 +1,81 @@
++++
+author = "Jamie Dornan"
+title = "Jamie Dornan Quotes"
+quotes_len = "75"
+description = "the best 75 Jamie Dornan Quotes"
++++
+- I think I've done two shoots in my underwear ever. They both happened to be for Calvin Klein. But that tag - 'underwear model' - I just can't get rid of it. And it's such a bizarre, specific thing - underwear. It's like I never modelled clothes.
+- I think my lesson is to back yourself once you've been given a job. Far too often, I've been given a job and then doubted why I'm there.
+- A doctor once told me I have abnormal levels of adrenaline in my system.
+- Basically, I've always had a complex with the way I walk. I've not always been told I've got a bad walk, but someone's always commented on my walk.
+- I'm not saying that experiencing loss is why I can cope with darker worlds - I'm not saying that for a second - but I think it opens up a side of you in terms of work that wouldn't be as accessible had that stuff not happened.
+- I love fatherhood.
+- Although just being employed as an actor is a big thing, I'm not sure I'd be satisfied playing the same character for 30 years; it's not why I want to do this for a living.
+- I very much feel like I'm part of the makeup of 'Once Upon a Time.'
+- I'm still not aware that I'm good looking.
+- I defy anyone to watch interviews with Ted Bundy and not be taken by him. He was very handsome and charming and extremely intelligent and, you know, that can exist.
+- It's funny when you know you're playing two characters and you're aware of how you have to play each one into your performance of the other. You're constantly at the back of your mind thinking and it all gets a bit confusing.
+- When I think of sex symbols, I think of posters my two sisters had on their bedroom walls.
+- Addiction is a terrible thing.
+- I'd been auditioning for parts for years. I never got any better at it. I'm crap at auditions. I know there are people who can walk into those rooms and make those lines sing on the page and get the job immediately. I wasn't one of them. I'm still not one of them.
+- I don't really have choices in the material I get. So I have to make the choices in the way I play the characters.
+- I like playing characters who are fractured, broken. I find that more relatable, for some reason. I don't feel that I'm like that myself by nature, but there's just something that you can really grab hold of if people have a darkness in them, I think.
+- One of my favorite things about my life is that I have the same group of friends that I grew up with. I love them so dearly, and we give each other a hard time.
+- Fairytales are stories that span every generation and they've been around for a long time.
+- When I was younger, I thought maybe one day I'd be involved in sport in terms of career.
+- I feel very tied to Ireland and the U.K. and that side of the world.
+- You'd be hard-pressed to find an actor who isn't a sex symbol somewhere.
+- Modelling doesn't hold you back in L.A. at all.
+- I feel very settled. I'm not running in and out of clubs at 5 A.M. anymore.
+- I'm a fairly worldly guy.
+- Christian Grey - he isn't a real person. He's a superhero. A myth. He's like Bigfoot! He's unbelievable. He's unattainable. There's no actor in the world who could live up to that.
+- I think people from Northern Ireland have some kind of unspoken general feeling of what it is to be around segregation. You have an awareness of it because you know how much grief it's caused.
+- I grew up in a very liberal place.
+- You want roles that challenge you and that scare you a little and where you can really discover something, even about yourself, that maybe you didn't understand.
+- I guess I'm just lucky with my genes.
+- I don't think if you looked up all the main points of feminism I would tick every one essentially myself.
+- I didn't do particularly well with girls at school. I was very shy. I'm not saying that was the only reason I didn't do well with them, but I just didn't.
+- Love from the fans is flattering. That's what makes the show. They are so essential to everything involved with 'Once Upon a Time.'
+- My dad was a keen actor when he was young; my auntie is heavily involved in amateur dramatics back in Northern Ireland, and my great aunt was a woman called Greer Garson.
+- I've always needed to bulk up, so until the modeling took off I was ramming Big Macs down my throat and doing plenty of bodyweight work. I'm over the Big Macs now, but I'll still drop down and do my press ups whenever I find the time.
+- I was a skinny guy growing up, and I still feel like that same skinny kid.
+- I'm probably the worst person for 'Men's Health' to interview.
+- I've never felt massively satisfied from standing there while someone takes my photograph. It's never given me a thrill.
+- Every actor craves choice.
+- I feel pretty secure about who I am.
+- Mass appreciation doesn't always equate to something good.
+- I want to keep an element of myself in every character I play. And maybe that's connected to finding something that you like in every character. Maybe they coincide.
+- They do very classy, sexy television in the U.S. - and they pay a lot more, so there's always that draw!
+- People expect me to be stupid. I'm not saying I'm Stephen Fry, but it is amazing the perception people have.
+- I don't like my physique. Who does?
+- Every role is physical to a certain extent, but as a viewer, I don't respond well to actors doing more than they need to tell a story.
+- Throughout Ireland, there's a brilliant community of filmmakers and actors, and I guess there was always a lure to do some work in the place where I come from.
+- What kid doesn't want to pretend they're James Bond?
+- I feel good that I have my life in order. I'm not addicted to anything that I'm aware of.
+- People attach too much to the idea of being a model, that you can only be a certain way to have done it. You will always be dealing with it. You're an actor who used to be a model who never trained; there are not many directors queuing up.
+- If you are a skinny, baby-faced teenager, the last thing you want to hear is that you're cute.
+- I've never read anything set in Belfast that doesn't involve the Troubles or something senseless over a flag.
+- Everyone likes a bit of competition.
+- 'The Fall' changed my life - that's not an overstatement.
+- There's no easy time to lose a parent.
+- It's funny how you get a bit older and become more accepting of things. When you're in your twenties, you're skeptical of everything. I definitely felt like that.
+- I'd always really wanted to act; but the modelling contracts came more easily.
+- People ask me what Gillian Anderson's like to work with, and I have no idea!
+- It's a strange environment, being hounded. The paparazzi are cretins.
+- I think when romantic comedies are done well, it's a great genre. 'When Harry Met Sally' is kind of a benchmark for me, but I'm very happy to admit that I love 'Pretty Woman.' I do! It's a great film, and so is 'Sixteen Candles.' I was a big John Hughes fan - still am. I have moments where I have to watch a Hughes film.
+- Nobody sane wants just to be famous.
+- My wife is a brilliant, hugely understanding person.
+- Because I used to play a lot of sport, I've always been in decent enough shape. When I used to get asked to do a bit of body work before a photo shoot I'd lie and say, 'Yeah, I'm going to the gym.' I literally never did anything.
+- I'm amazed if people are happy in their own skin.
+- The man is meant to be the alpha in the relationship on the money and power front.
+- It's not like I cleaned up with girls. I always looked young and I was very small; I hated being 'cute.'
+- Being a leading man can come in many different forms.
+- To play any character, you have to have a total understanding of why they do what they do.
+- Now and again, an actor will blow my mind by doing something really unexpected, like Mickey Rourke or Christopher Walken - you have absolutely no idea what they're going to do, which is really thrilling to watch.
+- I think sometimes actors are drawn to good television because you have more time to sell it, you have more time to shape a character, and to tell a story, and that's really appealing.
+- There are so many ways to make a living that don't involve hiding in bushes opposite houses of 18-year-old girls with a camera in your hand.
+- I don't like myself without a beard.
+- I read a lot about serial killers.
+- I can't really do the running on hard ground that I used to do. Instead I go swimming as often as possible.
+- No matter what happens in my career, I've always got 'The Fall.'
+- I could eat 10 packs of Hula Hoops a day and not think about it.

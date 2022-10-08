@@ -1,0 +1,39 @@
++++
+author = "Athol Fugard"
+title = "Athol Fugard Quotes"
+quotes_len = "33"
+description = "the best 33 Athol Fugard Quotes"
++++
+- In South Africa, success never presented the problems that it presents in New York. In New York, if you happen to be the flavor of the month, a lot of nonsense comes with it into your life.
+- Creativity is very selfish. Scandalously so, in fact.
+- My life had been defined by the apartheid years. Now we were going into an era of democracy... and I believed that I didn't really have a function as a useful artist in that anymore.
+- I'm always in disguise in one form or another in my plays.
+- I think the aloe is one of South Africa's most powerful, beautiful and celebratory symbols. It survives out there in the wild when everything else is dried.
+- My essential identity is that of a writer.
+- For you in the West to hear the phrase 'All men are created equal' is to draw a yawn. For us, it's a miracle. We're starting out at rock bottom, man. But South Africa does have soul.
+- With so many young playwrights, the true craft of writing for living voices is not what it used to be. They write for attention spans of 10 minutes between adverts.
+- Theater will never, and never has, gotten audiences like film. But theater goes to work on society in a different and more subversive way.
+- Without white South Africa realizing what it had done - and on the basis of that realization having the courage to ask for forgiveness - there can really be no significant movement.
+- The act of witnessing is important to me; somebody's got to tell the truth, you know what I mean?
+- The things that converge in the writing of a play come from a complex of motives, a genesis shrouded in a certain kind of mystery.
+- Obviously when it comes to the question of telling stories about other people's lives in a situation as political as South Africa, you get to be political.
+- You can't legislate into existence an act of forgiveness and a true confession; those are mysteries of the human heart, and they occur between one individual and another individual, not a panel of judges sitting asking questions, trying to test your truth.
+- You'll see that the strong, the affirmative, the positive voice in any of the plays I've written is that of a woman. My men are, well, not quite worthless, but they are certainly weak, and that reflects the reality I grew up with and what I think has in a sense shaped me.
+- I've had one experience of writer's block in my life, and it was living hell. It was a terror for me.
+- All of my life had been spent in the shadow of apartheid. And when South Africa went through its extraordinary change in 1994, it was like having spent a lifetime in a boxing ring with an opponent and suddenly finding yourself in that boxing ring with nobody else and realising you've to take the gloves off and get out, and reinvent yourself.
+- A very close friend of mine keeps reminding me that since about the age of 50, I've been saying, 'I'm finished. I haven't got another one in me.' But somehow you do.
+- From early on there were two things that filled my life - music and storytelling, both of them provoked by my father. He was a jazz pianist and also a very good storyteller, an avid reader. He passed both those interests on to me.
+- The toughest challenge I faced came right at the beginning of my career with 'Blood Knot,' which was trying to convince South African audiences that South African stories also had a place on the stage.
+- There are times in my 30 years in the theater that I have come perilously close to losing faith in the one form of action I have in this life.
+- 'Master Harold' is about me as a little boy, and my father, who was an alcoholic. There's a thread running down the Fugard line of alcoholism. Thankfully I haven't passed it on to my child, a wonderful daughter who's stone-cold sober. But I had the tendency from my father, just as he had had it from his father.
+- What I quickly discovered is that our so-called new South Africa has as much material for a story-teller as the old one. The landscape hasn't really changed. Who is in power now is different to who was in power then, but the squatter camps grow like cancer, the rich get richer, the poor get poorer.
+- Nobody can take what I love away from me. I would like to believe that love is the only energy I've ever used as a writer. I've never written out of anger, although anger has informed love.
+- Night-time is when I brainstorm; last thing, when the family's asleep and I'm alone, I think about the next day's writing and plan a strategy for my assault on the blank page.
+- Every boy needs a role model that he can be proud of and talk about to the other kids in the playground.
+- I've always sensed for myself an obligation to bear witness to my time.
+- I think all of my writing life led up to the writing of 'The Train Driver' because it deals with my own inherited blindness and guilt and all of what being a white South African in South Africa during those apartheid years meant.
+- People come to the Fountain Theatre because they've got hearts that are working and they've got heads that are working. They use the Fountain Theatre because it puts them in touch with the world that they're living in.
+- The reason I'm in San Diego is not because I want distance from South Africa but because I want proximity to the people I love. But I don't envy growing up in America. As ugly as aspects of it were, my biggest blessing was to be born a South African.
+- How thin and insecure is that little beach of white sand we call consciousness. I've always known that in my writing it is the dark troubled sea of which I know nothing, save its presence, that carried me. I've always felt that creating was a fearless and a timid, a despairing and hopeful, launching out into that unknown.
+- I can't think of a single one of my plays that does not represent a coincidence between an external and an internal event. Something outside of me, outside even my own life, something I read in a newspaper or witness on the street, something I see or hear, fascinates me. I see it for its dramatic potential.
+- For most of my writing life, I've refused to allow myself to believe that writing was a significant form of action. I always felt very uneasy about the fact that all I did was write in a situation as desperate as apartheid South Africa. Whether I was correct or not is a different issue.

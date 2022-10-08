@@ -1,0 +1,94 @@
++++
+author = "Theo Epstein"
+title = "Theo Epstein Quotes"
+quotes_len = "88"
+description = "the best 88 Theo Epstein Quotes"
++++
+- Every opportunity to win is sacred. It's sacred to us inside the organization, and it should be sacred to the fans as well. They deserve our best efforts to do what we can to improve the club and put the club in position to succeed in any given season.
+- You reach a point where you're trying to survive. You're just trying to put the ball in play. You're not yourself. You're searching for your identity as a hitter on a nightly basis. That's just really hard. And it is not atypical at all for players to need to change their environment in order to rediscover who they are.
+- The 2011 Cubs were the oldest team in the division, the most expensive team in the division, and the worst team in the division. And we really needed to start over.
+- If you want to continue to be good and perform at a high level and be deep in all areas, you still have to hit on some undervalued players, too. You can't just go out and sign marquee free agents or trade for players when they're at the peak of their value. That's not a formula for long-term success.
+- I don't know if I could go to another run-of-the-mill baseball department and work because it would probably feel like work. In Boston and Chicago, it doesn't feel like work. It feels like a privilege.
+- We've made plenty of mistakes. But the ones that we've hit on, we've gotten lucky with some impact guys back, some best-case scenarios as far as how the guys have turned out.
+- There are certainly times when baseball is much more than bread and circus, times when baseball resonates deeply and meaningfully with many, many people, and times when a game that is built around overcoming failure can teach us all a few important lessons.
+- Tolerance is important, especially in a democracy. The ability to have honest conversations, even if you come from a different place, a difference perspective, is fundamentally important.
+- Be intentional about the spaces you create but not at the cost of compromising other elements.
+- I think people want the Cubs to succeed, and by extension, they want people associated with the Cubs to succeed.
+- I like to have some privacy, especially where my family is concerned, so when I'm recognized, I'll usually say something like 'I get that all the time' or 'Theo Epstein? Who's that?'
+- We try to do a great job of understanding the opposing hitter and his tendencies. Maybe understand the hitter better than he knows himself.
+- I tend to solicit opinions from all those around me. I like to hear opinions and the rationale behind it from everybody in the room. Perhaps it's the result of going to law school and using the Socratic method.
+- I don't think I'm a chameleon. I can feel where people are coming from, what makes them tick, where they are vulnerable, what makes them feel good about themselves. I get just as much out of it as they do. I love connecting.
+- It's a human phenomenon that there has to be a reason for everything. There almost never is.
+- If the seller has a player that they think is going to have a lot of value, they're aware of it, protect that value. You have to go get it. That's the way the trade market works.
+- This game will make you cry more often than not.
+- The 'Chicago Sun-Times,' I remember, ran a full-page, front-page photo-shop of me walking on water across Lake Michigan, as if by showing up I was going to miraculously fix the team's fortunes. Imagine their disappointment, then, when I announced a long-term rebuilding plan focused on acquiring young players and winning in five years.
+- The Cubs, we built one of best farm systems - I think for a while there, it was the best farm system in baseball. And that was great. It got a lot of attention. But we didn't want the credit for the farm system. What we wanted was to see if we could do the tricky part, which was turn a lauded farm system into a World Series champion.
+- Failure happens to everyone in this game. It's not something worth harping on. What is worth focusing on is how you respond to that failure.
+- When we build that foundation for sustained success, and it ultimately results in a World Series, it's going to be more than just a World Series.
+- If we can't find the next technological breakthrough, well, maybe we can be better than anyone else with how we treat our players and how we connect with players and the relationships we develop and how we put them in positions to succeed.
+- I used to follow people home. I just like being anonymous so much that I would follow people home because they didn't know who I was, and I could watch them. I know how that sounds. I could not exist but observe.
+- Even over time, with a stable coaching staff and one manager who is fantastic and been in place for a long time, you can't ever defer and stay out of the clubhouse because you don't want to get in the way.
+- Sometimes, on the business side, it's important to sort of have something with some sizzle in an offseason. It's the baseball operations department's job to push back against that, just as it's the business side's job to sometimes advance those thoughts.
+- Having a relentless lineup full of professional hitters works on so many levels. It works in terms of pure baseball reasons: if you get on base, you're going to score runs.
+- There has to be active, hands-on management in concert with the manager to lead the organization and make sure that the standards that we set for the organization as a whole are being lived up to.
+- Communication is different in the clubhouse than it is in a boardroom. The heartbeat that exists in the clubhouse, you don't find that same type of heartbeat in the front office.
+- We want to try and transform the Red Sox into a team like the Braves or the Yankees, where you can almost count on the postseason every year.
+- The leadoff-hitter thing, I think, it's always nice to have an established leadoff hitter and to have someone who can really get on base and set the tone.
+- I ended up staying 10 years in Boston. It was nine as GM but 10 years there. That seemed about right: long enough to try to make a difference and try to contribute to winning teams and some championships.
+- As I sat back and imagined what my transition from the Red Sox might be, I thought it would smell more like champagne than beer, I guess you would say.
+- I don't want to be buried in a Red Sox casket.
+- I do think we can be honest and upfront that certain organizations haven't gotten the job done. That's the approach we took in Boston. We identified certain things that we hadn't been doing well, that might have gotten in the way of a World Series, and eradicated them.
+- I think everyone deserves more than one World Series every 108 years so.
+- I chose my classes based on which professors did not take attendance, and then I traded Padres tickets for notes from class. I wasn't the student of the month.
+- It's hypocritical to say when things are going well, 'Interview me. Ask me how great I am. Ask me about family and personal life.' At some point later, when someone wants information and you want to draw the line, how do you do that?
+- If we think a playoff spot's not in the cards, there will be no concern for appearances or cosmetics whatsoever. We'll continue to address our future and trade off some pieces that would keep us respectable.
+- It's a natural push and pull that exists in any sports organization. When you are in a big market and then you win, and you're up against the Yankees, and ratings are what they are and attendance is what it is, no one wants to go backwards; as a business, you don't want to go backwards.
+- Players that tend to respond to adversity the right way and triumph in the end are players with strong character. If you have enough guys like that in the clubhouse, you have an edge on the other team.
+- Once you thrust yourself out there in the public domain, it's really hard to retreat, to say no or reclaim that certain part of your life as private.
+- We don't live in isolation. Most people don't like working in isolation - some do, but they typically don't end up playing Major League Baseball.
+- When people you don't know say nice things about you, if you allow yourself, even subconsciously, to attach a shred of meaning to it, when the opposite happens, when people you don't know say bad things about you, you can't attach that same meaning.
+- It's always different when a guy gets drafted and developed and comes up in his first organization and makes an impact. There's something special and timeless about it.
+- There are a lot of ways to make a positive impact on the community without necessarily being a politician.
+- Baseball is better with tradition, with history. Baseball is better with fans who care.
+- If you're trying to avoid one move that you don't think is going to work out, don't then settle for a different move that maybe doesn't check all the boxes. Be true to the philosophy and understand the bigger picture. There's always another day to fight.
+- You can't go through life thinking about what could go wrong.
+- I believe in the First Amendment. But I also believe we should be mindful of how other people feel.
+- You just make the right baseball decision. You don't necessarily worry about somebody's feelings or anything like that. You make the right baseball decision for the team first and then for the player's development as importantly.
+- You don't want to make a living or habit out of trying to solve your problems with high-price pitching free agents because over the long run, there's so much risk involved that you really can hamstring your organization.
+- The Red Sox hadn't won in 86 years when we took over. We didn't run from that challenge - we embraced it.
+- When something goes wrong on the field, we expect our players to take the blame, step up, and proactively assume the blame for it, even if it's not their fault. That's the way to be a good teammate.
+- No one is immune to needing to sit or needing to go down at the right time, and you want to give guys a chance.
+- It stinks to give up a good player. But if you think that way, you'll never make any trades. You have to focus on what you're getting back.
+- I still wake up thinking about draft choices we should have made that would have impacted the franchise for a long time, but I don't wake up thinking about one individual player move.
+- Typically, it takes young players years to adjust to life in the big leagues and to start performing up to their capabilities. Most of the blame for this rests on these ridiculous old baseball norms that say young players are to be seen and not heard.
+- Scouting and player development is the key to year-in and year-out success, not the occasional lucky hit. There are no definitive answers in this game, no shortcuts. When you think you've got it all figured out, you can get humbled very quickly.
+- To win the World Series, you have to be able to do a lot of things well.
+- Whoever your boss is, or your bosses are, they have 20 percent of their job that they just don't like.
+- The only time I think about my contract is when I'm asked about it by the media.
+- I love being in a city that's playing October baseball, where you can just feel everyone captivated by the ball club, everyone walking around tired from staying up late, prioritizing baseball above all else. It's a great phenomenon.
+- I don't think facing one of your own active pitchers would be a good idea, unless I got super lucky and hit a ball through the middle or something. That would not be good. I'd pull every muscle in my body.
+- It took me coming to the Midwest to realize I was the jerk. People are so nice here. They're so grounded.
+- I believe in our players. That's why they're here. I also know slumping is part of baseball. What's surprising is sometimes when it lasts awhile, for really good players when it lasts awhile.
+- If multiple starting pitchers underperform at the same time, it's always going to leave you in a stretch where it's hard to play better than .500 baseball.
+- You have years where most things go your way, and you have years where more things than usual seem like a challenge.
+- If you reach a point where your entire farm system is in the big leagues, you've traded a couple guys for players who are now in the big leagues, you know what you do? You start over in your farm system, and you keep developing the talented players you have.
+- The fact that guys adjusted really quickly to the big leagues, developed really quickly, faced adversity under the brightest spotlights, played great baseball, overcame so much, overcame centuries worth of issues and won a World Series, I guess it doesn't necessarily mean we're still not just prone to the laws of nature and reality and baseball.
+- When people do things they weren't even sure they were capable of, I think it comes back to connection. Connection with teammates. Connection with organization. Feeling like they belong in the environment. I think it's a human need - the need to feel connected.
+- If I let my brain follow its path unfettered, it would be kinda ugly.
+- You've just got to kind of play the hand you're dealt.
+- There's a cumulative effort within the course of a game, a series, and a season, too, where you see so many pitches and have so many at-bats that you can wear down an opponent. Once you develop that reputation as a club, year after year, players come in, and they tend to fit in with that profile.
+- There's nothing I hate more than someone who speaks in the draft room with absolute conviction, but they have nothing to back it up.
+- We knew the 2017-18 offseason would be one of our most challenging. We've known that for a long time.
+- Watching the Dodgers perform at a really high level is a nice reminder to us as to how high the bar is.
+- Something as simple as transparency is really scalable because it quickly impacts the culture. And the culture is something everyone feels. If upper management is really transparent with everyone, that has this amplifying effect. Then you tend to attract players who operate that way, on the same wavelength, and coaches and fans.
+- When I was writing or competing in individual sports, it felt unfulfilling and lonely. When I was able to find a group of people I believed in and liked, that all worked in pursuit of a common goal, it felt incredibly rewarding.
+- Bostonians vs. Chicagoans, they have different sensibilities, and I can only say this because I consider myself a Bostonian. You know, the Puritanical roots in Boston - the 'sky is falling' mentality a little bit. We could be on a great run, and we'd lose one game, and everyone's panicking.
+- The Cubs - with their passionate fans, dedicated ownership, tradition, and World Series drought - represented the ultimate new challenge and the one team I could imagine working for after such a fulfilling Red Sox experience.
+- I want to thank everyone who has ever put on a Cubs uniform and anyone who has ever rooted for the Cubs.
+- Baseball is a game based on adversity. It's a game that's going to test you repeatedly. It's going to find your weaknesses and vulnerabilities and force you to adjust. That adversity, in the big picture, is a really good thing because it shows you where your weaknesses are. It gives you the opportunity to improve.
+- Failure is inherent in the game. So if you don't respond well to adversity, you're probably not going to have a long career.
+- You're not always going to get the outcomes you feel like your talent deserves, that you feel like the big picture deserves. And what's real is how do you respond in those situations?
+- The goals is to create a really high 'floor' for this organization, where the 'off' years are years where you might win in the high-80s and sneak a division or a wild card or win 90 games and get in and find a way to win in October. And the great years, you win 103 and win the whole thing.
+- I work for the Chicago Cubs, a team with a following so loyal and adoring and a history so forlorn that we were known nationwide as the Loveable Losers.
+- It's best not to think about winning or losing trades anyway, because the best ones work out for both teams. But, as a rule, if you're the team that's selling - if you're out of it, and you're trading with a team that's in it - you usually have the pick of just about their whole farm system, with a few exclusions.
+- I'm not going to try to deny that I'm a Red Sox fan. I grew up a Red Sox fan, had a great decade here that I really enjoyed, and that will always be a part of me.

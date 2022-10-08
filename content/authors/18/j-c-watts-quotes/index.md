@@ -1,0 +1,68 @@
++++
+author = "J. C. Watts"
+title = "J. C. Watts Quotes"
+quotes_len = "62"
+description = "the best 62 J. C. Watts Quotes"
++++
+- I'm not driven to get back into politics. It's not on my top five things to do before I die, but saying that, I may be in politics in the next year or the next ten years. I've been on the front line for 12 years, four in state government, eight on the national level.
+- I think that anybody that stays in school, gets good grades, pays the price, I think we are wealthy enough in the public and the private sector in America to make sure that every child in America that wants to continue their education, they should be able to do that.
+- The Republican Party is terrific at determining how a program will impact the federal budget, but we're not nearly as good as the Democrats in explaining to people how our agenda will directly benefit them and their families.
+- Serving in Congress has been more than an honor; it has been one of the most exhilarating experiences of my life... It has been a wonderful ride. It has been a wonderful journey.
+- The Democratic Party has taken the black community for granted and said, 'This is the most loyal constituency we have. They're not going anywhere.' But the Republican Party has said, 'That's the most loyal constituency Democrats have. They're not going anywhere. We've got to win without them.'
+- Republicans think that the NAACP is the only voice in the black community. It is a voice in the black community. But it's not the only voice.
+- I would caution all of us or I would remind all of us that any candidate that we support, they are going to be flawed.
+- The strength of America is not in Washington.
+- When you look at the results that Newt Gingrich got when he was speaker, he got results for the American people.
+- The measure of a man is not how great his faith is, but how great his love is. We must not let government programs disconnect our souls from each other.
+- Governor is not the position to have in Oklahoma. It is the head coach of Oklahoma or Oklahoma State or Tulsa.
+- You always hear 'black Republican,' but you never hear 'white Democrat.' We've got to get beyond the labels and stereotypes. Other people have hang-ups about it. I don't.
+- That's the way blacks have been encouraged to think: that we got to stick together. You've got a situation today where if a black person says he thinks O.J. Simpson's guilty, other blacks will cut their eyes at him and say, 'You ought to go somewhere and sit down and shut up.'
+- We need to remember that politics is all about people, not programs. We shouldn't want to take the humanness out of the political arena.
+- Well, Mark, I led the charge for five or six years to get reforms for Fannie Mae and Freddie Mac. I was chairman of an organization called 'FM Policy Focus.' What we were saying was, if there was blip in the housing market, Fannie and Freddie would destabilize the greatest economy in the world.
+- I have often said one of the reasons more blacks don't support Republicans is because they don't trust the GOP establishment.
+- In addition, there is one title I cherish a great deal more than Congressman and that is the title of... Dad.
+- My work in the House of Representatives, at this time in my life, is completed. It is time to return home.
+- I don't know if anybody has moved up the ladder more quickly than I have.
+- I like to call the ethos I grew up with 'Oklahoma values.' But you'd be just as accurate if you said 'American values.' Except for our lack of a seacoast, Oklahoma has a little bit of just about everything that's American.
+- When it comes to the American dream, no one has a corner on the market. All of us have an equal chance to share in that dream.
+- In 1989 when I switched from Democrat to Republican, with God as my witness, not one thing changed about what I believed about one man and one woman in a marriage or about diversity of color. That's a good thing.
+- If diversity is O.K. for God, it ought to be O.K. for Republicans.
+- I'm looking forward to the day when America will mature to the point that we are a color-blind society. I'm not so sure that in politics that will ever be reality, because politics has a way of separating us based on skin color.
+- I guess probably in my time in politics, it continued to be affirmed to me that the African-American community, despite being subscription television's most valuable customers, they are very underserved by cable and satellite television programming options.
+- The more I ponder some of the boneheaded decisions GOP candidates have made of late, I can't bring myself to believe that they are serious about capturing more than about 8 percent of the black vote.
+- For longer than I've been involved in the political process, the Republican establishment has claimed to want to provide an alternative for the black community, yet party elite refuse to show up for the game.
+- As an Oklahoma quarterback, you learn to perform under pressure.
+- I think the Republican Party should be a pro-life party. I am pro-life. I do not apologize for that. On the flip side of that coin, the Republican Party has been big enough to allow pro-choice advocates to be heard.
+- Individual responsibility, hard work, paying attention in school, faith, family all these things are important.
+- Character is doing the right thing when nobody's looking. There are too many people who think that the only thing that's right is to get by, and the only thing that's wrong is to get caught.
+- Everything I am I owe to my faith and secondly to parents who were old school.
+- I'm not one that believes that affirmative action should be based on one's skin color or one's gender, I think it should be done based on one's need, because I think if you are from a poor white community, I think that poor white kid needs a scholarship just as badly as a poor black kid.
+- Everyone tries to define this thing called Character. It's not hard. Character is doing what's right when nobody's looking.
+- If you are explaining, you are losing.
+- One of the Republicans' major products is dream making. People are dying to get into this country... not out of it.
+- In my wildest imagination, I never thought that the fifth of six children born to Helen and Buddy Watts - in a poor black neighborhood, in the poor rural community of Eufaula, Oklahoma - would someday be called Congressman.
+- It doesn't take a lot of strength to hang on. It takes a lot of strength to let go.
+- I think Newt Gingrich has a proven track record of changing Washington and getting results.
+- Reparations, I believe, are talked about for political reasons, trying to cater for the purpose of getting votes. If Congress was serious about reparations - in '93 and '94 the Democrats controlled the House, the Senate and the White House, and not one single Republican vote was needed for reparations.
+- I never got into politics for it to be a career.
+- Good policy makes good politics and what I've done has been good politics.
+- I would love to be associated with some sports organization. I was a journalism major. That's kind of intriguing, to do something in the political-commentary arena.
+- Most of all, however, critics of black conservatives say we've forgotten where we came from. I may forget a federal budget number or, God forbid, to set the alarm clock for my weekly 6 a.m. flight to Washington, but I know exactly where I came from.
+- Republicans and Democrats have used accounting gimmicks and competing government analyses to deceive the public into believing that 2 + 2 = 6. If our leaders cannot agree on the numbers, if 'facts' are fictional, how can they possibly have a substantive debate on solutions?
+- The establishment wonders why we can't get more of the black vote. It's because it's not doing the things necessary to establish a deeper relationship with the black community. Most black people don't think alike. Most black people just vote alike.
+- My views on everything from welfare to a balanced budget to affirmative action can be traced to what Buddy and Helen Watts taught me as a young boy growing up poor but proud in Eufaula.
+- I embrace my blackness, just as I do my conservatism and my Christianity, but I don't want to be defined or pigeonholed by any one of the many elements that make up my character.
+- Affirmative action is a little like the professional football draft. The NFL awards its No. 1 draft choices to the lowest-ranked team in the league. It doesn't do this out of compassion or guilt. It's done for mutual survival. They understand that a league can only be as strong as its weakest team.
+- In 2008, as a matter of fact, I had people accusing me of being a Senator Obama supporter because I wouldn't slam him. I said, 'Well, consider the fact that I voted for impeachment for President Clinton, but it wasn't a personal vote. I voted based on the facts and the law and the Constitution and what we were dealing with.'
+- Like any group that has endured much, African Americans have created a strong and mutually reinforcing sense of group identity. That's not a bad thing in and of itself.
+- I'm secure in who I am. I don't need the validation of those that would say, you have to be a certain thing in order to be accepted. I'm comfortable going against the grain if I need to.
+- I still get to preach 14, 15 times a year. But you have to make a living.
+- The past two decades revolutionized the way we access information. You and I can have our questions answered with the click of a mouse at any time of day. If America, both corporation and citizen alike, can use these services to solve problems, why can't Washington?
+- I think you grow wherever God plants you. I hope I'm growing as a person of faith, as a Christian. That should be our number one objective this journey of life. That all starts with a personal intimate relationship with Christ and then being in prayer every single day about all of those things - being tenacious about it.
+- I am willing to compete on my merits and on my character - not with the color of my skin. We talk about being a color-blind society, but I don't think the political process could actually handle that.
+- Having a Republican candidate speak at the NAACP convention is like trying to build a house starting at the roof. If you don't have a foundation, the roof isn't going to stand.
+- I do think, however, that there's a very diverse point of view in the African-American community. There's a lot of different voices that need to be heard. I don't claim and pretend to know the thoughts and opinions and ideas of all African-Americans.
+- There's a whole lot more to the African-American community than entertainment and sports.
+- I never got into politics for it to be a career. It doesn't take a lot of strength to hang on. It takes a lot of strength to let go.
+- Some might think that George W. Bush had his shortcomings, but let me tell you something - history's going to be kind to George W. Bush.
+- I think in politics, in Congress, you often do things that are Republican, or you do things because you're a Democrat. Sometimes that's good, obviously, and sometimes that's obviously bad. But in the news business, there's no such thing as Republican or Democratic news. News is news.

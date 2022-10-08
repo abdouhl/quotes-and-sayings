@@ -1,0 +1,13 @@
++++
+author = "Mary Lou Williams"
+title = "Mary Lou Williams Quotes"
+quotes_len = "7"
+description = "the best 7 Mary Lou Williams Quotes"
++++
+- When Seymour saw me seated at the piano at that first rehearsal, he shouted: 'What's that kid doing here? Call your piano player and let's get started.'
+- He explained how ridiculous the clowning was, and there and then I decided to settle down and play seriously.
+- Quite a few musicians came to our house. And my ma took me to hear many more, hoping to encourage in me a love of music. But she wouldn't consent to my having music lessons, for she feared I might end up as she had done - unable to play except from paper.
+- One way and another I was having a ball - playing gigs, jamming and listening to fine musicians. Then came a crisis at home. My stepfather fell sick, and it meant I had to support the family.
+- Offers for me to play dances, society parties, even churches, were now coming in regularly. For most dates I was paid the sum of one dollar per hour, and they always tipped me at the end of the night.
+- Within a few hours I had them off, was about ready to play the shows. That night I opened, and during the week Harris was over to the house to talk my mother into letting me leave home.
+- I have been tied up with music for about as long as I can remember. By the time I was four I was picking out little tunes my mother played on the reed organ in the living-room.

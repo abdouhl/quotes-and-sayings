@@ -1,0 +1,106 @@
++++
+author = "Kirti Kulhari"
+title = "Kirti Kulhari Quotes"
+quotes_len = "100"
+description = "the best 100 Kirti Kulhari Quotes"
++++
+- There are so many people, organisations, parities, religions. Whatever you try, someone or the other will be offended.
+- As humans, our instinct is to be free. And any sort of restrictions don't help.
+- I don't care about the image I have. What matters to me is that with every film, I am growing more and more as an actor, pushing and challenging myself.
+- For an actor, it's not like you have to go crazy to do an intense role.
+- No one has the right to dirty someone's personal space in any which way.
+- In Bollywood, everything is very one dimensional. This is a girl: she laughs a lot, is forever happy, chirpy, and that's all she is doing throughout the film. That's not how we are.
+- I have visited Ajmer Sharif Dargah a couple of times before, and each time, it fills my heart with so much love and gratitude.
+- I won't say there aren't 'smart' roles for women, but the variety is limited. I feel the real representation is not widely available in Bollywood.
+- I can't do TV; I think I'll die as an actor first and then as a person.
+- I have realised it is easy to point fingers at others, but the moment you start questioning yourself, you become a better person.
+- For the day, keep it simple, basic, minimalistic, natural. Stick to peaches and pinks. For night, you can add colour to your eyes, make them smoky, and also use shimmer and bronzer. Night make up also calls for louder lip colours.
+- I've stopped blaming myself for being a woman. I've stopped being apologetic about my sexuality and become comfortable with myself.
+- After 'Pink,' I wanted to do something that would challenge me further as an actor.
+- Whenever we actors become part of a Bollywood film, there is a certain pressure of earning a box office success.
+- I do not want to work to stay busy. I want to feel excited and challenged with each character that I portray on-screen.
+- Lot of people know very early what they want, but I didn't know I wanted acting.
+- Make-up is an integral part of my lifestyle because of the profession I'm in.
+- I use a water-based cleanser for sensitive skin on a daily basis. This is essential, since I have oily skin.
+- It is true that no matter how good your film is, you get judged purely on the basis of how well it does at the box office.
+- 'Pink' is the turning point in my career. It just changed everything for me overnight.
+- When I entered the film industry, I didn't know anything about acting.
+- I am not at a level where I will be flooded with offers. Hopefully, things will change after 'Pink.' It is one film after 'Shaitan' where I am hoping things will change for me.
+- My true satisfaction came when my parents told me that someone had seen me on TV and congratulated them.
+- Post 'Shaitan,' I felt frustrated, as I was not getting the kind of work that I wanted to do.
+- I won't deny that when you look at a director's work, you are aware of the different works that they have done. For me, what's more important is my instinct about that person.
+- I am not too much into political awareness, but I had known a lot about Indira Gandhi's strong persona. Obviously, she had a powerful personality and a lot of clarity and wisdom to rule India for so long.
+- In theatre, you rehearse for months and then perform. That way, you're totally in-sync with your character, the other characters, and the story.
+- Playing a superhero isn't interesting because then you personify perfection, which is boring!
+- I like to read and watch a lot of movies.
+- I'm settled emotionally and mentally because of my partner, and a lot of my growth has happened post-marriage.
+- My sister used to live in Gurugram. I spent good enough time here when we were shooting for 'Pink.'
+- I always use a night eye cream along with a moisturiser for the face depending on the condition of my skin.
+- Having worked with Amitabh Bachchan was an exhilarating as well a great learning experience.
+- I do not let anyone make me feel ashamed of being who I am.
+- I've stopped caring how others are going to perceive me if I wear something that they don't like.
+- I have a neat and tidy bed when I reach home but a cluttered one by the time I leave.
+- I use a relatively hard mattress.
+- I am receiving as much love for 'Four Shots More Please!' as I got for 'Pink,' if not more. It's heart-warming.
+- It feels great to be given a protagonist role.
+- I dont feel the need to be seen and heard all the time.
+- I am an actress, so my fans or the large audience should look at me as an actress on screen and love or hate me based on my performance.
+- I do not make an effort to promote myself as a brand. I just focus on making the right choices that feel right to me as an actor.
+- Even writing a script which will be funny is not easy. To make the script come to life and make the audience laugh, I will call myself more of an actor if I am able to do that.
+- I did my BMS from Bhavan's College in Mumbai and a post-graduate diploma in journalism and mass communication.
+- I follow Ayurveda, but above everything, I believe in being healthy mentally, physically, and emotionally.
+- The more I grow as a person, the more I grow as an actor.
+- Rajasthan is a place I visit very often. My grandparents live in the village called Kulhariyon Ka Baas, and I am originally from Rajasthan.
+- You need to be able to communicate what you feel - good or bad. But when I feel things are falling on deaf ears, I take a step back.
+- I'd never want to repeat a character - once done, it's of no interest to me.
+- I like to keep breaking the typecast and cliches.
+- Doing comedy takes much lesser toll on you as a person. The overall exertion is not as much as a serious film like 'Pink.'
+- It will be great to live in a world where we don't discuss sex anymore because we have managed to go beyond it. And then we can focus on more important things.
+- It's tough making people laugh, as we have so much going on in our lives. We forget to see humour as part of everything. The same thing translates on screen, too.
+- I love pairing evening gowns with hair tied up, like a boho updo or a curly chignon.
+- Every time I meet someone, they talk about 'Shaitan.'
+- Breaking stereotypes and my own barriers is great fun, because that's what leads to growth.
+- A lot of college kids are my fan following.
+- Olive oil mixed with raw sugar makes for an excellent lip scrub.
+- I don't choose scripts with the intent to get an award.
+- You will not find outsiders getting main, important roles in big films. The difficult part is to meet the right people.
+- It is scary for me to do a film by directly showing up on the sets without any preparation.
+- It's high time subjects like sex, and everything that it includes, are normalised.
+- I think having naturally beautiful skin and hair and just glowing from within, that's my idea of beautiful.
+- It's great to play games which are fun and make you enjoy, but the moment it puts you or anybody around you at risk, just know it's not the right thing.
+- I do feel that I have the capacity to carry a full film on my shoulder.
+- Good work will come to you when your film does well.
+- It feels overwhelming to be recognised for 'Pink.' Surprisingly, all the frustration, angst of not being recognised for my talent and work all these years has disappeared overnight, and I am left only with gratitude.
+- Cinema is a reflection of society and, in most cases, has the ability to be a mirror and not just show the problems but also give solutions and help them reach a large number of people through faces and voices that matter.
+- My father is a retired Navy officer; my sister is in the army. For me, defence services have been close to my heart.
+- I love yoga and also work out a lot in the gym.
+- I cleanse and wash my face thoroughly and apply ice before I start applying my makeup.
+- As an actor, you break stereotypes all the time.
+- I cannot just blindly love someone.
+- I love aloe vera, and I apply a lot of fruit and vegetable pulp as masks on my skin - fresh tomatoes, banana, avocado - anything that is around me.
+- Theatre, for me, is my playing field. That's where I learnt my craft.
+- Whenever I have to work on my skills or add to my craft, I do theatre. It's one place where I can learn a lot as an actor.
+- Whatever I read about Emergency as a part and process of my film, I can say, as a citizen of a democratic country called India, I am certainly not 'for' Emergency, a decision that snatched away the normalcy of human life for 21 months.
+- I wish 'Jal' could re-release so that the people could watch it and know how people from Rajasthan and other drought-affected areas suffer.
+- I really invest a lot... physically and emotionally on my work.
+- There's beauty in imperfection.
+- As an actor, I am open to anything interesting that comes my way.
+- I have to very consciously choose the kind of work I want to do.
+- I don't think people know what freedom of expression really means.
+- We were a Doordarshan household... with a curfew. So after lights out at 10 P.M., we could barely keep up with the latest films of the time. So even thinking about becoming an actress was unfathomable.
+- I am not destructive. I cannot do something for my own pleasure that hurts someone else.
+- I prefer complete darkness while sleeping at my house. If I'm staying in a hotel, I keep the lights on.
+- Maharani Gayatri Devi - she was elegance and simplicity personified.
+- All of us, at different times of life, are looking for answers. It happened to me a decade ago and led me to the path of wanting to know more. I read Osho, Sadhguru, Deepak Chopra, and Parmananda Yogi. I haven't found the ultimate answer. The journey is the answer.
+- When I dont have work to talk about, I dont need to be in the headlines.
+- I prefer eight hours of sound sleep at night. But on days when I can't, I try not to fuss about it and keep taking power naps through the day.
+- People have to be pushed out of their comfort zones to be able to see things for what they are.
+- If 'URI 2' happens, I will probably play the lead.
+- I was ecstatic when I got my first film. But it took me some time to realise that the struggles and hardships would never be over.
+- I am ready to go super bold. I would like to thank not just my husband but even my in-laws, who have had no problems with my bold characters. You may find it surprising that we all discuss my scripts on the dining table.
+- It took me two years to just get my first shoot - for Shanti Amla Hair oil.
+- My make-up routine starts with a primer on clean skin, which gives the face a nice smooth glow.
+- For me, playing a mother was a point of resistance; the question of 'will I get typecast' was going on in my mind.
+- I think, since the beginning, I have been attracted to unconventional films.
+- I care about people, but if they try to control me, I don't care about them.
+- I enjoy doing both comedy and drama, as long as I'm not doing something continuously.

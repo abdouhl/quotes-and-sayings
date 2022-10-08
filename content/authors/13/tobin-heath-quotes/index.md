@@ -1,0 +1,106 @@
++++
+author = "Tobin Heath"
+title = "Tobin Heath Quotes"
+quotes_len = "100"
+description = "the best 100 Tobin Heath Quotes"
++++
+- There's nothing better than being your own boss, especially after when you play soccer, you're just controlled by so many different forces. So owning your own company and being your own bosses, it's so liberating and freeing and you get to finally make decisions for yourself, which I think is really powerful.
+- As a footballer, I'm never satisfied with where I'm at.
+- Whether you're an athlete or just someone aspiring to be at the top of your game - in the workplace, gym or even at home - it's important to have that special something that sets you apart and helps you stay focused.
+- Being a two-way player that's consistently transitioning from offense to defense, it's imperative I fuel my body with an all-natural source of performance energy like Glukos that keeps my energy levels high.
+- My platform might be a little bigger than someone else's, but everyone has a purpose.
+- It's a privilege to be able to play a host country in a host nation, because it's just that much bigger and these are the type of games that we love.
+- It's always an honor and a privilege to play in front of supporters from the club I grew up with.
+- Ronaldinho is the best. I just like the joy and the love he has when he plays, it just shines for everyone else to see. He always does something nobody expects him to do. I think that's really cool, that creativity you don't find anywhere else.
+- I can't even imagine going through life without my relationship with Jesus.
+- I think problems... kind of just excite me.
+- I had an opportunity to play for Paris St-Germain when I was younger and it's important for me to represent a club with that amount of history because of the type of footballer I am.
+- I don't want a perfect life, I don't want an easy life, I want to live life to the fullest. To me that feels like conquering as many things as possible.
+- The NWSL is a great league. It's so competitive from every single team and every single game. They have the right people and they are invested in it.
+- I love to continue to evolve as a player, and sometimes the only places you can do that is when you're uncomfortable, and sometimes when you're at home for too long, it's not that.
+- I hate when the other team has the ball.
+- I always try and get as many as touches as I can with the ball because that's the most important thing for me as a player is to feel comfortable in that way.
+- I think defending is more of, like, a science, and it's fun to learn that. And then I see attacking as an art.
+- I feel like, City, because they're this modern global team, in the United States we think they're a really big club. But here in Manchester, it's not a big club.
+- People can find out a lot about you by watching the way you practice, play and live your life. And all of that can be a testimony to what and who you believe in. When you put all of those things together and try to live your life in a way that is pleasing to Christ, it's noticeable.
+- When everybody starts a company, they are so energized and passionate about it. And what happens is that a lot of times maybe that's not sustainable.
+- We fight to win games and we fight for things off the field too.
+- I think we have a big responsibility as the U.S. women's national team for women's football globally. I think everyone kind of looks up to us, whether they say they do or not. I think there is this awe and curiosity about what we've done in order to become as successful as we have.
+- I'm very creative, intuitive - I like to entertain.
+- I remember playing one of our first matches in Old Trafford, the home of Manchester United, and I remember that feeling of just being in that iconic venue.
+- Manchester United is like the American team in the Premier League, and everyone knows the weight of it back home. It is so exciting for me to wear a badge that is well known.
+- That's the easy part, to continue to do what you love, to focus, to train, there's no extra motivation that needs to be added to that.
+- Being an Olympic athlete doesn't change who you are as a person.
+- Being a part of the Six Star team means I get to be a part of a fierce group of female athletes who have shown women that the right supplements can help us reach our fitness goals.
+- It was almost like I gravitated toward the people who were encouraging me to be like myself and to be creative and be different.
+- It's easy to continue to go out to the field, even if I'm by myself or running and lifting and doing what I need to do - it's actually easy because I love what I do.
+- I wasn't put here to win gold medals or national championships. I've been placed here to be a light for Christ.
+- The sport of soccer in general is very combative. People don't realize it's very one-on-one a lot of times.
+- The greatest tip ever told to me is 'Don't be afraid to make mistakes.'
+- I think because of our society, and the way that I grew up in soccer, I had to become well-rounded, but I also cherished the parts of me that made me special. I'm thankful for that because it's made me a better player.
+- Any footballer's dream would be to play for Manchester United and to play at Old Trafford. The pitch just has this iconic feeling about it. It's elevated like it's almost a stage for the players, and I always enjoyed that you can kind of just slip right off the edges. Seeing the little nuances of it, you know, it's just special to be there.
+- Similar to the familiarity I've always had with the ball, there's this familiarity that the game has given me over years of understanding it and living it.
+- I was fortunate enough to grow up in a Christian home and an awesome family.
+- I think I always had, like, a rebellious spirit. But it wasn't a rebellious spirit to do wrong. It was a rebellious spirit to do something different.
+- My coaches - and even my parents - wanted to give me the space for exploration to see what I could do. Or even to see what I couldn't do and what I would want to learn how to do. It was always about inspiring me and giving me that freedom that you would want in childhood.
+- I think football in general globally has a unique way of uniting people instead of dividing people.
+- We believe that we get so that we can give, and we've been so blessed in the platforms and opportunities that we've been given.
+- It's really cool to be not just winning and fighting for things on the field, but fighting for things off the field and doing so in a way through sport I think is really powerful.
+- I'm really pleased with WPS and the quality of players and the teams.
+- I love to learn.
+- Our family was just really passionate about Jesus.
+- I think that's probably one of my favorite things - learning and creating incredible relationships and making mistakes and being responsible for that.
+- Manchester United is an exceptional club and I'm thrilled to be joining them.
+- I was always inspired by Brazilian football growing up. Those huge Nike campaigns, the Jogo Bonito campaigns that had Ronaldinho, that's the beauty of the game that I love.
+- I spent my whole life as a soccer player and I've honed every skill, I continue to hone them, you can never be good enough.
+- Every opportunity that you get in life to do something unique, that's going to challenge you and push you, is an opportunity that I want to take, especially as a footballer.
+- When I need strength in hard times, I know I have a God that can move mountains. Or if I'm going through a time of success, I can just rejoice in the Lord and give glory to Him knowing that He's given me the gifts to be able to accomplish what I have. Everything comes back to Him.
+- When it comes to the challenges of being an entrepreneur and a female, specifically a female entrepreneur, it's something that we really have been living for a long time in a different pool.
+- As I've gotten older, I've been given more responsibility. I think I've grown into that.
+- People don't want to just root for a team anymore. They want to root for something more.
+- Defending is easy. You just have to want to defend. It's not like defending is hard. It's just, like, more of an attitude.
+- I don't really dwell on things.
+- In football in this country, we want to be able to check off every box of a soccer player. You have to be good at this and this and this. Because of our society, and the way that I grew up in soccer, I had to become well-rounded-but I also cherished the parts of me that made me special.
+- I find European football sometimes a little boring.
+- I'd love to see a global competition other than the World Cup.
+- Obviously Manchester United's tradition and history speaks for itself.
+- I think the most effective coaching for youth is to encourage them to try things, to be unique and be different.
+- The ocean is so powerful and so healing at the same time. It's kind of like a sanctuary. And the culture of the people in surfing, I love that. It's such a community. It's just got this, like, chill way about it. When you're in the water, it's very inclusive.
+- There aren't enough women-run businesses.
+- Each Olympics is different.
+- As a soccer player, that's the greatest dream, to win a World Cup.
+- For me it was massive there was interest from Manchester United. To sign for such a club was important to me in my football career.
+- There is only one club in Manchester.
+- I think I do get excited by challenges and I do find a sense of motivation and purpose within those.
+- Tactical and technical awareness can only improve and sharpen with time.
+- I think that's part of the beautiful game. It's kind of this special relationship that happens in football, where you get kind of influenced by the people around you and the different cultures around you and it allows you to grow and develop.
+- I think for people that have supported the women's game for a long time, I think they understand the struggles that we have continually faced and that we've continually fought back against.
+- Our national team is very unique in the way we want to play.
+- My first WPS season was a bust.
+- Everyone wants to come to Portland to play, whether for us or against us.
+- For the longest time people were like, 'Oh you play soccer, what else do you do?' Cause they couldn't believe that you could just be women's professional athlete. That's really frustrating because it's almost devaluing your actual skill and ability.
+- I'm aware that I'm now a role model for younger players. I bring more maturity to practice - it's more of a work environment to me, where I consciously work to get better each day.
+- I don't really like... fame in general.
+- We really believe that mentorship is a powerful tool.
+- I think you have to obviously be familiar with how the team wants to play and play to that style. But I think you also have to find a way to be yourself.
+- I think it's being able to do both, obviously being able to play your role in the team and those responsibilities but also being able to have that freedom... to express yourself in the way that you play.
+- We don't make enough in our job to live the way that we would want to and to have the support that we would need. Most of our income doesn't even come from our salary from our employer and we have to find income from other places.
+- I'm a footballer through and through. It's all I've ever wanted to be.
+- When I put on my first Man Utd training kit, it felt enormous in a way that was really special in kind of like a childhood dream type way. Obviously, we don't have that history in the U.S., so to be able to put on a shirt like that as an American was really special.
+- Lifestyle off the field influences your play on the field.
+- I enjoy the outdoors.
+- Our God's going to be victorious. He's the Creator of the universe. I'm just a vessel trying to do my part with what I've been given.
+- I remember when Manchester United came into the league and I remember saying, 'Wow, this is huge. This is huge for a club like this to have a women's team.' It's so important for clubs with all this tradition, history, power, influence to have a women's team and to see the progress that they've made and what they've put into it.
+- I'm passionate about making this country and the youth passionate about football.
+- The most important thing to me is to inspire all these athletes in the next generation.
+- Like many kids, I wanted to do my own thing so it wasn't until around the end of high school and start of college that I started to develop my own faith.
+- You're able to see situations over and over again and just become comfortable in different decision-making situations. I think that comes with experience.
+- Everybody wants to be winners - you have to trust that God has a greater plan for this even when you can't see it.
+- There are just so many parallels between sport and business.
+- I want to play for a big club.
+- I grew up loving Brazilian soccer. What made me think soccer was cool was these guys making soccer look like fun and easy, and they would just destroy people. It was an art. I loved that. And that's the way I learned the game and mimicked a style. It's just so beautiful.
+- Unfortunately, soccer can be cruel sometime.
+- I love superhero movies.
+- All of my football, even my introduction, even my coaches, most of them came from Europe, particularly England. So pretty much my whole footballing education and introduction was through English football.
+- I just know who I am and what I like.
+- I think I'm more traditional in how I do media. I want my brand to be about football.

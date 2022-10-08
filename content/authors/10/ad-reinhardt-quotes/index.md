@@ -1,0 +1,15 @@
++++
+author = "Ad Reinhardt"
+title = "Ad Reinhardt Quotes"
+quotes_len = "9"
+description = "the best 9 Ad Reinhardt Quotes"
++++
+- Now almost every artist outside of New York is connected with some school or some museum school, and even in New York the majority are. That's an interesting fact when you take the idea of making money, making a living selling paintings. Only a dozen or two painters do that.
+- I tried to oppose the academic to the marketplace.
+- I taught a lot of art history, especially Chinese, Japanese, and Indian. But the painting classes came back. The nudes came back. Not so much the still lifes. So now our department is the worst department, partly because it has the worst facilities.
+- If some student came up and wanted to know where to study painting, you'd want to suggest someplace, but there's no place. I wouldn't know where to send a student to study.
+- The job at Brooklyn is interesting because Brooklyn reflects what happened to university art departments everywhere. It might be the worst department now, and yet at one point it was the best in the country.
+- Sculpture is something you bump into when you back up to look at a painting.
+- Art is too serious to be taken seriously.
+- Art is Art. Everything else is everything else.
+- Only a bad artist thinks he has a good idea. A good artist does not need anything.

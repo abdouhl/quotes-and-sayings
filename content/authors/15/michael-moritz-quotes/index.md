@@ -1,0 +1,13 @@
++++
+author = "Michael Moritz"
+title = "Michael Moritz Quotes"
+quotes_len = "7"
+description = "the best 7 Michael Moritz Quotes"
++++
+- It's obviously unfair to paint with a broad brush here, but the germ of an idea for a breakthrough in technology doesn't come out of a business school curriculum. It comes out of a laboratory or a math lecture or a physics tutorial.
+- I think overall it is better for businesses to stay private because you have more latitude, more freedom.
+- History shows that there is no more potent engine for reform than the passion of voters who feel betrayed by the politicians they hoped would do the right thing.
+- My undergraduate degree was in history, and I wish I had been smart enough to really excel at maths, physics, chemistry or biology because... the voyagers and adventurers and real contributors - that's where they come from.
+- All you need do is listen to very smart people and sift out the ideas that are unworthy or implausible, and I wouldn't pretend for a moment that I hadn't made lots of mistakes and there are companies, perhaps, that we had been investors in.
+- I think the notion of retirement is just a dreadful, dreadful idea and I hope I never have to do that.
+- There's nothing more invigorating than being deeply involved with a small company and a young team of founders out to do something incredibly special.

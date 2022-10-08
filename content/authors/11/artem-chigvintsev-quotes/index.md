@@ -1,0 +1,40 @@
++++
+author = "Artem Chigvintsev"
+title = "Artem Chigvintsev Quotes"
+quotes_len = "34"
+description = "the best 34 Artem Chigvintsev Quotes"
++++
+- Maybe we just need to strip away actual learning how to dance and do more gimmicks. Maybe that's what the judges will appreciate more.
+- It is hard being in a relationship when you are a dancer as I have been touring a lot all over the world.
+- There is really no other job in the world like 'Dancing With the Stars.'
+- I have had so many beautiful memories with all of my celebrity partners! They all have shaped me into the person that I am today.
+- Basketball players, they're great.
+- I'm just feeling that... would I be more nervous having a boy? 100 percent. Because American culture and sports is massive.
+- I'll be honest with you, being 37 years old, I'm thinking maybe it is time to do something behind the screen. Something more on the creative side than being a talent.
+- The one thing I've done all my life, and I study it and I dedicated pretty much all of my time for the past two decades, is dancing.
+- Oh, I was sobbing, like, so bad when baby arrived. Like, I don't think people have seen a man sobbing like that. It was awful, but in the most joyful way. I mean, I was picking that baby up and putting him on me. And the baby, like, halfway opened his eyes and it just made me feel like, 'Oh my god, this is the most incredible thing.'
+- I think I'm the happiest person in the world, I swear to you. I'm like continuously catching my mind, like, 'Wow, like, everything is perfect in my life, there's nothing wrong.' I'm just so scared to even admit it because I want nothing to go wrong.
+- Men need to learn how to treat a woman, and I feel like through this dancing, it definitely gives you that exposure.
+- I love 'The Notebook' and I cry when I watch that.
+- Like, for the first week and a half, I think we both woke up to every single noise the baby makes to make sure he is OK. Is it too cold? Is he still hungry? Is his diaper changed? You're just so worried that it's like it's the end of the world. I was freaking out, but it's not like there is a book on how to be a parent.
+- I grew up with grandparents. My grandparents played a massive part of my growing up.
+- If it's constructive criticism, please, go ahead. I'm all up for, 'Hey, your toes were not pointed.' Like, I can see that.
+- I am a romantic, big time.
+- Of course, if it's a boy, I want him to choose what he wants to do. If it's gonna be sports, I'm gonna totally be like, 'Yo. 100 percent. You want to do that, do that. If you're passionate about that, please do that.'
+- You can't take a person who's never danced in their lives, and are completely terrible, and turn them into the mirrorball trophy holder. That just doesn't happen.
+- It's kind of become a journey about the dancers, but dancers are the reason why this show is so successful. They are the choreographers, they are the teachers and if not for their hard work, there would be no 'Dancing With the Stars.'
+- Like, I've danced all my life with girls... I know how to be with a girl.
+- I don't have a particular type of woman. But I like to have fun and, while looks will go some way, laughter is extremely important.
+- I want to see what this baby's going to be into; how I can participate in his interests. You know, teach him things, see the manners that he will inhabit from both of us and see the first smile and what he's gonna say first. Hopefully 'dada' not 'mama.'
+- Nikki is obsessed with France and its culture, so it made total sense to propose there.
+- I've been working out every single day trying to get back into my dancing shape.
+- Ballroom dancing is so specific... it's so unique in its own way, that there's not really a lot of outlets where you can utilize that.
+- You get used to cameras being with you 24/7, but you have to be prepared for people to have an opinion.
+- I always imagined myself, like, 'OK, one day I'll have a kid,' and then finally it's here. It's just like, for the first time, you have so much love that you never knew existed towards this little human being that you hold in your arms.
+- When people ask, 'How does it feel to be a dad?' Nothing I could've expected. It's better in such a different way. It's like unless you actually experience it, there's just no way you can explain with words.
+- Nicole is, as I'm sure everyone is aware, she's very open. She's very sexual about things and she definitely doesn't hold back, which is very hard for me to accept, because I was raised in Russia.
+- I've been, like, dancing in the living room with the baby, because when it screams and stuff, it soothes him.
+- It's just unreal. I mean, I'll be a dad. I'm just lost for words.
+- Why would you want to just make up a middle name when the name should be coming from family and previous generations? I think it's really important.
+- Being on a show like Dancing with the Stars for what I do, that is the top of the game. There is really no other job that gives you the satisfaction of choreographing, of teaching and getting the recognition in that spectrum.
+- I've always wanted to have kids - I think it's something that every human should experience.

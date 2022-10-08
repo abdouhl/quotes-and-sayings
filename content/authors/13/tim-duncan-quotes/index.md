@@ -1,0 +1,46 @@
++++
+author = "Tim Duncan"
+title = "Tim Duncan Quotes"
+quotes_len = "40"
+description = "the best 40 Tim Duncan Quotes"
++++
+- I like R&B. I listen to music, not singers.
+- The first time I played against Seattle was the only time I felt destroyed. Vin Baker just manhandled me. The whole thing, their double teams, their movement, everything. I must've had eight turnovers. Which isn't a big deal for me because I turn the ball over a lot.
+- Honest truth is I didn't really know from year to year what people were making. I think that was the best perspective to have.
+- At this point, if I were to psychoanalyze myself, I'd have to say I am a clown, cleverly disguised as a regular person.
+- I don't dunk anymore.
+- I enjoy jokes, smiling, and making people smile. I may be a little different, but that's OK, who wants to be normal anyway?
+- Charles Barkley taught me a lot when I played against him. How he would use his body or use his dribble to get people in there and all that stuff.
+- The time when there is no one there to feel sorry for you or to cheer for you is when a player is made.
+- You have to adjust to what your team needs and what you're able to do.
+- I'm an idiot.
+- I'm not better when I force shots. I'm going to take them as they come. They are really sagging in there, trying to take me out of the game. It's my job to find guys. I want to be aggressive and take my shots, but I can't force them.
+- I'm just going to play whatever game is in front of me.
+- If I have my kids, I drive something with four doors. If I don't have my kids, I can drive whatever I want.
+- I'm not really a flashy guy anywhere else - I don't dress flashy or anything else - but I like to keep my cars nice, and I like to customize them. I can do things a little flashier and a little faster, and with a little bit more thought. This is kind of the release part of basketball.
+- I'm surrounded by nothing but great people. I've been blessed with that, so really, I've got no choice but to be an all-around good person.
+- I'm not serious most of the time.
+- If he wants to fight, we can fight. I don't have any problem with him, but we can do it if he wants to.
+- I didn't have my first car until after the end of my senior year. I got a Yukon Sport.
+- When our assists lead to baskets, that's us playing our best, and we begin knocking down shots.
+- I think competitiveness is taken in a different way by different people. I'm not a yeller and a screamer, a jumper and a pusher.
+- I am going to walk away when I'm ready to walk away. Not because of a win or a loss.
+- In all seriousness, it really should be difficult for me to be too strange. After all, a great family raised me.
+- When you have to stop and think about things is when they go wrong.
+- I have always liked knives. Then somebody gave me one. Then somebody gave me another one. Then I liked having them and started buying them. I started finding ones I liked, ones with funky blades.
+- I don't do style. I just show up for the games.
+- Luckily, I had a long career and made good money.
+- Karl Malone used a lot of veteran stuff that I thought was cool. Charles Barkley taught me a lot when I played against him. How he would use his body or use his dribble to get people in there and all that stuff. Veteran moves.
+- I started not enjoying myself. It wasn't fun at times. And I always said when that point comes when it's not fun anymore, then I'm done.
+- I'm not going anywhere. You can print that wherever you want to. I'm here and I'm a Spur for life.
+- I've been competitive from day one. It's in my nature. Whether people recognize that or not, I don't know how they can't. I'm not gonna go out there and try to hurt somebody or win by all means. But if it's up in the air, I'm gonna try harder than you to get it done.
+- The only nickname I've ever had is Merlin, like the magician. I don't know why.
+- Like every other car guy, I've watched 'The Fast and the Furious,' and I want to go out and race and drift and all the crazy stuff. Another one of my favorites is 'Cobra.' That's where I got my love for the Merc, where he had the one that had the license plate that said 'AWSOM 50.'
+- I don't know how their ranking goes or anything else, and I tell people I don't really care how the rankings go.
+- I believed in what I was. I didn't believe that would translate into any of the five championships. But I knew that I could affect the game.
+- We took pride in representing where we came from, took pride in being from small places, and places all around the world and being able to come together and make ourselves into a team, into a group of guys with one goal and get that done.
+- I have the loving support of my girlfriend who still attends Wake Forest and is nearing graduation. She helps me cope with the everyday rigors of being an NBA player.
+- I just wanted to win on the road, honestly. I don't remember the road ever being this tough.
+- I'm a loyal guy. I'm a man of my word, and I assumed other people would be that way. That's just not the case in life.
+- I had great friends, support and teaching at Wake Forest.
+- We really have some of the best fans in the NBA, in sports in general. Here, you get a consistent base, people support. People love the Spurs, and that's special. That's not everywhere.

@@ -1,0 +1,106 @@
++++
+author = "John 5"
+title = "John 5 Quotes"
+quotes_len = "100"
+description = "the best 100 John 5 Quotes"
++++
+- I remember where I was when I heard Yngwie Malmsteen for the first time. It was such an epiphany for me, and it really shaped the way I play today. I think I heard him in '83, if I'm not mistaken - I was 13 years old - and it really was amazing for me.
+- If you go out to dinner with a group of people, pay for the dinner at a nice restaurant, for the amount of money for that dinner, you can get a John 5 Squier Telecaster and have it for the rest of your life.
+- I know it sounds corny, but I think the meaning of life is to do what you love and be happy.
+- I want to make money playing guitar.
+- I've been doing instrumental records now for a long time and built up this little fan base, which is worldwide, and it's incredible how big it's gotten. People really enjoy these records.
+- I love Loretta Lynn, and I love Roy Clark and Johnny Cash, everybody.
+- You gotta go after your dreams and do it. Go and do it.
+- I really truly love all styles of music. A lot of people say that, but the first station they turn to when they get in the car is a rock station. I don't always do that. I really enjoy everything. But, of course, I'm a rock shred guitar player first.
+- If my mom said, 'You better not do this!' I'm not one of those people who go, 'Well, I'm definitely going to do that.' I always thought, 'Okay, mom. I probably don't want to do that. She's probably looking out for me.' If it's someone who says, 'You'll never make it,' I'll just do what's in my heart. It's what I've always done.
+- It's always good to go outside of your comfort zone.
+- Being the founding member of Loser, my decision to leave was not an easy one.
+- When I saw Kiss, and it was monsters with guitars, I thought this was the greatest thing that ever happened.
+- When I was younger, I had a horrible flight. Horrible. It was well before I was 10 years old. So I always thought to myself, 'I know I don't want to travel.' That's why I wanted to be a session guy, because I knew I could still play guitar and make a living at it - hopefully.
+- I truly enjoyed my time with Manson and have the greatest respect for the incredible fans. I am grateful to have contributed over two dozen songs to his projects. It was a great creative outlet for me at that point in my career.
+- The guitar is my whole life.
+- I'll watch the Grammys and think, 'You hardly even see people playing guitar,' and it freaks me out.
+- Inspiration is one of my favorite things. That's all I want to do - I want to inspire people.
+- I'm a Telecaster connoisseur, and I love my Teles. I have one from almost every year since the very beginning, in 1950. I'm so obsessed with them.
+- I think I'm always writing, and I'm always working, and I'm always trying to be creative. It's just something that I do all the time. I watch TV, and I'll play guitar.
+- Chet Atkins, I love his singer style and the country thing that he did. He really had a huge impact in my life, just his style - western swing and the country thing he did - it really changed my life.
+- There's not many crazy guitar instrumentalists out there that put on a crazy monster show.
+- Jimi Hendrix is one of the main influences on why I wanted to play guitar. He really shook me. I think it was his whole style - the look and what he did with the guitar.
+- I have tons of Telecasters but also about 50 Les Pauls, six or seven SGs, and a bunch of Gretsches.
+- I liked what any other kid did back in the day. You know, Bob Seger, Alice Cooper, and everything else that was on the radio in Michigan. There was a lot of Steely Dan; just a lot of great music inspired me.
+- All my life, I've really enjoyed music: making music, playing it, and recording it. It's such a relief and a joy to do what I do for a living.
+- I'm always happy with a guitar in my hand.
+- I know it is one of the most important instruments and inventions, the electric guitar, to me, since television or movies or anything like that.
+- I'm a vegan now, and I've never felt better in my life. In my life.
+- 'This Is My Rifle' is a kind of tribute to Al Di Meola.
+- When my parents gave me that first guitar, I became totally obsessed. I would stay in my room all the time with it, and my parents were concerned.
+- I always play so many different styles that I don't think anything I do surprises anyone.
+- I just try to go outside the box. In fact, I go outside the box so much I go... 'What box!'
+- I'm playing all the time. It's a gift, and I'm so happy for that gift. It's really engulfed my life in a good way. I make time.
+- Whenever you listen to a CD or an album, it gets tiresome hearing the same thing over and over and over again.
+- I love Jimmy Bryant, and I love Albert Lee. Roy Clark. Chet Atkins. I love those pickers.
+- When I was touring with Ozzy, you know, when I was with Manson, we toured with Ozzy, so many times, we did Ozzfest a thousand times, and, you know, it seems like I'm always playing with Ozzy in one way or another opening up.
+- Oh my God, Guns N' Roses - it's like, jeez, that's what made me move out to Los Angeles. 'Welcome to the Jungle,' you know - it's been a huge inspiration for me.
+- How it's been with me, it doesn't really matter what kind of music it is as long as it's good and catchy and I enjoy it. That's why I know all these different styles of music, just because it's fun. Whatever is good, I like it.
+- Branching out to other genres - I think it's why people put me apart from other guitar instrumentalists.
+- I've been putting out records for so long, but I didn't want to tour because I didn't think anybody really cared.
+- Inspiration is a really hard thing to describe, but it's something that triggers your brain, like the first time I heard a certain guitar player that I loved or the first time that I saw a monster or the first time that I saw anything that really was an epiphany for me. It just stays with you your whole life.
+- I remember this vividly: It was 1977, and I was in Sears with my mom. And I saw this display, and it was for 'Love Gun.' I bought the record just because of the look of that display. Because I really loved monsters.
+- You can go pretty much anywhere in the world, and people know 'Beat It.' When I was growing up, you heard it everywhere. I remember being a kid and going to school dances and stuff, and they always played it.
+- Sometimes if you're in the studio for a very long time, you want to get out and play live shows and vice versa.
+- I know singers; I've worked with some of the greatest singers in the world.
+- I'm still obsessed with Kiss. I'm still obsessed with Van Halen. I guess we don't change that much from being kids. Either we don't change that much, or we just have really good taste.
+- I'm always playing guitar.
+- I like records that are all over the place. That's why I think my favorite Beatles record was always 'The White Album.'
+- I love doing instrumental records; I love doing that.
+- I'm always working and recording. It's just what makes me happy.
+- I was such a sponge with music.
+- Writing songs, especially with the instrumental stuff, it's difficult.
+- I consider myself a musician. I like to play everything.
+- I like people writing great songs on guitar or piano or what have you. I miss people getting on stage with real bands and real instruments and expressing themselves that way instead of with computers and technology.
+- I love instrumental guitar records, but I also understand that, as a listener, it can be difficult to get through a whole album of just that one thing.
+- I would hear Steely Dan on the radio all the time, and I listened to 'Aja' a lot. I mean, 'Black Cow' and 'Aja' and 'Deacon Blues' and 'Josie' and 'Peg'... all these songs are on one record. It's crazy!
+- Slayer just goes from generation to generation to generation, because it's just so great.
+- I was such a big Kiss and Van Halen fan, Yngwie Malmsteen, Racer X... all that stuff. I loved everybody.
+- I am from Michigan; I am from Grosse Pointe. I was upper class growing up there.
+- I like streaming music. I'll be in the car going, 'I want to hear Scotty Anderson.' He's a great guitar player not many people know about - maybe me and two other dudes know him. But I love him, and I can pull him up on Apple Music, and there it is, right there in my car.
+- There's 24 hours in a day, and I'm working most of them.
+- Whatever I say is so honest when I'm doing interviews.
+- In my eyes, and in my opinion, the guitar is strong and powerful and will never die.
+- Nothing's changed from when I'm seven years old to now. Nothing's changed at all. I like the same stuff that I did - Kiss, Van Halen, 'Happy Days,' 'Laverne & Shirley,' 'The Brady Bunch,' monsters and all that stuff.
+- I find the macabre fascinating; it's all over history.
+- I never wished to be a 'rock star.' I just wanted to be a working musician. My dreams didn't even go past a session player or a working musician. It was too far beyond my dreams.
+- What I do is, I look at rock guitar players, and I say to myself, 'What is this guy doing? What does he have that can inspire me?' I try to see what other people are doing and take what they have and turn it and twist it into my own thing.
+- I always look for inspiration. If I find something that's inspiring, I'm so excited because it is very hard to find something inspiring.
+- I would love to work with a Beatle: Paul McCartney or Ringo Starr.
+- Personally, I like records that are very varied in sound. Not just like, 'Oh, here's 12 super heavy tracks,' and they're all the same tempo.
+- If I wasn't in the band, I'm a Zombie fan, and I'm a White Zombie fan.
+- It's funny, the power of music. I was watching 'Dracula,' the 1931 version with Bela Lugosi, and the only music you hear is at the very beginning of the credits. There's not one other piece of music; it's all silent. It's unbelievable, and it's very effective, too.
+- I can get inspired, like anyone, from movies or music or TV or a certain way people think.
+- I think there are so, so, so, so many things you have to be... to do this... you know, to keep going in the music business. Of course, you have to play well with others, you know, and you have to be smart with business and be good at your craft and be healthy.
+- I was a valet for celebrity parties.
+- I'm so honored that I got the best guitarist award for the fifth annual Revolver Golden Gods awards.
+- I love doing it. It's great. I love doing the sessions, 'cause you're kind of like in a different band every day. I used to do them all the time. I think my first one was John Wetton from U.K. and Asia and all that stuff, King Crimson. It was so great. Really a lot of fun.
+- I, like, prayed inside of my head as a little kid. I didn't grow up in a religious home, but we went to Midnight Mass. That was the only time I'd go to church, but when I did, I prayed that I wanted to be a successful musician. I got my wish.
+- I'm always up early. I have so much to do, it's unbelievable how much I have to do in a day. So I have to get at 7 o'clock every morning, and I go to bed at midnight. You know, and I'm just going that whole time.
+- I would definitely say Zombie has been the best time I've ever had. It is just so great and so fun because, you know, we all get along so well, and, you know, it's just like, everybody, we're just all friends here, and we're just having a really, really, really great time.
+- People don't buy music anymore; they're stealing it. But you can't steal a live show. There's no way to reproduce a real live show. So I think that when you put a great bill together, that people will come out for it.
+- I love meeting the fans, and I love shaking hands, and that's what it's all about. It really is.
+- Ever since I was a kid, I've been a Fender connoisseur. And to have my name associated with greatness like that, it's amazing. I couldn't be more proud of anything. My children, and then being associated with Fender. In that order!
+- I love to learn, and I started doing a lot of studying of Spanish-style music and really started getting into it and how it is just a completely different form of guitar playing. It is just like if you started speaking in a different language like Japanese or something. It is something that you have to study and work at a lot.
+- I've been playing live since I was in sixth grade.
+- You pick up a lot of things as a kid. That's why I play Telecaster.
+- I get starstruck... I don't know, because a lot of my heroes are my really good friends.
+- I loved TV, and I watched anything with music - 'Hee Haw,' 'Happy Days,' anything like that. So I loved the Monkees.
+- 'Hee Haw' was a huge influence on me.
+- Steve Vai had a unique style of playing. Steve Vai didn't sound like anyone else: Steve Vai sounded like Steve Vai.
+- I just love music and great guitar players.
+- I'd love to work with Prince. He's such an amazing musician.
+- I wanted to do this so badly, to be a successful musician.
+- I love watching documentaries on people like 'clean freaks,' because it's just so interesting to me for some reason.
+- When I came to California, I came from such an upper scale neighborhood, I was so sheltered, but I always knew I wanted to live in California, and I wanted to play guitar.
+- I started at such a young age learning every style of music, the country and the bluegrass and the western swing and the rock - everything.
+- I wanted to be a guitar player and musician so badly, and I prayed to get this the very few times I went to church, and I feel like I got my prayer answered.
+- You know how kids will wait outside after a gig and try to get an autograph from the band? I would do that, but when I found the guitar player, I would say, 'What advice can you give me?' And a lot of my heroes would say, 'Have your own style.' I always kept that in my head.
+- A lot of bands, they take a lot of planning to do a live record. They have to hire a crew, and they have to have a recording truck and all this equipment, and they record every single show.
+- I love talking to people, and I'll listen to what they have to say, and if they have ideas or something like that, I'll put you to work.

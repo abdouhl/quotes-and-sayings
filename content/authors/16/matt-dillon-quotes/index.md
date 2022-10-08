@@ -1,0 +1,62 @@
++++
+author = "Matt Dillon"
+title = "Matt Dillon Quotes"
+quotes_len = "56"
+description = "the best 56 Matt Dillon Quotes"
++++
+- I'm ambitious. I do think you have a tendency to be less happy sometimes when you're a seeker. You can be disenchanted because you're not getting what you want, and you're always striving and looking ahead instead of just being in the moment.
+- When I started out as an actor I knew very little, which was probably a good thing. I was totally open. You don't judge yourself, you do it.
+- I don't consider myself a Hollywood liberal, but I have my convictions and my beliefs.
+- One of my greatest fears is not being able to change, to be caught in a never-ending cycle of sameness. Growth is so important.
+- A lot of people say I've missed out on a lot because I started acting at such a young age. What's so obvious to me is that I actually was really lucky. I gained a lot and I got a head start in what I wanted to do in life. A lot of people in their late 20s, early 30s are just beginning to figure out where they want to go.
+- I know this sounds kind of crazy, but I think we're all actors.
+- To be honest with you, there's nothing that bores me more than sitting around with a bunch of actors talking shop. I love actors and I've got friends that are actors. They're interesting people. But for some reason, usually when it comes round to talking shop, there's a part of me that doesn't like it.
+- It's important to air your concerns and fears with someone you trust. When you're honest about how you can change and grow, and where your weaknesses are, then you open the door for improvement and change.
+- I like to do comedy, but I'll be perfectly honest, I prefer to do drama and more character-driven-based stuff, generally.
+- I've always liked Southeast Asia a lot. It's a wonderful place, an easy place. People are great, there's a lot of history and culture, and I like the serenity of Buddhism there. It's very beautiful. I find that to be a very nice place to visit.
+- Actors don't generally go asking other actors for advice too much, but I'll take suggestions wherever I can.
+- I had acting teachers, and one of the things that was encouraged was to keep it fresh, to be spontaneous. That's the magic of film often.
+- I grew up with the white picket fence. My dad went to work nine to five, and he had a station wagon.
+- One of the things I've learned over the years is that you only do what you can do as an actor. You do the best job you can, but you have no control over so many elements that are going to determine the outcome of that film. I never pay attention to what happens after.
+- Love is messy. It's not something that's real clean.
+- The first music I was ever exposed to was Irish folk music, like the Clancy Brothers. My father plays that and Christmas songs.
+- One of my biggest fears is not being able to break out of a rut; of becoming a prisoner to my ways, unable to change course. But in my mid-thirties, I learned you can change your thinking.
+- The worst thing I could be accused of is that I'm a one-way dude, only out for myself. But the worst thing a woman can do is not to say anything. Especially when you're starting a relationship.
+- I don't like to give out advice. I make suggestions when I get to know somebody a little bit, but I don't know about advice.
+- I'm not the greatest boyfriend, but I'm not a creep. It's more like I'm... absent-minded.
+- Of course, if you're gonna make movies, you gotta make movies, and I'm not gonna say no to a good role.
+- I don't know why, but I like the saxophone.
+- These are people who haven't gone through the legal means to becoming citizens like our forefathers did. They want all the benefits but none of the responsibilities.
+- I tend to wear my emotions on my sleeve. I've had my share of mood swings, believe me. But it's a powerful thing when you realize that you have dominion over your behavior and your passions.
+- My driving, I've been accused of not being the best, most safest driver.
+- It's a pretty good job being an actor, but it's work sometimes. And when I say work, I mean it's a job. You're going to a job.
+- I like doing comedy, I like doing drama. Naturally I like to do, I like doing dramas, I like conflict, and when I do a comedy, you know, I've found that, like, romantic comedy is the trickiest one, because often it's neither: it's not romantic and it's not funny. So, like, I like a comedy that's biting. It's biting humor or really quirky humor.
+- I think playing somebody who's schizophrenic is such a lesson as an actor. It gets you totally out of your comfort zone, because you can't rely on your technique, your external stuff. You've really gotta look inward, in a way.
+- Looks aren't a big thing to me. I keep reading these articles in fan magazines about me, and I don't even know who they're talking about. It's boring.
+- Sunsets are great. Sunrises are a mixed bag. You either got up way too early or went to bed way too late.
+- I do get bottled up in interviews. You're thinking about what you're saying, and suddenly you get all tangled. So people think I'm sullen, or that I don't have much to say. But my friends will tell you: a lot of times I talk too much.
+- I'm not a Buddhist, or a card-carrying member of any religion.
+- I'm drawn to women who live in a world different from my own. I don't believe you have to marry someone from your own backyard. James Joyce married a woman who never read any of his books.
+- One thing that everybody told me about directing was, 'Never compromise'. And the whole job is a compromise. So it's very paradoxical. How do you not compromise when the whole thing is about compromise?
+- What's really great about Buddhism is its rational, informal quality. Coming from my experience of growing up a Catholic, I found Buddhism to be refreshingly easygoing and forgiving.
+- I think anytime you can do something you haven't seen or done in a film before, it's always a great day as an actor.
+- When I was twenty-two it was a lot harder to get hurt by women. It was easier for me to, you know, cheat on a girlfriend. I can't lie like that anymore.
+- Directing myself definitely made me a better actor. And, you know, I think actors have the best track record when they turn to directing. Writers, too. I knew how to direct actors because I've been there and I know what I like.
+- I don't know why, but audiences are often sympathetic to thieves. Sometimes they are more sympathetic to thieves then they are to earnest people. What does that say about society?
+- I sometimes think love is God's way of hoodwinking people into having kids. You fall in love, and all that passion goes into procreating and wanting children.
+- Those are the kinds of roles you can really sink your teeth into. Characters with an edge. When you're playing someone who's sort of seedy, there's less limitation, there's so much space you can travel. There's room to move in.
+- We get caught up in all the stress - 'Got to do this, is this the right thing for me to do?' - but what about the thing you want to do? That's what'll keep you young. It's empowering, not becoming a prisoner of some other person's idea of what you should be.
+- I like to take chances. The actors I admire are the ones who aren't afraid to make themselves nasty, bad or even goofy. I've never shied away from controversial characters.
+- I don't worry about whether a character is likable, as long as the character is believable.
+- I only hear my own voice. When you start hearing other voices, then it's time to worry.
+- Fame is part of me and my life as an actor. I enjoy the creative aspects of my life as an actor. I enjoy directing and acting as well. But the bottom line for me is not prestige and power. It's about having an exciting, creative life.
+- People get really nuts around cars. They get angry at cars, they get angry at their car, they get angry at people driving in cars; there's something really comical about that, about automobiles.
+- I've always wanted to do action stuff. I like it. You really want something that's special; that's got something special about it and not cheesy, I guess. I'll tell you something, it's fun, it's different. Comedy is difficult. Doing comedy is very difficult. Action stuff is fun.
+- I don't hide out. If you build a wall around yourself, it draws people to invade it. Fear is the enemy.
+- That's the great thing about being an actor, you know, you can just jump to different jobs.
+- In politics there are so many holes, so many contradictions, you don't know what's happening.
+- It seems to be that more and more people are asking you to work for nothing on films, and that's unfortunate because you have to make a living. On the other hand, I don't do a better job because I get paid a lot of money. I'm never like, 'I'm not going to work as hard because I'm not getting paid as much.'
+- It was being young and sensitive and an actor. There was a lot of pressure, everything was a hurdle.
+- I used to make fun of the kids in school who acted or went to dance class.
+- There were six kids in our family, and I grew up fast. I had to do a lot of things on my own. I was a rebellious teenager. That's why coming into the film business was good for me because it gave me some discipline. Once I became an actor, I had to grow up a little more.
+- I don't fall in love easily. It's odd; one of the first things I think about when I go out with a woman is what it would be like to be married to her. And yet I have a tough time committing.

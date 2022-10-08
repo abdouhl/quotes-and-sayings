@@ -1,0 +1,18 @@
++++
+author = "Aidan Turner"
+title = "Aidan Turner Quotes"
+quotes_len = "12"
+description = "the best 12 Aidan Turner Quotes"
++++
+- I was really into films when I was younger, but I feel like a bit of a phony sometimes - I started acting because I didn't know what else to do. I filled in all these university application forms and honestly didn't want to do any of the courses.
+- When you walk onto a Peter Jackson set, you can see straightaway that money isn't an issue.
+- A good trick I learnt early on is not to immediately look at playback because once you know the shot, you can see when the camera is on you. It's best to stay 'in it' all the time, and just if it's on you, it's on you, and if it's not, it's not. It's the easiest way.
+- I want to spend the night alone in a haunted mansion. I wouldn't say I'm sceptical because that word implies the truth is out there when there is no truth out there.
+- I'm not an extravagant person. You don't get a chance to spend money when you're working on a TV show.
+- I don't speculate too much about the future. That's the thing about this job - it's so fickle. You take the jobs, you read the scripts and, if something interests you and you like the people who are working on it, you go for it.
+- On a beautiful clear Sunday morning, myself and James Nesbitt jumped out of a plane together at 18,000 feet.
+- To make a career as an Irish actor, generally it's the case that you move to London. When you make that move, you do tend to stand out.
+- I think every actor wants a certain amount of control. Maybe not control, as such, but just to be part of the process. But it's not necessary, I guess.
+- When you're part of an ensemble and share the screen with so many people, you become close to them because you're hanging out all the time. Obviously you have your ups and downs, but that kind of brings you closer in many ways.
+- I left the Gaiety School of Acting in Dublin in 2004, and I did five years of theater after that.
+- In 'The Hobbit,' there were British, Irish, Australian and New Zealand actors, and Peter Jackson was adamant that we would all sound like we were from Britain somewhere.

@@ -1,0 +1,106 @@
++++
+author = "Kofi Kingston"
+title = "Kofi Kingston Quotes"
+quotes_len = "100"
+description = "the best 100 Kofi Kingston Quotes"
++++
+- It is one thing to tell people in theory that you can be whatever you want to be, but it is another thing to tell someone that they can be whatever they wanted to be because somebody that is just like you did it.
+- I'm just so proud to be champion and to have the support of my peers and my fans.
+- I want to be the true champion of the people, and I take a lot of pride in having that role.
+- I've always said that 205 Live is one of the best-kept secrets in WWE.
+- How many African American champions have there been over the course of WWE's history? It's something that was the elephant in the room. Nobody wanted to talk about it, but it was important for us to address it.
+- Samoa Joe is an opponent that I really wanted to face in the ring. There was a time when you never thought that you will able to see Samoa Joe in a WWE setting but that has changed and this can be considered to be one of my fantasy bookings.
+- The Wyatts in general are just really entertaining, in a strange type of way.
+- I didn't expect to become the guy who people look to do something cool in the Rumble in terms of avoiding elimination.
+- The New Day is all about the group, and that's the way it's gonna be... We ain't going nowhere but to the top. And if we going to the top, we're going together.
+- My goal is always about getting better.
+- We're always thinking of different things to be on the cutting edge of what's entertaining or what's hot on Twitter or social media or even society in general. I've had little goals here and there. But that's the main goal. Always changing, always be prepared to adapt.
+- I always want people to experience the feelings I am experiencing. Anything I can do to get you to feel, that's an honor and a duty that I take very seriously.
+- We've said it since the beginning of time: The philosophy of The New Day has always been to lift your brother up.
+- I've had a lot of starts and stops as far as my career is concerned, but I think what I am able to do is to put things into perspective.
+- Myself, I always tell people that if you're not getting better you're only getting worse, and every day I try and be better than yesterday.
+- WWE is all about doing things that have never been done.
+- I'm really into music.
+- My first, what, five, six years I was never given a microphone. Now we have this New Day thing where we talk pretty much every single week. It allows me to open up a whole different side, so I just think it's really important to be able to adapt.
+- When I come to a baseball game, I appreciate the athleticism of these top-tier athletes. When they come to our shows, it's the same thing.
+- I know how it feels to sit on the sideline and watch a spot that is supposed to be yours taken.
+- It's so inspiring to be able to look a child in the eyes and just shake their hands and see the disbelief that this is actually happening.
+- There's a lot of people who think that I am happy all the time.
+- Anytime somebody shares a personal story with me during autograph signings and someone comes up to me and shakes my hand and says thank you and I'm just like, wow. The fact that I can have an influence over somebody; it is heartwarming, it is the goal.
+- You have to have the ability to adapt. That's probably the single most important quality you need to have as a WWE Superstar.
+- The crowd and the energy is incredible. I love going to Saudi Arabia because the energy is just awesome.
+- E and Woods are incredibly talented individuals that I am so blessed to have been grouped with these guys. To have met these guys in life, to have met such great guys that I call my family.
+- Getting to play with your friends and trash talk. That's some of the best parts of gaming for me. It's like having recess in elementary school.
+- Bray Wyatt is like seven feet tall and seven feet wide.
+- A lot of people talk about video games as something nerds do. But we look at it as a way to connect with people. It's something that's positive, that brings people together.
+- I take a lot of pride being a beacon of hope for people who haven't achieved what they wanted to achieve even though they've had to wait a very long time to do it.
+- NXT is huge, being able to be on TV internationally is a big deal, as it means you don't have to work so hard to get noticed as opposed to FCW, Deep South Wrestling and OVW, which were all televised, but locally.
+- Ronda Rousey, arguably... I mean, she might've been the one that actually started the whole 'Divas Revolution' by being so awesome in UFC.
+- We're really greedy when it comes to titles. We want every championship - the women's title included.
+- I get inspired from all different kinds of places - cartoons, comic books, movies and things like that.
+- Making people believe they can do great things, that's an instant motivator.
+- I think at WrestleMania you definitely want a singles match and not have to share the spotlight with other guys.
+- It's really all about getting the people to believe in you and the harder you work, the better you become.
+- There's a lot of talent down there in NXT.
+- Baseball is called 'America's Pastime,' but you could argue WWE and wrestling is very similar. We've been around since the carnival days. People want to be entertained. It's obviously two different sports, but everyone appreciates the athleticism of another sport.
+- One of the matches that is pretty dear to my heart is when I took on Chris Jericho at Night of Champions in 2008.
+- It was a very real thing, not a storyline thing when Randy Orton didn't want me to get to a certain point in WWE.
+- For me to be the first African-born WWE Champion is incredible because now, people who look like myself can look at TV and see on WWE television that anything is possible because I'm doing it.
+- I collect swords, but I'm not really a swordsman.
+- For me personally, I'm going to continue to do what I do in the ring.
+- Jamaica actually had a pretty big influence on my life.
+- Anybody out there who has had a situation where they've had to struggle - when they want something so badly, but they can't quite get it - I am living and breathing proof that if you endure, if you push yourself, if you strive to be your best, no matter what, if you keep on working hard, then good things can happen.
+- I've been on the other side where I know that a bad day at WWE beats the best day at Staples.
+- I think my goal has always been to remain entertaining. Above all else, remain entertaining.
+- People always say, 'Oh, there haven't been many black champions,' but on the other hand, there are a whole lot of white people that never won a belt either.
+- Being that beacon of hope; not just people in Ghana, but any kind of people that have gone through the struggle, I take a lot of light of being that beacon of hope and inspiration for anybody that wants to achieve anything.
+- Winning the WWE Championship has been my dream for a very long time. But what motivates me more is to inspire people to go out and follow their dreams.
+- The best angles and the best stories always hinge on reality. Throughout the history of WWE, all the best storylines have a little touch of what's real behind them.
+- When I was training before I was even signed, I was listening to the Damian Marley CD 'Welcome to Jamrock,' and I got the idea one day in promo class to cut a promo in a Jamaican accent and everybody in the class went wild. That was the character I played from that point on and it kind of stuck until it didn't.
+- As far as the community involvement is concerned, I don't necessarily think that being a babyface or being a heel really affects that because, at the end of the day, people know that we're entertainers. We're very forward about that.
+- I honestly believe that if you are able to entertain and interact with the crowd, it doesn't matter what ethnicity you may be.
+- Ever since I was a kid, this is all I've ever wanted to do. I used to pretend to be a WWE superstar.
+- I am living proof that if you work hard enough, you will be able to achieve anything and I take a lot of pride in what I have achieved.
+- With Punk, I consider him to be like a brother to me. He's one of the guys who took me under his wing when I first came. So we've been able to maintain a good relationship. And there are very few people in the business that you can call true friends, so I consider Punk to be that and more. So yes, 'road wife' is the term we used to sum that all up.
+- I was never going to be the one to get recognition because of my looks.
+- It's awesome, I tell everyone that the U.K. is one of my favourite places to go.
+- A lot of times when teams break up, it's to do better as singles competitors than they're doing as a group.
+- I'm lucky and blessed to have so many tag-team championships.
+- All I know is that every moment we've had as The New Day has been amazing. Just awesome.
+- My mom worked her way all the way up; she has a doctorate in anthropology. Imagine doing that while having three kids. It's just amazing. She provided the best possible example in terms of chasing your dreams.
+- My goal is to be the best champion possible and to do that I have to go against the best.
+- Never in my wildest dreams did I set the goal to be the longest-reigning tag-team champion.
+- The performance centre is unbelievable, I've had a chance to go there on a couple of occasions in Orlando as it's only about two hours from my house, and I was completely blown away.
+- Even before I became a WWE Superstar, I was told I was never going to make it because I wasn't big enough. You know what I mean? I wasn't strong enough, I wasn't 6 foot 8.
+- It's truly a new day ever since we graced the WWE Universe with our presence. Every time we come out there, you see us being funny, having fun, entertaining people and, of course, preaching the power of positivity. That's what New Day is all about.
+- People are entitled to their own opinion as far as what a WWE Champion should be, but the fact is that I am WWE Champion and that's a fact. It is what it is.
+- It took me 11 years to get a shot at the WWE championship; not just to win it, but just to get a shot, but luckily I was able to capitalize on that and become WWE champion, but if I had quit I wouldn't have been in that position.
+- My dad is actually from Ghana in West Africa, and I was actually born in Ghana, too, and came to the United States when I was two years old. It's always football over there, soccer, but becoming a Massachusetts native, you can't help but get sucked into all the sports.
+- The New Day has been the New Day because what we have done. We can be entertaining but then we can get serious, too.
+- My mom set a great example, and I love her.
+- I always want to go up against the best competition, I want to have as many championship matches as possible.
+- We always talk about how important representation is. It's so important to see someone that looks like you - whether you're African American, Asian, Indian or whatever your background is - doing incredible things. It's just motivation to go out there and do incredible things yourself.
+- You know, 'people like us,' it involves... it's everybody who has struggled, you know what I'm saying? Everybody who has... who has had a difficult time getting to where they want to be, and now they can look at us as examples of, 'Hey, I can do this because they did it and I see it happening. Maybe I can do it, too.'
+- Playing video games, as funny as it might sound, it's a very important part of our day. Our schedule is so hectic, chaotic, demanding that we need an outlet. We need ways to express ourselves and let our energy out.
+- It wasn't until I got my first son that I wasn't really able to play video games because when you have a child at home, there are infinite other things you should be doing.
+- Ziggler has been around a little longer than I have, but from 2010-12, he and I went at it almost every single week in pay-per-views, tv, live events. We know each other very well. We are two guys who are not your prototypical WWE superstars.
+- Don't let the reasons why you don't accomplish your dreams be because of you or a decision that you made. Do everything that you can possibly do to achieve that dream.
+- You literally can't do any more than your best so that was always my attitude and that is still my attitude, which is to go out there and give it my best every single night.
+- Any type of Royal Rumble or battle royal I always look forward to because I usually get to do some pretty cool things.
+- To be honest, I've always been a guy who looks at everything with a pretty positive outlook.
+- Anything is possible for anybody if they work hard enough.
+- Fox is huge and for WWE to be on Fox, it's an honor for us to be there.
+- My mom means everything to me. She has been such an inspiration in terms of just leading by example. Growing up, I never got into any trouble because I never wanted to upset her - because she did everything in her power for me to have a great childhood.
+- It's always important for people to be able to watch WWE, especially because it's a global product, it's important for people all over the world to be able to look at the screen and see somebody who looks like them doing great things. And in turn, that inspires them to do great things.
+- I tried to imagine how I would have felt as a kid if Shawn Michaels or any WWE superstar would have come to my school and came to my assembly and had given a speech that we would have had to listen to I would have lost my mind.
+- I realized a very long time ago, that I was never going to be the guy who, 'Oh, you look so big, let's push him in the main event and see,' or, 'Oh, this guy's got the best physique ever, let's put him in the main event and see.' It was always going to be the hard way.
+- I can be the guy to motivate people from all different backgrounds and all different walks of life.
+- There are guys who are way taller than me, weigh a lot more than me, are stronger than me, not faster than me but all other aspects people get recognized and looked at and opportunities based on how they look. I've been fighting that battle my entire lifetime.
+- You never quite know what's in store for the Royal Rumble, and I think that's the beauty of it.
+- Do everything in your power to make sure you achieve your dreams.
+- Even coming from Ghana to the United States, my mom and dad did so much to provide a better life for their kids. It was such a huge sacrifice; leaving your entire family - and we have a huge family - leaving them to come to America and have a better life for their kids.
+- I'm a guy who struggled to get to where he is, and only through hard work and dedication have I been able to find my success.
+- What I'm trying to do is reinvent what the face of a champion looks like. I'm out there trying to represent for the people who question whether they can become a champion or not.
+- It's so important to have representation for all races on TV. All people, from all walks of life. So when other people look at the television screen they can see and identify with that person doing great things.
+- A lot of people always say, 'Oh, people down there in NXT' or 'Down there' as if it's... yeah, it's like a farming system for WWE, but they've done such a great job over the years making their own brand.
+- I'm living, breathing proof that you can be anything you want to be.

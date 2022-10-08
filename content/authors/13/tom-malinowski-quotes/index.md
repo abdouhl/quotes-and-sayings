@@ -1,0 +1,106 @@
++++
+author = "Tom Malinowski"
+title = "Tom Malinowski Quotes"
+quotes_len = "100"
+description = "the best 100 Tom Malinowski Quotes"
++++
+- I was elected to fight for the people of New Jersey, to win federal investment in our infrastructure, to strengthen our health care, to address gun violence, and get back our SALT deductions.
+- The respect for the rights of minorities that China's Tibetan and Uighur activists champion would prevent instability that could spill across China's borders.
+- When the Islamic State attacked Christian villages in the Khabur River Valley of eastern Syria in early 2015, it was our airstrikes, guided by information provided by local Christian communities, that stopped the terrorists' advance.
+- Capping our SALT deduction was a deliberate attempt to punish states that value quality public services.
+- I've traveled the world, and I've seen how people marvel at the United States of America, at our democracy, at our ambition to build what so few countries have - a nation defined not by race or tribe or religion or place of birth but by an idea, that everyone is created equal.
+- At the State Department, I oversaw the U.S. government's efforts to get information into North Korea. We funded defector-run radio stations, which had the added benefit of training North Koreans to be journalists.
+- As a former Assistant Secretary of State, Senior Director on the National Security Council, and Washington Director for Human Rights Watch, I hope to bring unique experience and knowledge to the Foreign Affairs Committee.
+- There are norms that preserve some equilibrium between chaos and stability in the world; that keep sociopaths like Assad from undermining that equilibrium, and the sense of security without which the freedoms we enjoy cannot exist.
+- Kim Jong Un, like all totalitarian leaders, wants above all to ensure his survival. He is convinced that a nuclear strike capability is necessary to deter the United States and South Korea from threatening his regime, and to extract concessions that might prolong its life.
+- A computer can process information and engage a weapon infinitely faster than a human soldier.
+- Ethiopia is a major contributor to peace and security in Africa, the U.S.'s ally in the fight against violent extremists, and has shown incredible generosity to those escaping violence and repression, admitting more refugees than any country in the world.
+- Protecting our democracy shouldn't be a partisan issue.
+- To me, greatness does not mean mortgaging the future of our middle class by giving tax cuts to our wealthiest citizens.
+- A transactional foreign policy is not what convinces people around the world to stand with America.
+- Corruption empowers and enriches dictators.
+- We need to protect immigrants who come here seeking a better life, rather than turning our backs on refugees and closing our borders and our hearts to others.
+- An American government that really wanted to stick it to the Chinese Communist Party would be reinforcing U.S. alliances in Asia, instead of threatening to withdraw troops from South Korea and Japan until they pay extortionate rates for U.S. bases.
+- We don't stop Russia or any other country from trying to influence public debate in the United States on any issue.
+- If members of Congress were to vote to allow a military action, they might then share the blame if the mission were to go wrong. So they demand in the abstract that presidents ask their approval for going to war but in practice prefer to let presidents bear the burden alone.
+- No child should be afraid to go to school, and Americans from all walks of life: students, parents, law enforcement, veterans, and law abiding gun owners, are demanding that we act to keep our kids safe.
+- The chance to profit from corruption is why many authoritarian leaders seize and cling to power.
+- We are a country where the ancestors of slaves and newcomers escaping tyranny and violence can rise to the highest positions in the land.
+- I believe in our country's greatness.
+- In America, we have holidays and monuments that celebrate heroes from our past, most of whom have legacies that are settled.
+- The desire to help those struggling abroad gain the freedoms enjoyed here at home has remained a uniquely unifying force in American politics.
+- After leaving the Obama administration, I guess I got tired of pulling my hair out over Trump and the Republican Congress and thought I needed to do something practical about it.
+- When an issue is important to Washington, U.S. officials figure out what leverage they have and use it as assertively and creatively as they can. They don't make excuses.
+- TPP is not a leap of faith; it is an instrument of leverage.
+- Because of the friendship and common interests our two nations share, the U.S. has a stake in Ethiopia's prosperity, stability and success.
+- Qaddafi may rail endlessly about foreign meddling, but the reaction of Western governments clearly matters to his regime.
+- Since the first archer fired the first arrow, warriors have been inventing ways to strike their enemies while removing themselves from harm's way.
+- As a Polish American, I grew up hearing the phrase 'nothing about us without us.' To Eastern Europeans, the vow is a painful reminder of how Joseph Stalin, Winston Churchill and Franklin D. Roosevelt carved up their small countries after World War II, placing them, against their will, under Soviet domination.
+- When I was in government, I urged Congress to require that information about the actual owners of companies registered in the U.S. be disclosed to the Treasury Department, and made available on request to law enforcement.
+- The American people do not want to waste billions of dollars on a wall that won't stop illegal immigration but will make America look fearful and foolish.
+- Our people need significant investments in bridges, tunnels and roads.
+- Congress has a constitutional right to help decide and limit how the country uses its military power. But to assert this right, the legislature must also live up to the responsibility that goes with it, with leaders who are willing to bear it and capable of doing so wisely.
+- I haven't met a single person, Republican or Democrat, who thinks it's just fine for members of Congress to sit on the boards of corporations we regulate, or for presidents to hide their tax returns.
+- America may be a fallible democracy. But when the president sacrifices the national interest for his personal interest, we can show that unlike other countries, we have a remedy.
+- U.S. security is enhanced when we cooperate with China on challenges from North Korea to Iran to South Sudan. Our trade relationship strengthens our economy and supports American jobs.
+- At the State Department, where I oversaw our human rights diplomacy, I often confronted dictatorships like China about their censorship of the Internet, which they justified by claiming they were merely filtering out lies. Our government cannot and should not take that path.
+- Looking back on the Tiananmen movement, it is striking how modest the protesters' demands were: an end to press censorship and restrictions on demonstrations; openness about the income of state leaders; increased funding for education.
+- We already ban foreign donations to political candidates, and we should strengthen that ban with closer scrutiny of credit card donations.
+- I will be working with my colleagues in the Congress to ensure that the federal government devotes as much attention to the domestic and transnational threat of white nationalist violence as it rightly has to all forms of terrorism.
+- Nations have succeeded before in banning classes of weapons - chemical, biological and cluster munitions; landmines; blinding lasers.
+- We need to lower the cost of healthcare and prescription drugs instead of making it easier for insurance companies to charge more for less inclusive coverage.
+- No disarmament regime is foolproof, and it was always understood that Assad likely hid some elements of his chemical weapons production capacity from inspectors.
+- Over the years, increasing partisanship has led many members of Congress reflexively to speak in favor of any military action launched by presidents of their own party while withholding support to presidents of the opposing party.
+- The first shots the United States fired in its fight with the Islamic State were to protect a religious minority: the Yazidis on Mount Sinjar, in northern Iraq. And we did so within days of their first call for help in 2014.
+- A state that calculates that using a weapon or tactic of war is in its interest will generally find a way to do so.
+- Proponents of change within Vietnam's government know their country will be more stable and prosperous if it continues to open up. But principled arguments don't always carry the day.
+- Perhaps we could do without tragedy in art - but what about comedy? Is it a coincidence that so many of the best American humorists have been Jewish and African-American?
+- Putin interfered in our election because he wanted an American president who sees the world as he does.
+- Our infrastructure in America, once the envy of the world, is losing its battle against time, growth, weather, and wear.
+- The United States has to be everything that China under dictatorship is not: well governed, intolerant of corruption, respectful of privacy, protective of truth-tellers and willing to help - rather than bully - the world.
+- We believe in rule of law not rule by decree.
+- As an Asst. Secretary of State, I often urged authoritarian governments around the world not to use emergency powers to defy their legislatures, courts, and laws.
+- Few provisions of the Constitution are more plain than Article 1, Section 9, Clause 7: 'No Money shall be drawn from the Treasury, but in Consequence of Appropriations made by Law.'
+- It is an honor and privilege to serve as a member of the 116th Congress.
+- Let's face it: much of what we truly value in life is rooted in our experience of repression and conflict.
+- The possibility of change in North Korea arose from its greatest calamity - the famine in the 1990s, in which over a million of its citizens died. Until then, according to defectors, most North Koreans were simply unaware that different ways of life or forms of government existed in the world.
+- President Trump has made no secret of his disdain for NATO and his willingness to consider leaving it.
+- The president is entitled to try to persuade Congress and the American people to pursue whatever policies he thinks are needed. But he is not entitled to shut down the government when he fails to persuade us.
+- Political debates in the United States can be untethered from facts, but threats to life focus minds on reality.
+- By the time I joined the Obama administration in 2014, it was widely expected that the president of the United States would raise human rights concerns in just about every meeting with a foreign leader, and meet with activists in countries he visited.
+- I am very determined to stand up against any threat to the basic Democratic values and institutions of this country.
+- Investment in public infrastructure is key to America's greatness and essential to our national security.
+- I have had the privilege of working closely with some of the greatest women in this country. The idea that their contributions would not be recognized at the same level as a male colleague is abhorrent to me. I will do everything in my power to help right this wrong, and finally achieve pay parity in America.
+- Just as some Republicans despise John McCain for calling out Donald Trump, some Democrats could never accept him unless he became one of us. And he wasn't: he voted with the NRA; supported the Iraq War; elevated Sarah Palin.
+- TPP will require all countries that join the agreement to conform their laws and practices to fundamental labor rights and principles. Vietnam will have to make the necessary reforms or miss out on the agreement's benefits.
+- Russia's interference in the United States' 2016 election could not have been more different from what the United States does to promote democracy in other countries, efforts for which I was responsible as a State Department official.
+- We learn to laugh from the cultures that suffered most - from the Russians, Poles, and Irish - not from Sweden or France (the French go for Jerry Lewis - enough said).
+- You can usually figure what Russian President Vladimir Putin is doing and why by noting the actions and values he falsely projects onto others.
+- Words matter. Words can be a fire to the gasoline of disturbed minds.
+- I pledge to put patriotism over party, and commit to the hard work of real reform over cheap political wins, quick fixes, and empty promises.
+- A robotic arms race seems inevitable unless nations collectively decide to avoid one.
+- The president has immense powers, but he cannot spend money unless we, the people's representatives in Congress, have agreed that he can.
+- In a totalitarian state like North Korea, a group of neighbors gathering once a week to watch the latest episode of a forbidden soap opera is committing a political act, and forming, with the market traders who deliver them this treasure, a rudimentary civil society.
+- Protecting those with pre-existing conditions was one of the greatest health care reforms in our country's history and must be protected at all costs.
+- Ever since the end of the Cold War, it has been our paramount interest in Europe to strengthen NATO and to extend it - an effort I was part of when I served in the State Department and the NSC in two administrations.
+- I recognize that most Americans are tired of U.S. troops fighting in Afghanistan after more than 18 years of war. I am, too.
+- The House Foreign Affairs Committee can and should become the principal institution in Washington exercising foreign policy oversight and serving as an alternative voice for America to the world. I hope to make a significant contribution in that effort.
+- I am categorically opposed to BDS, because it seeks to delegitimize the state of Israel, opposes a two-state solution to the Israeli-Palestinian conflict, and encourages anti-Semitism.
+- Any strategy to promote democracy and human rights must have the fight against corruption at its heart.
+- The advancement of democracy and human rights is as serious a business as anything we do in our foreign policy and cannot be treated as an afterthought in our relations with great powers.
+- We were right to seek practical cooperation with Russia and to encourage its integration as a respected power into global institutions.
+- It is utterly wrong for a president - any president - to shutter the government of the United States when he can't persuade the Congress and the American people to give him what he wants.
+- Arresting opposition leaders and restricting civil society will not stop people from protesting, but it can create leaderless movements that leave no one with whom the government can mediate a peaceful way forward.
+- It is deterrence that has prevented the use of nuclear weapons by all states that possess them since 1945.
+- An administration that really wanted to win an ideological contest with the Chinese Communist Party would stand up for human rights consistently, rather than calling journalists anywhere 'the enemy of the people.'
+- The United States and Ethiopia have years of strong partnership, based on a recognition that we need each other.
+- In principle, there is nothing wrong with the United States negotiating directly with the Taliban.
+- The rule of law that China's dissidents ask for is important to U.S. businesses investing in China as well.
+- Fighting corruption by improving financial transparency may be one of the most effective ways of promoting liberty around the world.
+- I'd much rather face the voters defending what's right and true than to have to explain selling my country and my soul to Donald Trump.
+- Leading with its values gave the United States a sense of purpose in the Cold War.
+- Anyone who is willing and able to put their life on the line to protect America should be honored, not punished.
+- In a sense, the central problem in U.S.-Russian relations has been a form of psychological projection. Putin views foreign policy as a means of enhancing Russia's - and his regime's - security, power and wealth in a zero-sum competition with other states. He assumes Americans are the same.
+- With no guillotine, 'A Tale of Two Cities' would have been a travel guide.
+- Members of Congress concerned about human rights in Vietnam are right to maintain a healthy skepticism about its government's intentions.
+- No alliance in history has done more to prevent war, and no alliance is more rooted in the values America champions, than NATO.

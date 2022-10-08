@@ -1,0 +1,55 @@
++++
+author = "Joely Fisher"
+title = "Joely Fisher Quotes"
+quotes_len = "49"
+description = "the best 49 Joely Fisher Quotes"
++++
+- I was a backstage kid. I was in the wings looking out.
+- At this point, I wouldn't be able to digest meat, and I don't like eating things with faces.
+- Skiing makes me feel great, and it gives my legs such an incredible workout.
+- I like to be challenged.
+- My mom says it's an American version of the French name Jolie. My dad says I'm named after Al Jolson.
+- For some people, it's like I can't be a good actress because I grew up with a silver spoon.
+- I realized I am living an amazing, gorgeous, large life. I want to share this, and that includes the good, the bad, and the ugly.
+- People really feed on someone else's tragedies or problems.
+- When I had arrived in Italy, I had my CD Walkman and about 100 CDs. The song that spoke to me was Kate Bush's 'The Man With the Child in His Eyes,' from 1978.
+- You want the best for your kid, but everybody's career is completely different in this industry.
+- I am still learning every day not to watch other people's careers and compare.
+- I was like a race horse, just trying to get into the world.
+- I stay in my own little zone, and that's good for me.
+- I have so much to live up to as well as live down.
+- I feel like crying and sadness has brought an actual change to the shape of my mouth.
+- I dive fearless into things.
+- I'm obsessed with cooking shows, even though they make everything look so easy when it isn't.
+- I realized that I've always been a storyteller.
+- I don't believe in depriving myself of any food or being imprisoned by a diet.
+- I definitely have a Fisher voice.
+- I am the mother of five children.
+- But unfortunately, when you have a kid, you sometimes eat everything they leave behind. So far today I've had some of her leftover pancakes with peanut butter.
+- They say seven stages of grief. I think it's more like 77.
+- My sister Tricia Leigh and I vow to be whatever our niece Billie needs us to be.
+- I was raised with Eddie Fisher as a father and Connie Stevens as a mother.
+- I knew from the time I could walk that I wanted to be an actor.
+- In 1987, when I was 19, I was studying musical theater at Boston's Emerson College. My sister, Tricia Leigh, told me about a summer acting retreat in Italy. Mom paid, so off we went.
+- I love work, but no job could ever compare with the job of being a mother.
+- My mom has this great skiing event in Jackson Hole, Wyoming, every year for a local charity.
+- It's challenging, but you have to at least try to eat right and exercise.
+- I'm sure that my mom would have been happy with any path I chose.
+- I loved psychology and I loved history.
+- I am vegetarian, though, and so is my family.
+- I love to cook. I make an award-winning turkey chili.
+- I never saw myself as much of a storyteller.
+- What I like to think I've done is try to teach all women and my three female daughters, to teach them to rise above stuff, to find things that move you, to bring humor and laughter to everything that you do, and to realize that no other person defines you. Find what's great about yourself, and band together as women.
+- I didn't finish college, which is really weird because they awarded me the Alumni of Distinction recently.
+- I was 2 when my parents - actress Connie Stevens and singer Eddie Fisher - divorced. I was too young to experience the pain of their split, but it was rough growing up with a father who wasn't there.
+- I've done a couple of Broadway shows and sang before I did any acting.
+- I always thought that I would have a recording career.
+- I've never been a waif; I have a womanly figure and always did.
+- I'm a storyteller, and everyone in this family expresses themselves through writing to get through life's milestones.
+- I'm always on the quest for something delicious and healthful.
+- I still get surprised that people don't know that I sing.
+- I just believe that whatever you put into your system you're going to see on your face and your body.
+- Sometimes I hid my family connections.
+- I think that the best way to celebrate the other people in my family is to go on.
+- I took up French boys and wine and I studied psychology.
+- I was up until all hours of the night, listening to stories, meeting great old comedians.

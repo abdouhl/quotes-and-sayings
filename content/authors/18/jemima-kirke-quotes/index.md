@@ -1,0 +1,30 @@
++++
+author = "Jemima Kirke"
+title = "Jemima Kirke Quotes"
+quotes_len = "24"
+description = "the best 24 Jemima Kirke Quotes"
++++
+- I come from a family of all women and one boy, my brother. We're all women and we're all precocious and opinionated and like to have fun and we always had friends in the house and we were always, like, half-naked.
+- I don't have that drive to be in this field, climbing up, doing bit parts in movies to make a big movie. But I'm lucky I get to also do acting - it's fun. I should probably just take an acting class on the weekends - that would be enough for me.
+- I go to Florida sometimes for vacation. I actually really like Florida. It's a weird place, it's surreal. It's so close, but you feel like you're in another world or on an island.
+- I have a handful of tattoos that I really want to put on people that I can't find anyone to let me give them to.
+- I think I did a lot of really stupid stuff really quickly in my twenties and that sort of led me to want to sort of just relax a little bit. Relax a lot.
+- I've never been one to just do what I'm told. I don't say that necessarily with pride, it's just something that has gotten me in trouble before.
+- Being humble and sweet is the hardest thing you can do.
+- I have to remember that for the most part people will see me for what I do, not what I say I do.
+- I want lots of kids and I want a garden and I hope to stay married to my husband. I hope to be working in some way that fulfils me.
+- Acting is secondary - I don't feel like it's going to stick around because it's not something I want to do forever. My art has always been my top priority and I have far more experience in that field than I do in film.
+- That's what I paint, I paint people. They're portraits, but you won't always be pleased with the way you look in my paintings. Which is fine, I guess. Unless you're buying it, and it's of your kid!
+- I think Damien Hirst is hilarious. And I think he's a true artist. He's not hilarious first; I think he is a real artist, and I also think he's got an amazing sense of humor.
+- I know acting is not impersonating, but I'm good with impressions. I can do impressions of people I know, and people I've been, and roles that I've acted before.
+- I don't have the passion for acting that actors might have.
+- People are confusing me with a good actor when I'm just a good mimic. When someone asks me to play a nun from the fifteenth century, you'll see what I mean.
+- Portraiture keeps me humble. It's simple and straightforward. There is nothing more interesting I can make up than the figure sitting right in front of me.
+- By the way, I'm funniest when I'm not being funny. I'm better to laugh at than with, pretty much.
+- I'll never have a best friend who is a man. It just doesn't work that way. So many times young girls will be like, 'I'm a guy's girl.' And I'm like, 'No, you're not. There's no way a man can understand you like a woman, and you're a guy's girl because you're threatened by other women.' I was like that.
+- I've been painting and making things since I was little.
+- I've had a baby. I've had an abortion.
+- But I'm interested in the Barnes Collection in Philadelphia. I hear there are some of the worst Matisses there. I like seeing bad art by good artists. It's inspiring. I'm able to identify with them. It makes them real.
+- When you're literally carrying a child you can cut back on bad habits.
+- I mean, I have worked out. I've always worked out a little, you know, when I felt it was, like... time.
+- My opinions of which of my works are good are vastly different than other people's. There is one that I'm obsessed with but I swear... no one else has ever even commented on it. So I'm a bit shy to draw attention to it.

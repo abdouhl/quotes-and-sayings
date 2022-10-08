@@ -1,0 +1,33 @@
++++
+author = "Norbert Leo Butz"
+title = "Norbert Leo Butz Quotes"
+quotes_len = "27"
+description = "the best 27 Norbert Leo Butz Quotes"
++++
+- I make decisions quickly.
+- I am the most successful unsuccessful actor in New York. And I guess with that, maybe apparent only to myself, there started to be a very subtle but unmistakable whiff of entitlement, bitterness, jealousy. I was not respecting the work.
+- Sam Shepard is - I didn't tell this to Sammy, but if I had to point to one artist that made me want to do this for my life, it's Sam Shepard.
+- I got my Actors' Equity card officially by playing Nana the dog in 'Peter Pan' at the Alabama Shakespeare Festival. That was the first show I did as a full-fledged, dues-paying member; I earned points in my MFA program, then went into the company after I graduated.
+- I hate sitting around a table and talking about what a play might mean. I'm the person who's always like, 'Can we get up on our feet and just do it?'
+- I survived in high school by working at Kentucky Fried Chicken and made my way up to assistant manager. I was surviving high school and college with that job.
+- I was in the original cast of 'Wicked', and that got a bad review in 'The New York Times,' and it's the most successful thing that's ever been put onstage.
+- I've sort of left the theater just for little shoots here and there - little one-off series or small roles in films or whatever.
+- I've always been drawn more to film. But 'Bloodline,' to me, feels like a 13-hour piece of cinema. And the great thing about Netflix is you get to be almost like an editor. You choose how much of the narrative you want to watch at a time, which makes you complicit in the story.
+- I always loved soul music. My dad was a very religious guy, and we would listen to a lot of gospel and soul music. My college girlfriend introduced me to musicals. She listened to them, so that was the first time I heard 'Dream Girls.'
+- I actually have seven brothers in real life, and we're all very close in age. We basically go no more than two years between any of us.
+- If you are opening a play, a play that's really about something, a play that's really about ideas, you have to find a way to sell that play.
+- Sometimes, you don't know what's going to happen to your character until the night before you shoot the scene. So, sometimes, you get a great big surprise at the very last minute, which is scary sometimes. You don't have a whole lot of time to prepare.
+- Something about being surrounded by water has a really calming effect on me.
+- I remember really getting into 'The Wiz' and an old musical called 'Purlie,' which Melba Moore sang. I liked those roof-raising shows because I connected deeply with the gospel aspects of those musicals.
+- I love it when people take contemporary songs and find a narrative or a theatrical way of telling it.
+- I have an acting crush on Gene Hackman; I have an acting crush on Tommy Lee Jones. Gary Cooper. Jimmy Cagney. Michael Gambon. Simon Russell Beale.
+- If you individualize an audience, it helps up the stakes of your responsibility to that audience.
+- I'm a pretty avid reader, but I missed feminism in college. I did take an intro course where I read Mary Wollstonecraft, but I didn't read a lot of the seminal writers. Then I had two teenage daughters and was reading books on development and different issues.
+- I have 10 brothers and sisters.
+- I used to do a lot of repertory theater. You're playing different roles all the time, and I love that.
+- I don't know if Jesus said it in the Bible, but someone said that 'the love of money is the root of all evil,' and I do think there's a correlation between the ambition that a lot of people have, in terms of financial remuneration, and the loss of core values.
+- Most of my work in New York has been on new musicals. And all through the preview process, they throw you new songs, new lyrics, new choreography, new scripts; you're constantly getting new material. You might get it in the morning and put it in the show at night. It happens every single day, so those muscles are pretty toned.
+- I've never seen 'Mad Men.' I've never seen 'Breaking Bad.' I've never seen 'The Sopranos.' These sort of seminal shows.
+- I have never been too concerned about things you're supposed to be concerned about as a singer. Pitch is important, and so is sounding good. But I think there's something underneath all that.
+- I've been swimming recreationally about five times a week for years just at the Y.
+- It's thrilling to be onstage and to not know, literally, what the next moment is going to bring. To just submit to the not-knowing-ness of it.

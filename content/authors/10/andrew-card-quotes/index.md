@@ -1,0 +1,19 @@
++++
+author = "Andrew Card"
+title = "Andrew Card Quotes"
+quotes_len = "13"
+description = "the best 13 Andrew Card Quotes"
++++
+- Don't believe everything that you read in the newspapers.
+- Victory is the most important aspect in Iraq, because victory in Iraq will help us have victory in the War on Terror.
+- Victory is the only option. And we will be victorious in Iraq.
+- Well, paycheck protection is an important ingredient for a successful campaign finance reform measure.
+- There are over 100 entities in the federal government that have something to do with homeland security.
+- You shouldn't presume that all quotes that are in a magazine or a newspaper are accurate.
+- The Oval Office symbolizes... the Constitution, the hopes and dreams, and I'm going to say democracy. And when you have a dress code in the Supreme Court and a dress code on the floor of the Senate, floor of the House, I think it's appropriate to have an expectation that there will be a dress code that respects the office of the President.
+- The top priority is leaving no child behind. We want accountability in the system, and we want schools to recognize they have a responsibility to teach students.
+- Scholarships that allow students to get a good education are important, but first we want to measure the progress that the schools are teaching our students, we want to hold them accountable for the progress, we want to hold the schools accountable for teaching the young people in America.
+- She's leaving when the president has one of the highest approval ratings on record. From here, it can only go down. And when it does, you know who they're going to blame. They're gonna blame Andy Card!
+- Kyoto was a flawed process. There isn't one industrialized country around the world that has ratified that treaty, and so that is a non-starter.
+- My children and grandchildren loved the secret servicemen and women that served us. I was honoured that they thought I was important enough to protect.
+- The U.N. can meet and discuss, but we don't need their permission.

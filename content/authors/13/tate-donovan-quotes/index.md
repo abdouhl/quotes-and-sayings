@@ -1,0 +1,23 @@
++++
+author = "Tate Donovan"
+title = "Tate Donovan Quotes"
+quotes_len = "17"
+description = "the best 17 Tate Donovan Quotes"
++++
+- When you first get fame, you're so insecure that you just become a ding dong.
+- When I was growing up, it was so embarrassing to be from Jersey.
+- Normally, if you do a television show, it's 25 episodes. Your year is kind of shot, you know what I mean?
+- I'm a huge David Lindsay-Abaire fan. If I could write, I would want to write like him.
+- 'Argo' was a great script from day one. I don't think we knew that it was going to be such a success.
+- My brother was a big marathoner. He was a great collegiate runner at Beloit College. He won his conference's races, and he did tons of marathons. I would go out and run with him every once in a while just to hang out with him.
+- I can't run on treadmills; they drive me nuts.
+- 'Fargo' is one of my favorite movies.
+- When you achieve a certain amount of success, you want to be doing something else.
+- I have been able to do a lot of great things during my career!
+- My parents took me to a movie, and I remember wanting to sit apart from them for some reason. I wanted to be a big boy or whatever. I remember looking up on that screen. It was a movie about medieval knights. All I remember is saying, 'I want to do that. I want to make movies.'
+- I was not the pampered baby, no. I'm five years younger, and my parents were actually very strict with me, more strict than with the other ones.
+- A career in showbiz is like a distance run. You have to have patience and pace yourself.
+- Why do I run? It's the best form of exercise. It's totally the core of being in shape. I really feel so good - anytime after the first mile. You start fantasying. You start thinking about things.
+- I was on 'The O.C.' and had a small part, which wasn't very challenging. I was a bit bored, so I started shadowing directors and they finally gave me a shot. From there, it led to directing other television shows. I am trying to direct a feature film, so we'll see what happens.
+- You just can't help but sort of think that your life and your career are going to go straight up, up, up.
+- Working with the cast of 'Glee' was inspiring. To be around a group of kids who work so hard and love what they do is so refreshing.

@@ -1,0 +1,78 @@
++++
+author = "Aisling Bea"
+title = "Aisling Bea Quotes"
+quotes_len = "72"
+description = "the best 72 Aisling Bea Quotes"
++++
+- In this modern world, where we have filters to make us look as nice as possible, it's good to take off the filter and go, 'I could look stupid here.' You'll learn something and be better for it.
+- When you see people getting involved in Comic Relief, especially in tough times or times of recession, that's very positive.
+- Up to the age of five, I wanted to be a builder. My neighbour, a builder called Paddy White, would come in for a cup of tea with my mother. I'd assemble all the pillows together at interesting angles, thinking he would spot my talent at a raw young age and take me on as an apprentice.
+- Brexit is not ideal. I'm famously not a Brexit negotiator, but relations between Ireland and the U.K. have been getting stronger, and a big part of that has been trade and feeling like sister countries within the E.U. I don't think it will affect the 'vibe' of relations, but it will have a significant effect on trade and business.
+- Northern Irish people tend to have this sharp, dark sense of humour.
+- Put everything into it if you're asking people to part with money for it. That's the way I feel about it.
+- My on-set, keep-warm jacket is a Patagonia, and they make sure the people who make their clothes are paid fairly, along with a load of other great stuff and initiatives. They're a business, but they put their money where their mouth is in terms of caring and responsibility.
+- In America, they like to think, 'Do as many things as you can.' That's what I like about being here. 'You're a polymath! We call you multi-hyphenates!' I like the idea you're allowed work as much as you can.
+- I love L.A. Some people arrive with big expectations and are inevitably disappointed, but I can audition in the day, which can be gruelling and lonely, but then gig and be creative in the evenings.
+- Those two years at drama school were nutty and weird. I didn't love it at all - I loved my class; I have so many great friends from that time - but I learned less. I just learned more of what I didn't like.
+- I remember, when I got my first period, I was almost afraid to tell me mother, who's quite an open, loving person. But I felt really weird; the chat just wasn't there.
+- I trained in London as a classical actor, but you've no idea what way your career will go.
+- No-one posts photos of themselves on Instagram when you're eating spaghetti hoops out of a tin going 'Why?'
+- I had a bad break up at university - you know, when your heart breaks for the very first time, and you think, 'I must leave this island,' as if it had never happened to anyone before. I said 'OK, I'll go to England,' and it was the best decision I ever made.
+- My father's death has given me a lot. It has given me a lifelong love of women, of their grittiness and hardness - traits that we are not supposed to value as feminine. It has also given me a love of men, of their vulnerability and tenderness - traits that we do not foster as masculine or allow ourselves to associate with masculinity.
+- Nothing chills out the soul like the comfort of tea and a potato.
+- Unfortunately, 'How You Remind Me' is the song most perfectly suited to my voice.
+- Repealing the Eighth Amendment is about women who don't want to be pregnant. It's not about a certain type of woman, a certain age of woman - we all known sisters and mothers who have chosen to go on with a pregnancy and those who haven't.
+- When I'm in L.A., I'm part of the Irish community out there, and I just love it.
+- Everyone has material about cats, and everyone has material about family and what they think about their government or childhood.
+- You can't fake comedy. You can't make it look beautiful or put an interesting bit of music on in the background: funny can only be funny if you're funny.
+- No matter what your views are on abortion, the Eighth Amendment in the Constitution is a very cruel, cruel law which benefits no one.
+- I love Alain de Botton and listen to his little 'School of Life' YouTube vids as I do the dishes.
+- My job is to make people laugh.
+- I've always hated exercise, but because I've had problems with my back, I now do Pilates, and I walk a lot.
+- I'll be honest: I've never wanted to do anything other than perform.
+- When I was growing up, I idolised my father. I thought his ghost followed me around the house. I had been told how he adored me, how I was funny, just like him. Because of our lovely Catholic upbringing, I secretly assumed that he would eventually come back, like our good friend Jesus.
+- Any child who has lost a parent probably knows every single photograph in existence of that parent.
+- Americans like workers, people who slog. I love working.
+- I love BareMinerals pink blushers, Smashbox eyeshadows and eyeliners, and Trish McEvoy mascara.
+- Apparently, my father was funny. I didn't really know him, but people have theories that the gag-smith gene trickles down through the blood amongst other terrible traits like a big nose and a temper.
+- I grew up in rural Ireland; we only had a few TV channels and had never even heard of sketch shows, but it was completely natural for me to tell jokes and stories.
+- If y,ou do buy shoes from wherever you like wear the hell out of them, and go to your cobbler when the heels go and get them reheeled for a few quid.
+- I know that the harder you work, the more you learn, the more connections you make. You've just got to be prepared to keep putting yourself out there. You have to make it happen.
+- My father died when I was three years old and my sister was three months.
+- When you go to a restaurant, sometimes you want to go to Heston Blumenthal's where you hear the sound of the sea while you're eating one tiny thing for a hundred quid. And then sometimes you just want toast. You just. Want. To eat. Toast. Sometimes you have to be okay with the fact that in terms of comedy, I'm just like, maybe, 'chips and a side.'
+- I buy so much stuff from charity shops.
+- I am too fat and tall to be a jockey. This is not self-deprecation - I realise that I am neither too fat nor too tall - but I am too fat and too tall to be a jockey.
+- An hour show panics me a lot less than five minutes at the O2. How do you put yourself across and make sure people have a good time in five minutes?
+- There aren't as many women in my industry in comedy as there should and could and hopefully will be, but it is interesting growing up watching a woman in a male-dominated industry and kind of, like, plowing ahead.
+- I can't play the guitar, so the thoughts of playing one onstage at a festival makes me quiver, but I've been blabbering away in front of people since I was a child, so talking for a living isn't the most daunting thing to do.
+- I love the garishness of the '90s - the giant platform shoes, the sparkly butterfly tops, the chokers.
+- I've never once in my life had a tan - I'm basically a ghost!
+- Always use sun protection - my favourite brand is Image Skincare.
+- You change things by focusing your energy on doing your job well.
+- It's a difficult thing to be in fashion or popular - it's all so fickle.
+- I've got a short torso and long legs, so I tend to wear longer tops and things that sit on my hips.
+- There was a stage in my career, especially with standup, where I felt, because I didn't know why I was doing well, that anyone who would tell me anything; I was sort of like, 'What did they say? Yeah, I'll take that advice.' Now I'm a bit more careful who I choose to listen to.
+- Your first love is your first love. It cannot be analysed, explained, nor forgotten.
+- Some people get into comedy because they love comedy. Then there are people who have a message and have realised that if they can be funny, maybe people will listen to it. And then there are people like me, who are just addicted to making people laugh.
+- Songs with simple lyrics really take off in Irish nightclubs.
+- You can use your womb if you want - it's the most beautiful thing to do if you want - but it's not our only reason to be put on this earth.
+- Don't be afraid to look silly. You are only holding yourself back if you are afraid of looking silly or failing.
+- Some people admire the aspirational rock star figures whose biopics make it to TV, the people they watched as kids and made them want to play football for England. For some comics, it is often the Doug Stanhopes and the Joan Rivers.
+- I went to see Billy Connolly do two hours with no break at the Apollo, with Parkinson's disease, during the winter, and it was one of the most important gigs I have seen in my life.
+- In karaoke, you don't choose the song; the song chooses you.
+- I like the more community element of comedy. And I hate people pitting other people against each other. Audiences are always judging you, but when you're being judged for a competition, it just takes away the joy of the job.
+- In the U.K. and Ireland, crowd-work is a big thing. It shows you how funny someone would be if you met them off-stage. Americans don't care if you're funny off-stage. They want to see the writing; they want to see the work you did.
+- Success is never going to come in the way your teenage self sees it.
+- Please note when you watch a play, you can't pause it and go to the loo or shout into the kitchen for a tea. Learned that the hard way.
+- For me, people in Ireland who became actors would have to go through the Billy Barry's in Dublin.
+- One year, I did 10 or 11 pilots of TV shows that never went anywhere.
+- For ethical fashion, I really like Reformation. It's so fashionable - no hemp trousers.
+- I love my cobbler, and he fixes my soles and soul for me.
+- If I told my 16-year-old self that, at 34, I'd have no kids and not be in a movie in America, I wouldn't think I was still successful.
+- Getting a laugh was what I'd been doing with my family and at school since the age of three.
+- I wear a lot of blacks and greys, then put in splashes of colours, but I like wearing strong shades like reds and neons, too.
+- Things are only daunting if they are very far away from your main skillset.
+- Most of my world is in London, and I feel like this is where I went mad and ended up finding myself.
+- People who succeed in my job are people who are not afraid to look silly.
+- Clare Henderson creates the most beautiful delicate prints and paintings.
+- While we talk about successes, I think it's also important to talk about all the failures. Like, for every Netflix special, there's things that don't work.

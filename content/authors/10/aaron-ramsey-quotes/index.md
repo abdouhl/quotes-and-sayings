@@ -1,0 +1,95 @@
++++
+author = "Aaron Ramsey"
+title = "Aaron Ramsey Quotes"
+quotes_len = "89"
+description = "the best 89 Aaron Ramsey Quotes"
++++
+- I always had games on Saturdays as I was growing up.
+- I grew up watching the Olympics and did some athletics for my school, winning the Welsh pentathlon championship.
+- It's a massive difference when you play in front of full stadiums; you can sense the buzz around the players, and it helps us get that extra one or two per cent that may be the difference in games.
+- When Bale first started at Tottenham, they were struggling to win whenever he played at left-back, but it is unbelievable how quickly things can change in football.
+- I'm happy to be in the centre for Wales - that's my favourite position and where I play my best football.
+- You would want to play in every game if possible, but I am realistic.
+- I started off playing rugby league as well as union. I switched between fly-half and wing, but I preferred to play fly-half. I liked to be at the heart of everything. I liked to be involved.
+- You have to take each game as it comes and not get ahead of yourself.
+- We're professional footballers, so we have to go out there and perform as best we can and try and get the results that we want.
+- It's important to take your mind off football; otherwise, you become too obsessed, and you look into things too much.
+- Ever since I was a boy, I have wanted to be a professional footballer and to captain my country one day.
+- I give everything when I'm on the pitch. When I'm at the training ground, working in the gym or whatever, I always give everything I've got.
+- Nothing's in my head when I'm out there; I'm just trying to have fun on the football pitch.
+- All I want to do is improve as a player.
+- I am not shy.
+- I am a central midfielder, and that's where I like to be.
+- I am not the life and soul of the camp, but I do speak a lot throughout the team and to everyone.
+- I am quite a down-to-earth person.
+- The only way you can get match fitness is by playing games.
+- I hate being in the gym.
+- I'm an Arsenal player, and I want to remain an Arsenal player.
+- The main factor in joining Arsenal was meeting with Arsene Wenger and to hear what his plans were for me.
+- I know what I'm capable of doing. I just want to stay fit and healthy and let my football take care of itself.
+- I've always been passionate about animals.
+- One day, I would like to go over to Spain to play just to see what it's like and to experience that.
+- I was a good reader of a rugby match. I could kick, too.
+- Manchester City are a big team, and Chelsea are a big team.
+- I'm a player who always gives 100 percent, regardless of what's going on.
+- We have to take every game as it comes.
+- Arsenal have a history of bringing through youngsters, giving them opportunities, and turning them into world-class players.
+- I used to pretend to be Ryan Giggs.
+- I had to grow up quite quickly.
+- I much prefer playing in the centre of the park; that's where I feel comfortable.
+- I know my qualities.
+- As a midfielder, you have to have vision. If you see an opening that might create an opportunity, you have to believe in yourself and go for it; a 40-yard pass or an eye-of-the-needle ball. You have to feel you are going to make it. That's the way I play. I have a picture in my mind, and I go for it.
+- I've said it once: I would love to someday play in La Liga at one of the greats. I see their league each week. It suits my style.
+- I'm not one of those people who goes home and has to put football on the TV straight away or has to watch Sky Sports News.
+- All I have ever wanted to do is be a professional footballer.
+- To win the FA Cup - scoring the winner in the 2014 FA Cup was very nice.
+- Having the chance to win a gold medal doesn't come around very often.
+- You have to be on top of your game, train hard every day, and try to convince the boss throughout the week that he should put you in the team.
+- I get the normal stats, like tackles and pass completion and high-intensity runs. I get them after every game to see how similar they are to every game and to make sure I'm hitting the targets - or not too far away from them.
+- I need to be playing well, be involved in the game, and taking matches by the scruff of the neck.
+- It's nice to have it recognised that I'm doing well and to have people saying good things about me, but I try not to take too much interest. I just try to focus on my own game and what I need to do to improve.
+- It's unbelievable what the rewards are like with being a footballer, but I'm not stupid - I don't go around flaunting it.
+- It's always nice seeing a stadium when it's full, and as players, that's what we want to be playing in front of.
+- It's always been something I've wanted to try and do, to take Wales to a major championship.
+- Competition is to be expected at a club like Arsenal.
+- Everybody talks about the FA Cup being special, and now I know from personal experience it is really special to be involved in.
+- Obviously, I was disappointed to lose the captaincy. I was very proud to be captain of my country.
+- I was playing first-team football at Cardiff at 16.
+- In all ways, I want to be better in all of these things that top midfielders can do.
+- I drive a Mercedes SLS, which is fun.
+- On away trips, I'll listen to my iPod sometimes or watch some TV, see what's on of a Friday or Saturday night - I'll usually save the TV box sets until I'm at home with the wife.
+- When you're wide, you're taught to try and get in at the far post so the ball doesn't go straight across, but from that central position, you can use your instinct where to go.
+- It's quite strange looking down the list of players who've won the young player award in the past and then thinking I'm in there too now. There's some great names like Ryan Giggs, Craig Bellamy - and I can't miss out Chris Gunter - and it's a big boost to be included.
+- All I want to do is play football.
+- I think there's always pressure at Arsenal to win trophies - it's nothing new - and to us, as players, we know what we are capable of doing.
+- I came from a rugby school and rugby nation, but I fancied giving football a go, and luckily, it paid off.
+- I went to many games with my dad, Kevin, and looked up to the players. It's surreal that now young fans are looking up to me.
+- I watch a lot of golf, but I'm only a fair-weather player.
+- Central midfield has been my main position, but I'll play wherever the gaffer wants me.
+- I stay away from desserts, but every now and then, I have a sticky toffee pudding or a cup of tea with some biscuits.
+- I'm quite reasonable and level-headed.
+- At the beginning of the season, you're still getting your fitness levels up, and those first few games are quite tough.
+- I'm not one that is the life and soul of the party, but I do speak up when there is something to say.
+- The worst position you are in is when you are on the medical bed, and you can't get out on that training pitch.
+- The Premier League used to be two teams going for the title, but it has come on a long way since then.
+- Every time I step on the pitch, I feel proud to play for my club and my country, so to get to show this pride through my boots has meant a great deal to me.
+- I know I am not a screamer and a shouter, and I won't change the way I am.
+- Hopefully I can be one of the best midfielders in the world. That's what drives me on: to try and achieve that and to try and go on and win many things.
+- When you haven't got the ball, while we're defending, sometimes I am not always where I need to be.
+- I want to be the complete midfielder, someone who can defend and attack. Steven Gerrard is someone who's done that very well over the years, and he is someone I am trying to emulate.
+- You need to stay in that one position to get consistency that way. Different things are going through your mind when you are playing out right to when you are playing through the middle, so you can't get through that routine of where you want to play.
+- I want to keep on improving as a player and become the best... one of the best midfielders in my position in the world.
+- I try to give my best for the team, help the team, and try and go out there and play the best I can for myself as well.
+- Being a midfielder, I need to get up and down, whether it's to get back and defend or get away from my opposite number. Extra effort in training makes all the difference.
+- I've always been able to get into the box, but in the past, I'd been very rash in my finishing; I wasn't clear with what I was doing in the final third. When it came to shooting, I was very rushed. I wasn't hitting the ball cleanly.
+- Winning just makes you more determined to go on and do more.
+- When I was in school with my friends and stuff, you always used to put yourself in the situation of footballers of the time and pretend to be them.
+- I think a top-class midfielder needs to be able to tackle, get up and down the pitch, pass, create opportunities, and score goals. That's why I try to do everything; that's what I judge my game on.
+- I live for football, and my real passion is just to go out there and express myself and show everybody what I'm capable of doing. It's what I've always known since I was a kid.
+- I'm a very motivated guy.
+- You have to give 100 percent in the Champions League, as you're up against the biggest teams.
+- There's always pressure on Arsenal to go out and win games and win trophies.
+- As a kid, I was always pretending to score the goal in the FA Cup final, and I managed to live my dream.
+- When you're playing, it's important to focus 100 per cent on what you're doing.
+- Arsene Wenger gives youngsters opportunities, and if he thinks that you're good enough, he'll play you.
+- I like to be involved as much as I can in the game, and in the middle, you're definitely the heartbeat of the team. When you're on the right, you can go minutes without seeing the ball, and that's a long time when you're out on the pitch.

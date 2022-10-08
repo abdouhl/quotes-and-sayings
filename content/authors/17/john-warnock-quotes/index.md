@@ -1,0 +1,13 @@
++++
+author = "John Warnock"
+title = "John Warnock Quotes"
+quotes_len = "7"
+description = "the best 7 John Warnock Quotes"
++++
+- Without television and mass communication, that knowledge wouldn't exist. So I think it actually has the possibility of turning people into more understanding and more empathetic people.
+- What I try to do is factor in how people use computers, what people's problems are, and how these technologies can get applied to those problems. Then I try to direct the various product groups to act on this information.
+- I'm a pretty happy camper. Look a little more like Paul Newman, maybe. Haha.
+- I would never speculate on the limit. Every time you speculate, you're way too conservative.
+- We started the company out of frustration with the employer that we had because we were building great stuff and there was no way that this stuff was ever going to get into the hands of the people who could use it.
+- I have seen that technology has contributed to improved communication, that it's contributed to better health care, that it's contributed to better food supplies, that it has contributed to all the basic human needs.
+- The personal contact is a personal thing. The fact that some people don't know their neighbors, I don't think that technology is at fault. You don't lose anything with technology. You gain other avenues of understanding.

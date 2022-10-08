@@ -1,0 +1,62 @@
++++
+author = "Neil Sedaka"
+title = "Neil Sedaka Quotes"
+quotes_len = "56"
+description = "the best 56 Neil Sedaka Quotes"
++++
+- 'Love Will Keep Us Together' was a combination of three different singing styles - Al Green, the Beach Boys, and Diana Ross. I loved all these people, and I put their singing styles together and wrote that tune.
+- I've always enjoyed seeing the world through the eyes of my grandchildren.
+- These are some of my awards - an Ivor Novello, a Variety Club Silver Heart, and a Lifetime Achievement Award from the Songwriters Hall of Fame. I also have a star on the Hollywood Walk Of Fame and a street named after me in Brooklyn where I used to live.
+- There have been 700 or 800 songs I've written over the last 60 years, as I went through different periods of writing. I listen and marvel at how different they are and how they still stand up. They are very well done, if I must say so.
+- I have a Baldwin in my L.A. apartment, a Steinway in my New York apartment, and a Kawai plexiglass grand piano in storage for shows. I still play for two or three hours every day.
+- The hymn 'Amazing Grace' is so inspirational - I wish I'd written it.
+- I didn't want to be a rock and roller. I wanted to be a Bobby Darin because he was the epitome of the performer, the sophisticated.
+- I have inner peace; I have accomplished a great deal.
+- Between 1958 and 1963, I sold about 40 million records - to the shock of my mother and father because I was always playing Beethoven. But I bought my mother a mink stole. She was very happy, and she said, 'I think this is better than Beethoven.'
+- I worked at Mar-a-Lago for Trump, for some parties, and he seemed nice enough - but I don't think he's presidential. I think he's incompetent; I disagree with his policies, and I'm nervous as an American.
+- When the Beatles came to America and took me off the map, I thought I would return the favor, and I moved the family to England!
+- I have written for, very fortunately, some great singers from Frank Sinatra to Elvis Presley.
+- I am a Jew, and I'm convinced that Israel is the homeland.
+- I like Manchester - I've played it many times. The people have a lot of chein, a lot of heart, and the audiences are very receptive.
+- I was from very poor people: 11 of us in a two-bedroom apartment in Brooklyn. I wanted the large houses, the cars, jets, and yacht.
+- I love kids. I think I'm a child at heart.
+- I am very proud of being Jewish.
+- Howie Greenfield and I started writing music when I was 13 and he was 16. We lived in the same building.
+- I love America, and parts of New Jersey remind me of Newfoundland - rolling hills and gardens - it's great! I guess that's why they call it the Garden State.
+- I remember Pavarotti telling me, 'Oh, Neil, after seventy, the voice is going to go.' But I've been lucky. You almost have to learn how to sing all over again. You use your diaphragm more. You have to choose the notes and pace yourself.
+- I was driving my 1959 Chevy Impala down King's Highway in Brooklyn with the top down, and I heard 'Oh! Carol' on three stations at the same time while I was channel surfing. I knew then that I made it.
+- People seem to think of me as a goody-goody who never curses, but I can be very nasty if I'm pushed. Cross me too many times, and I'll never talk to you again.
+- I was a teenage idol, but not the one that the girls would put up on their walls, like Fabian and Frankie Avalon. I was more cerebral, like a Roy Orbison or a Buddy Holly. I was one of the few who could write songs.
+- I tend to be on the quiet side. I think I would have been bigger if I had a big mouth.
+- Much of my music is inspired by what I heard at picnics and weddings and bar mitzvahs.
+- I did have my beginnings in doo-wop music; I had a group called the Tokens in Brooklyn. They went on, of course, to do 'The Lion Sleeps Tonight' and a lot of other great things. I went on as a soloist. But I still love doo-wop music.
+- The Apollo Theatre was a difficult audience, and if they didn't like you, they would let you know. Luckily, they liked me.
+- The spiritual writing of the song is where you're chosen as a vehicle, and it comes from something up above. You don't move; it writes itself. It's very spooky, but that's happened to me just a few times.
+- Being a New Yorker, I used to dance to Latin music. There was a place called the Palladium on Broadway. And Tito Puente and Tito Rodriguez used to play. So I still have that in my blood.
+- You have to learn how to sing from your diaphragm, and you don't become a great performer overnight. It takes a while. The more you do it, the better you are.
+- Between 1963 and 1975, I worked very little. The Beatles had come to New York and changed music - all the solo singers were out of work.
+- I take care of my voice. I don't go to loud discos where I have to shout; I don't have iced drinks.
+- I admire Gaga. She's very talented and wise, that girl.
+- I was one of the first American rock n' rollers in the '50s to go to many foreign countries. It's a wonderful thing to go out and spread joy and love rather than hate.
+- America has a tendency to chip away at you if you've been a success for a long time, whereas in Europe, they put you on a pedestal.
+- Tra-la-las and doo-be-do's became a Neil Sedaka trademark. I was the king of the tra-la-las and doo-be-do's in the '50s and '60s. But then when I re-recorded 'Breaking Up,' I started with a verse instead of the doo-be-do's!
+- I actually started as a concert pianist. I had a scholarship to the Julliard School of Music.
+- I think I was put on earth to sing and play music.
+- My teachers said, 'Always keep a Beethoven sonata under your fingers.' I always have. I still play chamber music, and I always play classical.
+- I had talent, and I was hungry for fame, and you can't say I didn't get it.
+- Family has always been very important to my life. Even though I make my living as an artist, my creativity is merely a fantasy world. Having a close family has been a stabilizing rock for me.
+- I'm not afraid of poking fun at myself.
+- Andy Warhol was a good friend of mine. We used to go to the Studio 54 nightclub together with the likes of Liza Minnelli, and we'd dance through the night.
+- My songs lie somewhere in between the evergreen standards, rock n' roll and pop.
+- I knew I had a remarkable voice, but I was embarrassed because it was so high. But when I sang at my bar mitzvah, the rabbi was in tears. He said to my parents, 'He must become a cantor in the synagogue,' but my mother said, 'No, he's going to be a concert pianist.'
+- I started out just as Elvis was going into the army, Jerry Lee Lewis married his 14-year-old cousin, and Little Richard became a priest.
+- My music is nostalgic. The early Neil Sedaka songs are always catchy and very singable.
+- Music is so much a part of me: my parents told me that when I was an infant, I wouldn't eat unless the radio was playing music.
+- I think there are three kinds of songs; it's only my theory: psychological, emotional, and spiritual. When you write psychologically or intellectually, you have a tune in your mind, and you re-write it. It's an intellectual approach. The emotional is my favorite because it comes from my kishkas; it comes from my soul.
+- I still play my old vinyl LPs - I like the scratches - and I miss browsing in record shops, because they held great nostalgia for me.
+- I used to think the whole world was Jewish.
+- I could have been bigger, but I wasn't controversial enough. I didn't do drugs or wreck rooms. There were no dramas in my private life.
+- I rode on a plane a couple years ago with Snow Patrol and didn't know who the hell they were. They said they were big fans of mine and were playing Madison Square Garden. And they let me listen to one of their records on their iPod. I started to weep.
+- I like Maroon 5, Cold Play. Snow Patrol from Ireland is very good. Adele is wonderful. I enjoy a new singer named Rumer. I don't care for rap or hip-hop.
+- If you have a passion for something, never be discouraged by anyone.
+- As far as I'm concerned, all politicians are fake people.

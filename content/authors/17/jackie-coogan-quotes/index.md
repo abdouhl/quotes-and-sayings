@@ -1,0 +1,95 @@
++++
+author = "Jackie Coogan"
+title = "Jackie Coogan Quotes"
+quotes_len = "89"
+description = "the best 89 Jackie Coogan Quotes"
++++
+- My hobbies hardly leave me time for work, or vice versa.
+- At one time my name was on 50 or 60 different items, from dolls to pencil boxes.
+- Everyone tells me that my pictures make little children happy.
+- When I was making the 'Kid' my salary was $75 a week. Chaplin gave me a $5,000 bonus at the end of the picture.
+- I've had highs and lows.
+- Kids haven't changed since my day except they are more hip.
+- My uncle Les Dolliver was a partner with the Nasser brothers, who owned a string of theaters in San Francisco, and also supplied motion picture projectors and seats for theaters. So I was always around theater people.
+- When I was 7, we bought a big house at the corner of Wilshire and Western and put in one of the earliest swimming pools in Southern California.
+- I won't wear a toupee.
+- Show business is stale ideas and stale actors.
+- I manage to live the way I want to, and I've never had to worry about finding jobs.
+- I used to work eight hours a day and squeeze studies in whenever I could.
+- Peck and Peck paid us $100,000 per year to put out a Jackie Coogan line of clothes. Millions and millions of caps were sold.
+- I plan to keep working until I'm 65. Then I'm going to retire. I've got 50 acres on the gulf at La Paz and I'm going to hunt and fish.
+- Most people think 'The Kid' was my first film. Not so.
+- I am a Catholic.
+- Working with Chaplin was a marvelous experience.
+- I've thrown my hair piece away.
+- My dad had a good sense about merchandising, and I appeared in all kinds of products from pencil boxes and soap to suits and caps.
+- Before there were stages we worked on raised platforms with cheesecloth overhead to diffuse the bright sunlight. The reason they built stages for silents was to get out of the wind.
+- I've been selling myself for a long time.
+- Unless I was to play an accepted character from a novel, I won't put on a toupee.
+- I knew San Francisco when it was a wild place during Prohibition. There were more speakeasies than churches, and you could always get a drink.
+- It's funny, but people still get us mixed up. They come up to me and say, 'Gee, we still remember how great you were with Wally Berry in 'The Champ' and I have to tell them that was Jackie Cooper.'
+- San Francisco's my home town, you know.
+- My pictures of 'Oliver Twist' and 'A Boy in Flanders' are being used as school lessons.
+- That picture was made before there was even a union in this business. So, I don't make any money out of the 'The Kid's' reruns. Chaplin owns the negative outright.
+- I had the flu in New York and pushed the President of the United States off the front pages.
+- Around 1950, I quit and went into the appliance business. But even then I was still in show business.
+- Fester has a lot going for him. He's 120 volt AC and DC, and he's great with dynamite. His only trouble is that he's one of the great losers of our time. He would make a great spy, but he kinda stands out in a crowd.
+- You have to re-establish yourself in this business about every 10 years.
+- I was only to see Mr. Chaplin once after 'The Kid.' A great artist, one of the greatest, but I'm afraid I don't think very much of him as a man. Running away from the country that gave him everything and denouncing the country in addition is something you simply can't make any allowances for.
+- We used Chaplin's formula in all my pictures. Make 'em laugh for five and a half reels, and then make 'em cry in the last half reel. But give 'em a chance to dry their eyes before the lights come up.
+- Pittsburgh, where you once couldn't wear a shirt for more than an hour, is a lot cleaner than Hollywood.
+- I sure would like to hear from those British and Gurkha knife artists I took into Burma.
+- Picture-making now is nothing like it was in the old days.
+- We're separated, and I regret to say that we just don't seem to hit it off. I don't know what Betty's plans are. Perhaps she plans a divorce. As far as I am concerned, that doesn't fit in with my scheme of things.
+- I do my acting job and then get out on the golf course as quickly as I can.
+- If you're known as a dramatic actor it helps you a lot. Even though to me it's simpler, it leaves a deeper impression on the public.
+- When you're accepted you don't have to fight for parts.
+- I appeared on 'Pantomine Quiz' and played occasional night club dates.
+- I don't think its better to grow up normal and get the measles and mumps and have your front teeth knocked out.
+- I was blackballed by the studios when I sued by stepfather.
+- Chaplin himself was the greatest scene stealer of all time. No matter what was happening Charlie could draw attention to himself - if he wanted to.
+- I lost my hair, and went around wearing a hair piece.
+- Acting is a great life and all that, but it's the director who is really in control.
+- Fester never talked in the 'Addams Family' cartoons. So I raised my voice an octave and I gave him a beetling look.
+- I surfed from Baja California to San Francisco when there were only nine or 10 surfers on the entire Pacific Coast. I spent three-month summer vacations in our High Sierra cabin 60 miles from the nearest road. I drank milk from my own ranch.
+- My last toupee is hanging on the door of my living room with a tomahawk through it.
+- Television is a director's medium.
+- I was very close to my father. Very close.
+- As long as I can remember, being in pictures has made it necessary for me to do my best at all times. I really don't believe anything in any school could be much better to learn than that.
+- In 1923 I was the No. 1 box office star. A year later it was Rin Tin Tin.
+- When I was 10, I was playing golf exhibitions with Gene Sarazen and Walter Hagen.
+- Being who I was, I had the best swimming instructor - Duke Kahanamoku - the year after he won the Olympics.
+- There isn't any more real show business.
+- Ask anyone - public adoration is the greatest thing in the world.
+- I'll never live down my image as 'The Kid.' But its nice to be remembered as Fester too.
+- Normal boy? How would I know what a normal boy would do?
+- Send me a good script and I'll be there.
+- All it took was one good role to convince producers all over again that I could act.
+- Chaplin was the greatest thing ever to hit motion pictures.
+- The pictures I appear in are shown in school rooms all over the country.
+- Other boys went to see Babe Ruth. Babe Ruth came to see me.
+- I never owned a piano and I never had a house full of period furniture.
+- My Indian name is Bemay-Ultze and means 'talking eyes.'
+- Uncle Fester brought me back with the young group. He was very 'in' with the teens.
+- It is my intention at all times to see that my mother and my little brother are amply provided for.
+- I have no regrets.
+- Everything I've ever wanted to do, I've done.
+- An actor like me hardly ever sees a producer. My agent will say, how about Coogan for the part. The producer will say yes. So you never see the producer.
+- People respect drama. They don't respect comedy.
+- If it isn't funny, it isn't worth mentioning. And if it isn't funny, why, you make it funny!
+- I dread going to court.
+- Maybe I'm funny but I look forward to getting to work each day.
+- I toured as a nightclub comedian and did some television in New York.
+- When I was a kid I had a ball in San Francisco because my Uncle Lou was a gripman on the California cable car line.
+- The trouble was that I tried to prolong my youth.
+- The Coogan Law had to come and it just happens that I was the goat for it.
+- In 1938 the Coogan Law was passed in California.
+- Throughout my boyhood my father impressed upon me the value of money.
+- The only vacation I've had was the four years and 11 months I put in with the Air Force in World War II.
+- I led a sheltered life until I went to college. But I wasn't deprived and I can't say I missed anything as a kid except a lot of heartaches.
+- When 'The Kid' made its premiere I was so young I fell asleep and never saw the movie.
+- My stepfather was mean to me and caused many an argument between my mother and myself. Once he even bawled me out for using one of my cars.
+- You name it, I've done it: circus, Chautauqua, variety, movies, stage, radio, TV, personal appearances.
+- I consider myself very lucky.
+- Those 20 silents we made grossed a few million each and the early sound pictures did very well.
+- That's what TV has forgotten: how to entertain.

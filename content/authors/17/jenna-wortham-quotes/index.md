@@ -1,0 +1,106 @@
++++
+author = "Jenna Wortham"
+title = "Jenna Wortham Quotes"
+quotes_len = "100"
+description = "the best 100 Jenna Wortham Quotes"
++++
+- The first ghost story I ever heard was from my mother.
+- It wasn't always easy - getting dumped by my female friends for their newfound boyfriends, husbands, girlfriends stung; I felt like a jilted lover, heartbroken and wondering what I'd done wrong. But it was also easier to forgive them, to accept what time and energy they were willing to offer, even if it was less than what I wanted.
+- The types of ideas protected by intellectual-property law typically don't include a clever catchphrase on a Vine or a film idea in a tweet.
+- Over the years, I've come to realize that sometimes a ghost isn't always a ghost. Sometimes, telling a ghost story is a way to talk about something else present in the air, taking up space beside you. It can also be a manifestation of intuition, or something you've known in your bones but haven't yet been able to accept.
+- The fact that I live in New York, a city that thrives on accessibility, might explain why I was slow to grasp the appeal of Alexa. Here we have bodegas on every corner, most open 24 hours, in case you need to pick up a roll of toilet paper or a bottle of hot sauce in the middle of the night.
+- Generally speaking, the business of music streaming is treacherous at best: Consumers don't seem to want to pay big money for access to digital music services, so companies must keep the fees low.
+- Thinking about Amazon's restraints - the company has never tried to introduce a social network or an email service, for example - you can understand something about the future Amazon seems to envision: A time when no screen is needed at all, just your voice.
+- TV shows and movies are a rare form of atemporality, and in an ever-changing, always-on world, spoilers feel irrefutable - sheer access to them gives the illusion of control.
+- I've long been interested in how technology mediates desire and the way that our phones, an extension of ourselves, foster intimate interactions that feel so personal and deep, despite being relayed through a machine.
+- I've endured humiliating experiences trying to get a cab in the various cities I've visited and lived in. Available taxis - as indicated by their roof lights - locked their doors with embarrassingly loud clicks as I approached. Or they've just ignored my hail altogether.
+- Falling head over heels in love with women was a habit I thought I'd thoroughly grown out of in middle school, when a group of about five girls and I color-coordinated our outfits and spent weekends and even some weeknights sprawled out in each others bedrooms.
+- There is much about the shared terrain of being a black person in the United States that is not seen on small or silver screens or in museums or best-selling books, and much of what gets ignored in the mainstream thrives, and is celebrated, on Twitter.
+- When 'Drag Race' first began, it seemed like a fun window into an underground culture, but over the nine years it has aired, the show has evolved to reflect America's changing relationship to queer rights and acceptance.
+- Most efforts to approximate normal human behavior in software tend to be creepy or annoying.
+- Most times, at the movies, my stress levels are ratcheted up so high that I can barely sit through the full production without excusing myself, clutching people next to me or crawling out of my seat, incapacitated by the unknown.
+- I live in Brooklyn and work in Manhattan, two of the most liberal places in the country.
+- Artists have long urged cultural introspection by creating work that forces awareness of our current political and economic landscape.
+- Obama was the first American president to see technology as an engine to improve lives and accelerate society more quickly than any government body could.
+- As Twitter allows you to curate who shows up in your stream - you only see the people you follow or seek out, and those they interact with - users can create whatever world of people they want to be a part of.
+- Although drag has a long cultural history in America, it remained largely underground till the late 1980s.
+- We live in a time of astounding technological advancements. There are deep-sea drones and live-streaming virtual reality.
+- Social media might one day offer a dazzling, and even overwhelming, array of source material for historians.
+- I'm partial to a Muji recycled-paper sketch book and a Sharpie ultrafine marker.
+- In person, RuPaul is warm, funny, personable - someone who thoroughly enjoys life.
+- Someday, maybe we'll recognize that queer is actually the norm, and the notion of static sexual identities will be seen as austere and reductive.
+- I experimented with every kind of class possible - yoga, spin, Pilates, rowing - but it was all haphazard, cobbled together by trial and error.
+- Best-friend tattoos require so much prep work, which adds to their legitimacy. First, a friendship must be deep enough to warrant the rite; then the perfect symbol must be found to forge the bond.
+- For many of us, our smartphones have become extensions of our brains - we outsource essential cognitive functions, like memory, to them, which means they soak up much more information than we realize.
+- In many ways, Obama is America's first truly digital president. His 2008 campaign relied heavily on social media to lift him out of obscurity.
+- The celebrated film critic Pauline Kael once wrote that movies function as escape pods, portals to parallel universes that can be radically different from emotional norms and societal conditioning of our own. What she meant was they parceled out freedom, allowing viewers to lose their selves in an effort to find greater connection to the self.
+- For all teenagers, the Internet offers a periscope to the outside world, but it's particularly important for students who are unable to find themselves represented and understood in their immediate surroundings.
+- The Internet has become the go-to place to toss out ideas in the hope that they could lead to a job, but it has also become the place where people go to find the best ideas, creating a lopsided dynamic that tends to benefit people in power.
+- The Internet is pushing us - in good ways and in bad - to realize that the official version of events shouldn't always be trusted or accepted without question.
+- The ancients often believed a celestial event like an eclipse to be a bad omen, that the sun or the moon vanishing from the sky was a harbinger of disaster, a sign of devastation or destruction to come.
+- Social media is my portal into the rest of the world - my periscope into the communities next to my community, into how the rest of the world thinks and feels.
+- Familiarize yourself with the resources at hand to combat online bullying, and report offenders as often as you need to. Don't hesitate to report and block.
+- In America, mixed-race identity tends to invite both curiosity and suspicion, largely because few have found a way to interrogate it without centering whiteness as the scale by which to evaluate blackness.
+- There is no picturesque version of what self-care looks like; it's different for every person who wants to practice it.
+- Once, at Thanksgiving, a neighbor wandered in while my cousin Lisa worked on a turkey, shearing meat off its frame and sliding the steaming slices onto a big flowered plate. 'Hey, that's the man's job,' she yelped, in between slurps of her Big Gulp. No one even paused to acknowledge the comment; everyone just laughed and laughed.
+- The video-sharing app Vine was the first place I got a glimpse of cultures beyond my own, including those of the Middle East. I was able to see how some women there wanted us to see them: prospering, aware.
+- Artists' obsessions with technology are not new, but in the late aughts, the work tended to focus on the possibility of the medium, treating technology like a new tool rather than a sociopolitical framework.
+- As a lonely teenager growing up in Virginia, I fed off any pop culture that could show me different ways of being from what I saw on 'The Cosby Show' reruns or read about in an Ann M. Martin book.
+- I'm not ashamed to admit that for many years, most of my fitness information came from a VHS series by MTV called ''The Grind Workout.''
+- Oceans of emotion can be transmitted through a text message, an emoji sequence, and a winking semicolon, but humans are hardwired to respond to visuals.
+- The most moving parts of 'Real American' come when Lythcott-Haims stares unflinchingly at her own self-loathing, writing about the racist encounters of her childhood that convinced her from a young age that there was something inherently wrong with being black.
+- Obama routinely pushed policy that pleased the tech-savvy, including his successful effort to keep broadband suppliers from giving preferential treatment to bigger web companies over individuals.
+- High school is already an academic and social pressure cooker, and the forces that make it stressful are amplified for queer students.
+- We may have a tacit understanding of how our solar system works, but watching the sun disappear behind the moon reminds us of the vastness of space and the enduring mysteries of the universe we inhabit.
+- The more films and TV shows I spoil for myself, the more I am convinced that truly interesting stories can't be ruined - the plot thickens with the viewing like a rich sauce.
+- Getting a tattoo is arguably one of the most insane decisions a sensible human can make.
+- I'm a white girl and not a white girl, identified by other people as black and not black for as long as I can remember - which, in mixed-people speak, means biracial.
+- When people talk about how the Internet has changed the way we travel, they typically lament the way our compulsion to document removes us, somehow, from the actual experience.
+- Spotify, Tidal, and even YouTube, to a degree, are vast and rich troves of music, but they primarily function as search engines organized by algorithms. You typically have to know what you're looking for in order to find it.
+- There's a lot of paranormal activity in my family. Whether it is more than most other families is hard to say, but we seem to have more than most.
+- Many of the short videos on Vine feel as though they belong to an ever-evolving, completely new genre of modern folk art.
+- Drag has been featured in popular culture for decades. Movies like 'Kinky Boots,' 'Tootsie,' 'The Birdcage' - even 'Mrs. Doubtfire' - have showcased men, some gay, some not, who dress and perform as women.
+- I came to 'RuPaul's Drag Race' late: I didn't get into the show until its fourth or fifth season.
+- The rise of the social web promised a new era of personalization for globe-trotting. But like many things born online, as popularity of the new tools increased, efficiency and usefulness began to decrease.
+- For many years, taking care of myself consisted of showering and showing up to work on time. Sleeping and eating were inconveniences at best.
+- When I was a kid, 'Quantum Leap' was one of my favorite TV shows.
+- If anything, Twitter helps me read about perspectives outside of mainstream media and learn about new authors, artists, and ideas that I don't always get exposed to in my regular media diet.
+- In theory, the maturation of the Internet should have killed off the desire for zines entirely.
+- Social media seemed to promise a way to better connect with people; instead, it seems to have made it easier to tune out the people we don't agree with.
+- The speed with which modern society has adapted to accommodate the world's vast spectrum of gender and sexual identities may be the most important cultural metamorphosis of our time.
+- Learning to live with not meeting other people's expectations has been extremely freeing and is the only gift I wish to pass on to any future offspring.
+- SoundCloud took a community-first approach to building its business, prioritizing finding artists to post on its service over making deals with music labels to license their music, the approach taken by Spotify.
+- The future will bring new possibilities and ideas - and new terms for them.
+- Nonviolent, visual protests have a long history of forming images that can quickly go viral and set a powerful tone for a moment.
+- For all its power as a protest medium, black Twitter serves a great many users as a virtual place to just hang out.
+- It took me years to find a program that kept me in shape: Gyms felt intimidating, and women's magazines seemed tailored for toning the bodies of already trim white women.
+- The argument has been made that smart women on screen are already enough of a minority to make up for the lack of women of color. Nope. Not good enough.
+- Our phones don't just keep us in touch with the world; they're also diaries, confessional booths, repositories for our deepest secrets.
+- When I visited my family in Virginia, I tracked down my seventh-grade best friend and sat in TGI Fridays near a mall for hours, laughing while her daughter took insane-looking selfies on my phone.
+- The radical power of 'queer' always came from its inclusivity. But that inclusivity offers a false promise of equality that does not translate to the lived reality of most queer people.
+- Twitter, it can be said, completely changed the way activism is done, who can participate, and even how we define it.
+- For all the advances in tech that let us try on various guises to play around with who we are, it seems that we just want new ways to be ourselves.
+- Wellness, I came to realize, will not happen by accident. It must be a daily practice, especially for those of us who are more susceptible to the oppressiveness of the world.
+- The American understanding of China is filtered through years of politics; we rarely see the culture on its own terms.
+- People in tech love to see their work as embodying the 'hacker ethos': a desire to break systems down in order to change them. But this pride can often be conveyed rather clumsily.
+- Luckily, my only responsibility for 'Still Processing' is to show up and talk.
+- Our contemporary analogues to the personal notebook now live on the web - communal, crowdsourced, and shared online in real time. Some of the most interesting and vital work I come across exists only in pixels.
+- 'Drag Race' has become a staple of modern television for the way it skewers expectations and attitudes about gender, much as a show like 'black-ish' works to challenge stereotypes about black families in America.
+- Established technology companies like Amazon, Apple, and Google have expanded their reach and influence throughout the world. And while many countries have pushed back against that spread, our government has essentially left them alone.
+- Online, there is an irresistible social currency to being a user who has thousands of followers, who starts memes, who comes up with an idea that is turned into a movie. But I wonder how comfortable we should be with this arrangement.
+- I like to dim the lights and talk about the ghosts I've known and invite other people to tell me their stories.
+- Matching tattoos don't ensure the longevity of a friendship, any more than any other mutual hardship.
+- The Internet is especially adept at compressing humanity and making it easy to forget there are people behind tweets, posts, and memes.
+- It's becoming much more common to see yoga studios offer classes aimed exclusively at people of color who are searching for ways to cope with racism and fears around police brutality.
+- A governing ethos of the Internet has been that whatever flows through it - information, ideas - is up for grabs.
+- Ultimately, what the tech industry really cares about is ushering in the future, but it conflates technological progress with societal progress.
+- We are being conditioned, as a population, to never wait, to never delay our gratification, to accept thoughtless, constant consumption as the new norm. But how we think about consumption and willpower carry enormous implications for the environment and the culture of society as a whole.
+- As digital culture becomes more tied to the success of the platforms where it flourishes, there is always a risk of it disappearing forever.
+- Traditional guidebooks have never quite done it for me. Too often, they seem to be aimed at a certain type of comfortable, middle-class traveler.
+- Making space to deal with the psychological toll of racism is absolutely necessary.
+- 'Drag Race' has taught me a lot about how to form community, to take myself less seriously and lose some ego.
+- The web's earliest architects and pioneers fought for their vision of freedom on the Internet at a time when it was still small forums for conversation and text-based gaming. They thought the web could be adequately governed by its users without their needing to empower anyone to police it.
+- As we now know, cyberspace did not liberate human society from pre-existing socioeconomic hierarchies and power structures.
+- Technology can be part of a solution, but it takes far more than software to usher in reform.
+- Perhaps all of us have come to rely too deeply on machinery and software to be our allies without wondering about the cost: the way technology doesn't fix problems without creating new ones.
+- Producing zines can offer an unexpected respite from the scrutiny on the Internet, which can be as oppressive as it is liberating.

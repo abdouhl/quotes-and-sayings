@@ -1,0 +1,27 @@
++++
+author = "Tim Hudson"
+title = "Tim Hudson Quotes"
+quotes_len = "21"
+description = "the best 21 Tim Hudson Quotes"
++++
+- I'm excited about being here in an organization that I grew up rooting for... I'm excited about being an Atlanta Brave and pitching in Game 1.
+- I practice on the acoustic guitar a little bit, but I think I have reached the peak of my talent.
+- I figured my wife was about to start law school. If that whole baseball pitching thing didn't work out, I had something to fall back on. I figure I'd put a ring on her finger. Turns out she was the smart one. Turns out she was the gold digger, not me.
+- It's been one of those things where anybody that's played a sport at the professional level, there's always a lot of challenges. And the one thing that's always been a constant for me is Jesus Christ and my faith - and just knowing that my walk with Christ is steadily going up.
+- I felt the Lord at a young age. And it was one of those things where that seed was planted, you know, when I was a kid.
+- I hate when people don't keep their word or they are late. Tardiness is a big pet peeve of mine.
+- I have some bad feet. But really, my main fault would probably be my personality. A lot of times, I am not serious enough. I joke around too much sometimes.
+- You feel like a stud out there when people swing and miss. As I've gotten older, I've preached to our young guys that strikeouts are sexy, but outs are outs, man, no matter how you get them. It's a lot cooler for me pitching in the seventh or eighth inning than it is going 5 1/3. Your manager likes it a lot more, too.
+- The Oakland A's, I loved all my teammates there. I loved all the coaches. They gave me the opportunity to play in the big leagues. And for that, I thank them. I mean it was a dream come true for me.
+- Maybe these kids are just too young and too dumb to know about the first 13. Maybe they can't comprehend that the Braves have only won one World Series in those 13 years.
+- Braves fans are one-of-a-kind. Your passion to win comes close to equaling that of the players that go out on the field each and every game. But when the team goes through rough patches, you're there to encourage and cheer and believe that things will turn around.
+- Auburn is a very small, quiet college town, a different kind of place geographically and culturally.
+- There's more than one way to do things. There's always different points of views and styles of pitching.
+- The Atlanta Braves are really all that our children know about this crazy baseball life, and we are so thankful for this upbringing for them.
+- We've always been suburb people, and we lived in the East Bay when I was in Oakland. This time around, we're staying in the city, and my kids are getting that city life experience, which is something you don't get too much of in Alabama.
+- One thing that I learned is this - once a Braves fan, always a Braves fan. No matter what. And as a player, that means more than you could understand.
+- I always wondered how it would be to put on a Braves uniform and play in Atlanta.
+- AT&T Park, chalk it up. This is a great pitcher's park, great weather. It's a great place to pitch. It's all positive and no negative. You can go out and challenge guys. I've got the confidence to attack the strike zone and not nibble so much.
+- It's the youth movement we have. A lot of young guys with a lot of passion. It brings the fun back to the game.
+- I was a huge fan of Bobby Cox, a huge fan of Chipper Jones and John Smoltz. And just those guys, I grew up watching those guys and often wondered early on in my career if I would ever have the chance to play for the Atlanta Braves, and there it was. God kind of answered my prayers.
+- When I was traded from the Oakland A's to the Atlanta Braves before the 2005 season, a childhood dream was realized. I grew up a Braves fan just a few hours south of Atlanta, and it was hard for me to believe that I was going to actually play for the Atlanta Braves and legendary manager Bobby Cox.

@@ -1,0 +1,106 @@
++++
+author = "Tim Sweeney"
+title = "Tim Sweeney Quotes"
+quotes_len = "100"
+description = "the best 100 Tim Sweeney Quotes"
++++
+- With Epic MegaGrants, we're reinvesting in all areas of the Unreal Engine development community and also committing to accelerate the open sourcing of content, tools, and knowledge.
+- Epic Games and Microsoft have been close partners for more than 25 years.
+- In many ways 'Fortnite' is like a social network. People are just in the game with strangers; they're playing with friends and using 'Fortnite' as a foundation to communicate.
+- Fortnite, because of its visual style, it's widely acceptable to just about everyone. It's open up to a much wider audience than a realistic, military-style simulation.
+- We want a direct relationship with our customers. To build a business and sell products to them.
+- We all remember the tech bubble of the late '90s, but companies like Amazon survived. Wherever there's strong, enduring value, it can last through that kind of turmoil.
+- My role is more like a chairman and founder. I am used to overseeing the company's heritage and our strategy.
+- All signs point to there being many virtual and augmented reality competitors, and not just a single, dominant company.
+- Streaming is something that's going to require tons of billions of dollars of investment, building server farms close to users and 5G and everything else.
+- Videogames have existed for almost 40 years now, yet every year, we see major and unexpected advances.
+- That's the great things about games as social experiences. You play with all your friends across social groups. You see young girls as well as young boys playing. These are kids in school, people in offices, in pubs, all having fun together.
+- It'd be awesome if you could see an actual player's faces projected onto an in-game character in a multiplayer game. Imagine how realistic that would feel.
+- Windows is the platform of choice for gamers. It's the only choice for enterprise. If we want to have an open platform, we have to fight to keep Windows open.
+- Epic's Support-A-Creator program was launched as a one-time event, but it's now permanent and is available to all creators and all developers on the Epic Games store.
+- The thing that excites me most technologically is the ability to use VR not just for games and displaying our content, but also for creating that content. We're putting a lot of thought into what the Unreal Engine editor looks like as a VR application.
+- Whenever there is somebody at Epic who is capable of doing something better than me, I let them at it.
+- The great thing about VR is that the input is going to be so drastically better than mouse input or games with touch controls on smartphones. It'll make it much easier to build stuff and express yourself freely.
+- I believe AR is going to be the primary platform of the future for both work and entertainment.
+- Asian online games are far ahead of Western games in terms of business model, but the Western games do have a real advantage in terms of production values.
+- Some folks actually talk a whole lot more than me, so I'm grateful for the people like Cliff Bleszinski. He talks about our games, and Mark Rein talks about our business strategy. I'm the shy programmer myself.
+- I was really worried about the Windows RT project and these other efforts where Microsoft was creating versions of Windows that would be locked down and could force you to only install software through the Microsoft store.
+- When gamers can play a game together with all of their friends, regardless of the devices they own, you have a much more compelling social experience. That applies to all multiplayer games.
+- I've personally unsubscribed from Netflix twice because I've been frustrated with changes in their catalog.
+- Onstage at Build, Phil Spencer said the Xbox is an open platform - which surprises me, because you have to get your game concept approved before you start developing it. Then you have to get every update approved. Microsoft has absolute control.
+- When you search for Fortnite on iOS, you'll often get PUBG or Minecraft ads. Whoever bought that ad in front of us is the top result when searching for Fortnite. It's just a bad experience. Why not just make the game available direct to users, instead of having the store get between us and our customers and inject all kinds of cruft like that?
+- I would play games long enough to discover what games were doing and how they were doing it. And then I'd spend the rest of my time building.
+- If you hire great people, and they're all self-motivated, then you can get by without a lot of structure.
+- Epic will manually curate the Epic Games storefront rather than relying on algorithms or paid ads.
+- The YouTube revolution isn't a revolution in content consumption, although there's a huge number of content consumers. It's about how anybody with a camera or a smartphone can create a video and share it with the whole world.
+- At Epic, we succeed when developers succeed.
+- If you black out the background in AR, you could make an immersive VR experience, and if you make the view translucent so you can see through it, you just have an augmented view of the real world. I think that's the ultimate and best form of display tech we'll have.
+- I think it's necessary for VR to start with an early adopter audience that's highly engaged, and I think that means gamers. They're the ones who have the high-end hardware and the expertise and the patience to sort through the uncertainty of it all.
+- We feel the game industry is changing in some major ways. 'Fortnite' is a harbinger of things to come. It's a massive number of people all playing together, interacting together, not just playing but socializing.
+- When we're building tools, we respect developers' complete creative freedom. It can be used for the development for anything that's legal.
+- We're a company that's gone through many cycles and evolutions, and every time we have a major success, we double down and use the money from that to fund our initiatives and so forth.
+- It turns out having a fast car is an excellent hobby when you're a workaholic because even when you don't have any free time, you can always drive to work.
+- Within our lifetimes, we will be able to push out enough computational power to simulate reality.
+- Games have become a social phenomenon.
+- The genre thing is overrated, and the platform decisions are overrated. It's what we see on 'Fortnite': so many of these gamers play on a variety of devices, so you can't say they're a mobile gamer or a console gamer. They're just a gamer.
+- This Metaverse is going to be far more pervasive and powerful than anything else. If one central company gains control of this, they will become more powerful than any government and be a god on Earth.
+- We've been happy to be able to work with Sony and Microsoft to have the first game that honors everyone's purchases across iOS, Android, PC, Mac, and the console platforms.
+- We need to avoid going down a path where we might find the doors slamming shut behind us.
+- We are a game developer ourselves, and we built everything we need for our games. We share everything we built, including our game engine.
+- I believe that augmented reality will be the biggest technological revolution that happens in our lifetimes.
+- As more and more people are automated out of the economy through robotics and self-driving cars and other technologies, there will be a way to create value for other human beings online. There will be a virtual economy for exchanging value, goods and services, entertainment experiences, and all that.
+- Epic has prided itself on providing software directly to customers ever since I started mailing floppy disks in 1991.
+- I've never met a skeptic of VR who has tried it.
+- 'Infinity Blade' has proven that iPhone owners are hungry for high-end games with cutting-edge graphics.
+- Unity is a kind of engine for the everyman.
+- If you throw a frog in boiling water, he'll just hop out. But if you put him in warm water and slowly amp up the temperature, he won't notice and end up boiled.
+- While most game developers are focused entirely on what they're shipping in a year or two, a technology developer like Epic has to look much further out and plan many years ahead.
+- Everyone has friends that are limited to one platform and ecosystem, whereas what we've built with 'Fortnite' is a friends system that works across seven platforms. You can have friends across Xbox and PlayStation and PC.
+- While Hollywood's computer graphics quality is world-class, their production pipelines are a mess of non-standard tools and labor-intensive processes driven by the mantra of maximizing quality regardless of cost. It's very Balkanized.
+- If you look at why people are paid to do things, it's because they're creating a good or delivering a service that's valuable to somebody. There's just as much potential for that in these virtual environments as there is in the real world.
+- I feel like it really marks a new era for Microsoft under Satya Nadella, Alex Kipman, Phil Spencer, and a number of other people who are really committed to the platform being a healthy ecosystem for everybody and not just an extracted business like you see on the Facebook or Google side.
+- Unreal has to be an engine for everyone who wants to build a major game.
+- Ultimately, I'm an optimist.
+- We're not just limited by technology but by our ideas and our experimentation and how quickly we can try things.
+- Hollywood is moving movie production into VR because it may be more immersive. We see a convergence of different forms of media. VR and AR provide next-generation viewing experiences for games, movies, and visualization.
+- My experience with Epic is handing off more and more power to the point where I can just sit back and look at our strategy or technology. I provide guidance without being responsible for any particular part of the company.
+- Augmented reality will drive all things like chat, social networking, photos, videos, organizing data, modeling, painting, motion capture, and visual programming. Every form of computing will be combined together and unified in a single platform.
+- Once you have an augmented reality display, you don't need any other form of display. Your smart phone does not need a screen. You don't need a tablet. You don't need a TV. You just take the screen with you on your glasses wherever you go.
+- Games like 'Fortnite' are way more fun to play with your real-world friends, and they're so accessible that anybody can play.
+- We're trying to make our software available to users in as economically efficient a way as possible. That means distributing the software directly to them; taking payment through Mastercard, Visa, Paypal, and other options; and not having a store take 30 percent.
+- Microsoft has built a closed platform-within-a-platform into Windows 10 as the first apparent step towards locking down the consumer PC ecosystem and monopolising app distribution and commerce.
+- AR is going to play such an infinite role in our lives that we have to establish clear ground rules respecting everyone's rights. That means open platform and open ecosystems and protections that put user privacy first.
+- You can't build an engine that's just good for one type of game anymore. The economics don't work.
+- The mobile gaming experience is fundamentally limited by this very small screen in front of you that occupies maybe 15 degrees of your field of view. The PC and console experience, you have a 45-degree field of view. VR is 120 degrees: your entire view space. The expectations of users on the platform will rise to levels we've never seen before.
+- I think the most interesting things happening in VR are going to be somewhere in between what you call a traditional game and what you call a traditional movie.
+- I have immense respect for Unity because they played a key role in establishing this indie revolution, empowering a huge number of people to get into game development.
+- The awesome thing about 'Fortnite' is it's brought a huge volume of digital commerce to Epic.
+- Augmented reality will change the world more than a lot of other technologies. Traveling around to meet people will be much less important when you can stand in a room and chat with a virtual representation of a person that's so close to reality - it'll be a whole new level.
+- For the third generation Unreal Engine, we are building two versions of every model in our game. We are building a source model with several million polygons, between 2 and 6 million polygons. We use that model for all the lighting detail on the mesh. Then we go to the in-game version, which is usually about 10,000 polygons.
+- I understand the concept of advertising. It makes sense. Companies want to reach customers with information about their products. It's a completely legitimate and valuable notion.
+- It turns out that the most powerful use of technology is to connect people together socially.
+- We'll turn down crappy games that are submitted to the Epic Store.
+- Open platforms encourage innovation. Whenever you have a closed platform, a monopoly on commerce, and all these platform rules, it stifles innovation.
+- I see a bright future for the future of computing and its implications for games.
+- Microsoft's intentions must be judged by Microsoft's actions, not Microsoft's words. Their actions speak plainly enough: they are working to turn today's open-PC ecosystem into a closed, Microsoft-controlled distribution and commerce monopoly.
+- As soon as a critical mass of people in the world gained access to devices with high-end graphics and Internet connectivity, the rise of games like 'Fortnite' became inevitable.
+- Microsoft has been taking a series of steps for a while now to close down the Windows ecosystem. They can't do it all at once, because there would be an industry uproar. But one little step at a time, they're trying to take it all over.
+- Epic started out with scripting languages in the first generation of the Unreal engine in 1998. I wrote that. There's a place in my heart that comes along with the simplicity of programming in a scripting language.
+- I welcome Microsoft having a store on Windows; what I've always resisted was a push to close down Windows to competing stores.
+- On open platforms like PC, Mac, and Android, Epic's goal is to bring its games directly to customers.
+- 'Fortnite' is the same game on all platforms, including high-end consoles and PCs.
+- Do you remember the first three years of Steam? People absolutely hated that Valve forced you to launch their game through what some people called a virus at the time, which was the Steam client. But Steam led the digital distribution revolution: it was the first across all platforms.
+- Every application designed for 2D interfaces will be obsoleted by AR.
+- We see that as 'Fortnite' evolves, it's evolving beyond being a game.
+- There are major benefits to building a game once and improving it over a long period of time based on user feedback and behavior. It's kind of depressing to have to build a game once, take all the user feedback, and then spend the next 3 years building another game.
+- I believe Microsoft has every right to operate a PC app store and to curate it how they choose.
+- It's a big and growing problem, the amount of power possessed by Google and Facebook. President Eisenhower said it about the military-industrial complex. They pose a grave threat to our democracy.
+- Both multiplayer games and online forums have this property of virtual anonymity. Other people can't really see you; they don't really know who you are. And so the sort of social moderating mechanisms in real life, and your desire not to offend people around you, don't really adjust.
+- VR as a display technology, as it's miniaturized and made comfortable and mainstream, will be a replacement for all other forms of display technology, input and output. So for anybody who works with computers all day, this is going to be our future.
+- If you really care about a game, spending a couple of minutes setting up payment is perfectly reasonable. It's certainly happened with 'Fortnite.'
+- I can imagine an automotive designer or an industrial designer building a product in 3D, all in real-time. That's the way a lot of people are going to work in the future.
+- When lots of stores compete, the result is a combination of better prices for you, better deals for developers, and more investment in new content and innovation.
+- It's awesome to see other games picking up on battle royale, adding their unique spin to it, and advancing the state of the industry.
+- Keep in mind, the web existed for almost a decade before social networks became pervasive. Even though the technology was available to make a social network in around 1995, it simply didn't happen until somebody had the idea to do it, do it big, and do it with a certain level of quality a decade later.
+- First, we want to have a direct relationship with our customers wherever we can. On open platforms like PC and Android, it's possible for them to get the software direct from us. We can be in contact with them and not have a third-party distributor in between.
+- 'Fortnite' has, I think, the most positive gamer community that's ever emerged from a game at this scale. I think it's partly because of the great community and partly because of the tone set by the game.

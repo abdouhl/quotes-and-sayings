@@ -1,0 +1,78 @@
++++
+author = "Kerry Washington"
+title = "Kerry Washington Quotes"
+quotes_len = "72"
+description = "the best 72 Kerry Washington Quotes"
++++
+- I'm always working. My cousins call me the longshoreman of actors.
+- You see the transformation that the arts have on young people. It changes their lives for the better. That's where my engagement is.
+- I have an amazing social media manager, Allison Peters, who is one of my closest friends since childhood.
+- I really love research. It's one of the things I love most about my job. I feel like it's me in the lab cooking up the character.
+- I always felt like my value was much more in my intellect than it was in my appearance, and so that's what I spent time cultivating. And some of that I get from my mother, some of that comes from the schools that I went to, and some of that comes from probably insecurity.
+- People don't think about the fact that when Barack Obama's parents had him - it was illegal for them to be married in several states in this country. So if we start making it okay that certain people can marry and other people can't, it's a slippery slope of civil rights. Who knows who is going to be allowed to marry or not marry next.
+- Earlier in my career, I was much more super-sharey. There were moments when I wanted to process things that were happening to me more privately, and I didn't have the space to do it, because once you let people in, they're in, and you don't get to say, 'Oh, I want this for myself.'
+- When I think about any of the missteps in my life that I've made, all of which I'm grateful for, it's because I just so wanted to be truly seen and heard for who I am and was afraid I wasn't or wouldn't be.
+- If I were somebody who spent the majority of my time saying things that were harsh and difficult to hear, I would want my visual aesthetic to be something soft and feminine, warm and easy to be around.
+- About a year ago I got really exhausted from reading bad scripts and I know that I am a writer and that I have stories to tell, so I thought, 'Let's do this!' So I'm co-writing a screenplay now with another screenwriter and loving it. Absolutely loving it. And I would like to be the producer on the project and of course the lead is me.
+- I always prided myself on the fact that I could live out of milk crates forever. It was kind of my way of detaching from materialism.
+- It's interesting how much people long to fill in the gaps when someone in the public eye doesn't share their personal life. I understand their frustration.
+- I think Calvin is so beautiful. Oscar De La Renta is so classic. I really like the Rodarte girl; they are super-inventive, and they think outside the box. I am all over the place!
+- I choose to feel optimistic, because I don't think I could get out of bed if I didn't.
+- I bring something to the table as a woman; I bring something to the table as a woman of color.
+- I have to make sure that I don't silence myself about the things that I believe in, because sometimes the fear creeps in of 'What if fewer people watch the show or fewer people hire me because I express my politics?' For me, the commitment is to never be quiet just because I'm in the public eye.
+- I just really love producing. I love being able to be part of a solution. I love being able to create opportunities for other people to do what they do, to be part of the collaborative process that is filmmaking and television making.
+- Today there are people trying to take away rights that our mothers, grandmothers and great-grandmothers fought for: our right to vote, our right to choose, affordable quality education, equal pay, access to health care. We the people can't let that happen.
+- I don't think I'm even close to fulfilling my potential. And I think also that, unlike a pianist or a flutist, an actor has an instrument that is constantly changing.
+- I definitely feel like I'm at that point where it's nice to not have to sit at home and wait to be invited to the party, but to be creating work for yourself.
+- Every actor you work with has a different method, same with the director. You have to figure out what your shared language is and how to best support each other, and also take care of yourself.
+- I would wear pajamas to work every day if it were up to me.
+- I really gravitate toward having all different styles in my closet because I feel like I always want to dress to fit my mood or where I am going. I do love Jason Wu; he is also a really good friend of mine, and I love what he is doing for Hugo Boss these days.
+- There are a lot of forms of exercise where you have to leave yourself out of the room while you force yourself to do this thing. With Pilates, I get to bring my true self. I cry, I laugh. I get to go, 'Where is my body today? What do I need today? How can I take care of myself and push myself past my comfort zone?'
+- When you have things that are very important to you in life, when there are things you want to do and be - that takes work. It takes work to show up for your own story and show up for the dream and vision you have for yourself.
+- I have to take care of myself in order to live life the way I want to. It's important to have rest days. But in the long run, if I don't work out for, like, three days, I feel worse, not better.
+- I come from the theater and I plan to always do theater. So I don't really see myself not being able to act even if people don't think I am sexy enough for film at 40, I'll still be acting.
+- I have girlfriends in this business who talk about their personal lives, and it works for them, and I love it. But not for me.
+- When I read 'Ray' for the first time, I had just quit. When I read 'The Last King of Scotland,' I had just quit. I hadn't quite quit when I read 'Scandal,' but I was feeling really unfulfilled as an actor.
+- For the red carpet, I'm totally a stiletto girl. But in the rest of my life, I'd say I'm 50/50. I love a good heel, but I also have a really great sneaker collection. That's the Bronx girl in me.
+- When you buy into the cultural idea of what's acceptable and unacceptable, you reinforce negative stereotypes and prejudices. That wouldn't work for me. I don't love to give advice to anyone, because we all have to make our own choices, but I'd want to live my life in truth.
+- You may not be thinking about politics, but politics is thinking about you.
+- As a young girl, my real dream was to be the woman in the shows at SeaWorld.
+- My mother is one of seven kids, so I have a lot of strong women in my family, and I have supportive, beautiful relationships with all of them.
+- I think sometimes in life we want to ignore the problems of society and just think about the good. I believe in positive thinking and affirmative living, I also think it's really important to remember all of our disenfranchised members of society.
+- I think as a whole America is dealing with the issue of homophobia. We got to be really honest about whether we believe in civil rights for all people or not. As Black people we need to remember the moment that we say it's okay to disenfranchise one segment of society, we're opening the door to move backward on ourselves.
+- I feel like any single woman of color who's been onstage has a Shakespeare monologue in her back pocket, and a monologue from 'For Colored Girls.' It's just part of what you should have, as a woman of color.
+- I guess because I came to it later in life, I realized, 'Oh, going to a fashion show is like going to the opening of Degas at the Met or going to see Swan Lake.'
+- I'm doing this play right now, the new David Mamet play. It's called 'Race,' and it's very interesting how people really leave the theater filled with the desire to talk about the play and the issues and the characters, and how they're all navigating their personal views around race.
+- You know what's funny is that I have this ongoing relationship with the city of Washington D.C. I went to George Washington University, and my nickname was K-Dub - based on G-Dub - and I'm now on the board of trustees at George Washington University.
+- I grew up in New York, so I fell in love with acting on a stage, not in front of a camera.
+- Shoes define how you walk in the world and how you stand: like, what is your posture in life?
+- Being the one woman in the room should not be seen as a victory. If there's only one of us in the room, we're still a token; we don't actually have an empowered voice. If there's two of us, we're still a minority. If there's three, then we're allowed to have a multiplicity of opinions.
+- Before 'Scandal,' I was actually cast in two other pilots. Both went to series, but I was fired and recast. For both, it was because they wanted me to sound more 'girlfriend,' more like 'hood,' more 'urban.'
+- I've been wanting to produce for some time because I want to have more creative control over the things that I do and not be victim to the whims of other people's desires.
+- One of the most amazing things about my job is that I have arguably, maybe not even arguably - definitively - the best boss on the planet. Shonda Rhimes is the best.
+- I'm here not just as an actress but as a woman, an African-American, a granddaughter of Ellis Island immigrants, a person who could not have afforded college without the help of student loans and as one of millions of volunteers working to re-elect President Obama!
+- I've had friends of mine say, like, they're tired of 'gayface,' and I was like, 'What's gayface?' They were like, 'It's the gay version of blackface: like, come in and be more effeminate.'
+- I don't want to not be African. The goal is to live in a world where my race doesn't limit my access, where I can see myself represented in the highest level of society without any limitation.
+- I wouldn't just come home from school and watch TV everyday, they had me involved in lots of local theatre. I was a very dramatic, talkative child. And that was part of my mother's creative solution - to put me in workshops and classes and children's theatre programmes.
+- I learned through experience that it doesn't work for me to talk about my personal life. I've had earlier times in my career when I did talk about it.
+- For me, what is political is very personal. Politics are not this abstract idea. Laws are the rules that dictate how we live our lives. What we eat is political. How we dress is political. Where we live is political. All of these things are influenced by political decision-making, and it's important to be part of the process.
+- I've never been comfortable being a pawn. I work with brands where I feel like I can have my say and companies that I'm proud to be in a relationship with. Partnerships take a lot of time. If I am going to put my name and my face and my energy behind something, I want it to be authentic.
+- I didn't grow up thinking I was pretty; there was always a prettier girl than me. So I learned to be smart and tried to be funny and develop the inside of me, because I felt like that's what I had.
+- I think as more women are in positions of power, more people of color are in positions of power, the stories become more inclusive; the casts become more inclusive.
+- I am co-writing a screenplay now and I'm working on the rights to another story I want to do. So I plan to produce and direct. So, for me, I don't really feel that I am vulnerable to that sad baggage that comes with the business of filmmaking.
+- I really try to let my friends into all of my life. They know that Red-Carpet Kerry is a version of Kerry, and they know that DNC Speaker Kerry is me.
+- I don't talk about my personal life in the press; that's how I kept my wedding a secret.
+- I don't think I consciously say, 'What would Olivia Pope do?' but there's a new thread of belief in my own capacity that I think comes from her. She makes it happen. She figures it out. She fixes it.
+- I think generalizations of any sort are dangerous. I'll say, if that is the case - right now it's an American issue.
+- So many struggled so that all of us could have a voice in this great democracy and live up to the first three words of our constitution: We the people. I love that phrase so much. Throughout our country's history, we've expanded the meaning of that phrase to include more and more of us. That's what it means to move forward.
+- I was really lucky because I went to an all-girl school, and that single-sex education really helped me because I really learned to bond with women and to not compete with or compare myself as much because we were all allowed to be ourselves and be unique and kind of have our unique strengths.
+- The breakdown of the black community, in order to maintain slavery, began with the breakdown of the black family. Men and women were not legally allowed to get married because you couldn't have that kind of love. It might get in the way of the economics of slavery. Your children could be taken from you and literally sold down the river.
+- That's what acting is - it's about... having the courage to allow your audience into the private moments of your characters' lives.
+- I think most people, when they think about the Black Panther Party, they think in very abstract, caricatured terms. They think about black fists in the air, but they don't think about the actual people, and the families, and the relationships.
+- I come from film, where I only play a character for three months at a time, and then it's done, so it's important for me to be able to put on other hats and make sure that all of the tools in my toolbox that don't apply to Olivia Pope are still in shape.
+- I come from a family with a really strong work ethic - not just my parents, but my aunts, uncles and cousins. It rubbed off on me. I have a cousin in The Bronx who says I'm like the longshoreman of actors. I am a worker.
+- I've always been a writer because I've always been a student. My mom's a retired professor, so I come from a very academic background. I love writing, you know?
+- I think every girl should have a tailor in her phone. It's part of why we beat ourselves up, or why shopping is so frustrating and hard: we have this assumption that when you take something off the rack, it will fit you.
+- Making the unbelievable believable is different on a set with 'Fantastic Four,' where it's like, 'Wind machines! Because the airship is coming in and you're pretending to be afraid!'
+- I'm a person who's always been politically active and passionate about people's rights.
+- I like how people will post pictures of me with other women that I adore, hugging on red carpets, and say, 'See?' Are we so uncomfortable with love between two people of the same gender that we immediately label it as sexual? But I've never been bothered by the lesbian rumor. There's nothing offensive about it, so there's no reason to be offended.

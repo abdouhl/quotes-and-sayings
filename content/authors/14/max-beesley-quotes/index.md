@@ -1,0 +1,16 @@
++++
+author = "Max Beesley"
+title = "Max Beesley Quotes"
+quotes_len = "10"
+description = "the best 10 Max Beesley Quotes"
++++
+- I'm a massive fan of the 'Bourne' franchise, and I think Damon's brilliant in it, and I love the films. I'm really into it.
+- I'd be lying if I said Hollywood wasn't still an ambition; it's everyone's, isn't it? You're getting paid very well, you're working with great actors and great directors - who wouldn't want to be a part of that? But it's not going to break my heart if it doesn't happen. This business is about doing good work rather than how famous it makes you.
+- The only person I'll marry is myself. Believe me, my ego is that big.
+- Certainly 'Survivors,' when we put that series out, the second series dipped below 5 million for one of the episodes - all of a sudden, there's no recommission, and I think that's dreadful.
+- I think that if you've got 5 million people that enjoy drama and invest in characters, you must take the time to not worry about your job and getting sacked and just go for it and hit it again.
+- Acting can be a difficult business. When I was younger, if my mates were doing better than me, I might be a little bit envious, but as I have got older, I love to see actors cracking on and succeeding. The same goes for writers.
+- I've had a fantastic life so far; I'm lucky. I'd like the great role that changes everything, but at the moment, what's important is being happy in myself.
+- I know plenty of people who do, who get their holidays paid for and in return have their photographs taken on the beach, but not me.
+- If directors, actors and writers have the ability to drop their alpha-male egos, you will always get better work. In terms of my own demands, I actually want fewer lines. If I can lose a line and do it with my face, I'd rather do that.
+- If you fall in love with someone, it doesn't matter who they are. I've had lots of girlfriends who weren't in the public eye. It is hard, all the intrusion: you have a row with someone, and even though you've sorted everything out, you get the are-they-going-to-split headlines for the next ten days.

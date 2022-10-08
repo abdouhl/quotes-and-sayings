@@ -1,0 +1,79 @@
++++
+author = "Miranda Hart"
+title = "Miranda Hart Quotes"
+quotes_len = "73"
+description = "the best 73 Miranda Hart Quotes"
++++
+- I own nothing of value at all. I spend money on experiences.
+- I'm very much in denial that I can't dance. I really go for it, which is almost more embarrassing.
+- When my sitcom 'Miranda' first became successful, I was so in the thick of working and I was so stressed that I didn't really enjoy the moment. You suddenly look back and go, 'Gosh, you've just got to enjoy every day.' And now I wake up and literally pinch myself every day.
+- I think, for a shy person - and I was very shy until my mid-20s - having been to an all-girls' school is not brilliant on the boyfriend front later. Because when I went to university, it was definitely like meeting a new species of people. Suddenly, at age 19, I was thinking: 'Can you speak to these people?' I was very, very nervous.
+- If you're naturally a certain size, I think it suits you and you can see that. There's no point in trying to conform for the sake of it. People are meant to be different shapes, and their different shapes are so interesting and, ultimately, why people fall in love with them.
+- The main reason I got into comedy was in the hope that I could make a few people laugh and feel better about life, and the fact that I do that is quite overwhelming, really.
+- I did things like get in a cupboard before the teacher came in at the beginning of a lesson, and then, two minutes before the end of the class, I come out of the cupboard and go, 'Sorry I'm late.'
+- I'm not saying writing comedy's brain surgery, but there is a certain pressure to it. It's the equivalent of doing homework that's going to end up on national television.
+- I am essentially a middle-aged woman who likes making up weird snack combinations and galloping.
+- If I had had plastic surgery, I would have asked for something better than the face you are seeing! I actually really hate plastic surgery when it's just for aesthetics and anti-ageing. I think ageing is beautiful and expressive and characterful.
+- Reviews are written by people who don't understand the process of sitcom. I don't read reviews of anything. I go by word of mouth.
+- I wanted to be a farmer's wife. I thought it would be quite fun to wake up of a morning, collect eggs and have sheep and pigs as pets. I know now that it would also involve having to sleep with the farmer, but at the time I wasn't thinking about the sexual implications - I was 11.
+- By the age of 13, I knew I wanted to be a comedian like Morecambe and Wise. So, obviously, I thought I'd better start practising my interviews for Parkinson. Don't look shocked - I wasn't the only teenager to imagine that. Though I may have been the only one to have chosen T'Pau as my walk-on music.
+- I hate talking about my height, because I don't feel like a tall person... When I see a tall woman, I'm always slightly like, 'Whoa.' It looks weird, but that could be because of my complex about it, my worry over whether it's womanly to be that tall.
+- I'm not a stereotypically beautiful woman, and I'm so happy that I'm not. I've seen those ladies - the need to be attractive at all times is ghastly. Also, in your twenties, if you are beautiful, everything comes to you, so you never need to develop a personality. I never had that problem.
+- People are obviously going to mention what I look like, but it's a shame it has to be a key part. I can't just be Miranda.
+- It's a real man who can go out with a woman who's taller than he is. That's an alpha male right there.
+- Everyone - particularly my female friends I speak to - all say 'I wouldn't be in my twenties again if I was paid.' It's a difficult time.
+- I've always felt a bit of an outsider. It used to worry me that, in terms of TV, I did not look like 'the girlfriend' or 'the daughter'. That pushed me to write my own stuff, as I thought no one else was going to write me a lead in the sitcom.
+- My greatest fear is fear. Ooh, meta.
+- Marriage was never a dream or an ambition for me. I thank my real mother for the fact that - unlike my sitcom mother - she never put any pressure on me or my sister to marry.
+- I'll always have to force myself to see the positive, because I'm wired badly, I'd say. I'm just naturally a bit under, a bit depressed.
+- I want to be more physical and theatrical within the stand-up. There might be dance moments, and people better watch out - I will gallop.
+- I do love to cry. I'll cry at the drop of a hat. I'll cry at your basic television programme, let alone a weepie. But not big, heavy, serious crying. I haven't done that for a while, which is a relief. More like a little welling up of joy.
+- I think babies are a bit boring, actually. They're OK when they're older; they make you laugh. I think we all think that, really - we just don't say it.
+- As a woman, it seems you can't just be a comedian; you're always classed as something else, too, whether that's 'beautiful,' 'pint-sized,' 'larger-than-life' or in my case, 'Hattie Jacques-esque,' 'the giraffe,' 'big.'
+- I think there are different kinds of comedians, and I prefer the clowns who are going: 'I'm an idiot, aren't we all a bit like this, laugh at me.' Whereas, a lot of other comedians are saying: 'Aren't I clever? You want to be me, aren't I cool? Revere me.' Which is fine. But that's not my bag.
+- I suppose you want me to say I'm at parties all the time and am secretly going out with Tom Cruise, but I am afraid that is not the case. I'm still in my pyjamas at nine o'clock each night, watching ITV2 without telling anyone.
+- I know there are fewer women comics, and I think there'll continue to be an inherent sexism in many industries, comedy being one, just because things do take a while to evolve. Things are changing, but it's going to take time. I accept this rather than getting angry about it.
+- I'd like someone tall, dark and nice. Independent and confident. Not a macho man. Perhaps a little bit girly, in a way. The key for me is if we can cry with laughter.
+- If taking one-self seriously as a woman means committing to a life of grooming, pumicing, pruning and polishing one's exterior for the benefit of onlookers, then I may as well leave my unwieldy rucksack to the top of a bleak Scottish hill and make my home there under a stone, where I'll fashion shoes out of mud and clothes out of leaves.
+- In my head, I have the most sensational singing voice. I perform concerts to thousands in the shower. The reality is I can hold a tune. The dream is a West End musical one day - no, really!
+- Being tall when I was youngerl I was always a bit awkward. As a teenager, I was very, very thin, so I was very gangly and limby, and would sweep things off the table without realising how big my wingspan was - just out of control. A lot of women write to me and say, 'I'm six foot and exactly the same happens' - that's been lovely therapy.
+- My whole family is obsessed by brandy butter. And bread sauce. Then, of course, there will be a lot of wind in the afternoon! We have never disguised the wind side of our lives as a family; we think it's hilarious.
+- Things don't have to come to you in your youth. It's fine for them to come to you when you get older. That's a motto in my household.
+- It's a vicious circle. If you feel hideous, you convey it to people. A couple of male friends from university have said, 'I quite fancied you, but I wouldn't have dared...' and I was like, 'Oh really?' I was completely amazed that anyone had ever fancied me, and also that I'd obviously given an impression of 'Don't touch me.'
+- The embarrassment of a situation can, once you are over it, be the funniest time in your life. And I suppose a lot of my comedy comes from painful moments or experiences in life, and you just flip them on their head.
+- People come up to me and say, 'Can I just thank you for writing my life?' And I reply, 'I'm glad someone else is as idiotic as I am.'
+- I have always thought of comedy as an important job and medium, and so I put pressure on myself to do the best I can.
+- I have lots of ambitions. I'd love to do theatre. I'd like to be in 'Tea With Mussolini 2;' I'd like to touch Meryl Streep - which would involve being with her in some exotic location. I have lots of fantastical dreams.
+- Because I have a dog, it's easier to work at home: I sit in a horrible weird 'Mastermind'-style chair and bask in my own mediocrity. Being single, I've no family life to distract me at the end of the day. Apart from taking the dog for a walk, I have no other responsibilities.
+- I'm such a comedy fan that I just love laughing and so admire comedians who have brought me joy.
+- I have a fantastic method for anti-ageing. It's eating. Plumps out your skin beautifully.
+- I am pleased to say that as I get older, I get less and less like the sitcom 'Miranda.' She is really a clown character, a heightened version of the 20-something me.
+- There are some professions that culturally and sociologically take a long time to change, and because of that, there's still sexism in comedy audiences. We shouldn't blame them: I do it too. A woman comes on, and I feel slightly anxious. I'm a woman in comedy, and I do that; I think everyone does.
+- I do feel that there is a little confusion in people's minds between the real me and sitcom Miranda. I am pleased that people identify with the character, but I think they want me to be her and are disappointed that the real Miranda doesn't actually fall into graves or be that rubbish at life.
+- However much I might have yearned to be one of The Beautiful Ones, particularly at those ghastly school discos, where any desperate attempt to impress the opposite sex lead to at best deep humiliation, I now feel extremely blessed that I wasn't.
+- My greatest crush was Chandler from 'Friends.' And Goran Ivanisevic.
+- I absolutely don't write for women - far, far from it. It's so not what I want to do. Some of the writers, who have helped out at the beginning and end of the process - they're all men - have suggested quite feminine subjects they want me to explore. And I'm always, simply, 'No.' I don't want to do diets, don't want to. I just can't do it.
+- I only really and truly fully relax on my own. Give me a sun lounger, a pool and a sea view, and I'm happy.
+- I'm quite a confident person in many ways, but there's only so much you can hear about being compared to Hattie Jacques. For the record, she was a comedy goddess, but she was 25 stone. I hope I'm right in saying I'm not in any way nearly 25 stone.
+- I loved school. Not sure how much I focused on the education; just had fun and played lacrosse for seven years. It was lucky I had sport, which I was good at, so it didn't matter that I wasn't great on the academic side, or not brilliant at drama. Although I am still bitter about not being in the school choir. Furious, actually.
+- Writing humour certainly involves pain. A sitcom is 6 months of writing pain!
+- I am pleased to say that I am not a tortured comedian - I laugh a lot. My twenties weren't particularly happy, but it's the same for a lot of people. In your thirties, you realise that your life and your worries are really insignificant, and you have to force yourself to be more positive and take each day as a gift.
+- I've never felt like a woman fighting in a male world; I've never felt penalised.
+- I hate the fact that we all feel the pressure to go to gyms, have a trainer if money allows, get jogging - all those societal pressures to keep fit and look a certain way.
+- No one likes a show-off, but if parallel parking was an Olympic sport, I would get gold, no probs.
+- I spent my childhood clad in 1970s hand-me-downs, primarily from male cousins, which mainly consisted of a selection of beige, brown and orange dungarees. That, combined with a perfectly round pudding-bowl haircut, made me look, on a good day, like a cross between Ann Widdecombe, one of the Flower Pot Men, and a monk.
+- We all get given these bodies, and they're all fascinating and different... I wouldn't want to be without the wrinkles.
+- You want comedic themes to be recogniseable life truths that we all battle with, and with that comes the healing properties of comedy.
+- I am not married, no. I wasn't really into the notion when I was younger, but now I think a proposal is the ultimate romantic gesture.
+- I see myself as a comedian rather than a female comedian. I happen to be a woman, but I am a comedian by trade.
+- I kiss, but I don't tell.
+- No blessing goes uncontested. It will take a long time to get your dream.
+- I never admitted what I wanted to do for a career to anyone until I was 26. I wish I'd piped up at 18.
+- Being tall is very good for reaching high shelves and seeing in a crowd. Sadly, it has also given me the inability to dance. There's too much of me to look neat, which is most disappointing.
+- I started watching some 'Doctor Who' recently on my own and got too scared. I had to watch it in the daytime - I'm pathetic.
+- I'm not particularly into the formal, political side of faith, although I am spiritual and I do have a faith. But 'Strictly Come Dancing' is my religion.
+- About me - I used to want to be a P.E. teacher, and kind of still do.
+- It's on the bucket list for sure to do a comedy film, even if it was just one line on the lot.
+- Obviously I love the fans, and it's beyond lovely that people like my work, and I love saying 'Hi,' shaking a hand, doing a high five. All that's fine. But the posing for photos is so time-consuming and frankly a bit weird.
+- Pessimism is my default setting.
+- My mum said to me once years ago, which really spurred me on, 'You're the funniest person I know'. I loved that.

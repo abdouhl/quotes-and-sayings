@@ -1,0 +1,62 @@
++++
+author = "Theo James"
+title = "Theo James Quotes"
+quotes_len = "56"
+description = "the best 56 Theo James Quotes"
++++
+- While I find my job as an actor challenging, I also think that there's fun in that challenge.
+- New York cops are very specific in terms of the way they talk and the way they handle themselves.
+- We're in a world where masculinity, especially with these big spectacle movies, is often pushed by rippling six packs and forcing an image down someone's throat trying to prove masculinity. Whereas I think true masculinity comes from having a strong sense of self.
+- Let's see... I have a thing for pretty legs. But most importantly, I like confident women.
+- I saw 'Captain America' in 3D. It's cool. I liked the beginning. It's a really good setup.
+- Sometimes the nature of a big movie, the nature of the material, the scene doesn't have the richness that you'd want it to.
+- I'm definitely a joker.
+- I think the best way to become a character is by osmosis as opposed to thinking directly about stuff.
+- I've got two brothers and two sisters, so there's five of us and we're all very close, which is cool.
+- What is interesting, as well, is how much power homicide detectives have and how much respect. They are kind of rock stars, especially in New York. There are not that many of them.
+- I did my share of kid acting, like lots of us do. I even played King Herod when I was 6, but when I got to the end of my school period, that was it.
+- You question, as anybody should, the overarching worth of your profession, right? So that's a question I've often asked myself.
+- It's frustrating we still don't see more movies featuring strong women.
+- I'm a pessimist by nature, so I don't believe something until someone has kind of punched me over the head with it.
+- My obsession is plastic packaging. It makes me sick, all the waste. Everything about it disappoints me.
+- Working with Woody Allen was extremely gratifying. He has such a vast catalog of great work that doing one of his films was somewhat unreal.
+- Sprinting for a full day in Atlanta in midsummer proved very challenging. That humidity is crazy. Georgia is a beautiful state, but the weather is intense. I was warned, but for some reason I thought it would be like L.A. in the summer. The reality? No.
+- I'm a bit of a dude. I like meat. But I am buying it more responsibly, where it's more sourced responsibly.
+- To me, the difference between New York and London is that things are boring and staid in London.
+- I've had some strange notes from fans and a few weird gifts.
+- I want diversity in what I do, as that's what helps you in the long term. It's more fulfilling, and you'll have a longer shelf life as an actor.
+- I was in the school plays, I did a lot of music. I carried on through university for short films and loads of plays.
+- If you don't finish a day of stunts with a lot of bruises, you feel like you haven't done it right.
+- I know there's Brooklyn and all the boroughs, but Manhattan specifically is so condensed that the energy is very vibrant. Everywhere you look there is something happening.
+- I was thinking recently, I've always loved the ocean. If I could do it all again, I might do an oceanography degree. You can do ocean archaeology, and I thought that might be fascinating to do - man-made structures, where the sea has risen above the structures.
+- What I like about the 'Underworld' thing is that it's a mix of cool genres, as well as creating its own message.
+- New York cops are very specific in terms of the way they talk and the way they handle themselves. All these cliches that, as an Englishman, I thought were from a bygone era or were a bit of poetic license with cop shows - the more you hang out with them, the more you realize how real that jargon is.
+- In Britain, you do your job. When you do an American TV show, there is a sense of being one with the crew, and there is a leadership element, which was a learning curve for me because it is very different culturally. In Britain, you just do it, leave and say, 'Thanks.'
+- Sometimes the best parts are the leading men. But the little parts can be similarly gratifying.
+- I have the same friends I've had for years and the same family. Unless you love rock n' roll and Hollywood parties and having your photo taken, I don't think necessarily things need to change too much.
+- Inherently, I'm not a huge extrovert, so I actually find interviews and all the glamour to be a bit challenging sometimes.
+- British shows, especially on a first commission, don't get the cash that the U.S. shows get.
+- I was in New Zealand and met this girl. Her sister dared me to bungee jump, so I did! It was a spur-of-the-moment decision - I wanted to impress the girl, and it worked! We were in a relationship after that.
+- People say that New Yorkers aren't friendly, but I think they're more friendly than Londoners. Here there is a front-footed nature of Americans. You can go out on a night out and meet 10 random people and stay in touch with them, whereas that's not going to happen in the same way in London.
+- Every time I come, I'm still amazed at the breadth California has. Big Sur, Yosemite, the desert... I love it.
+- I don't think I believe in ghosts, per se. But, my nearest experience was when I went on a weekend away and was in a bar in England, years ago, with an ex-girlfriend. I heard this scratching. I was about to go to bed and I was thinking, 'It's an old ghost.' I could hear this noise, but I couldn't work out where it was coming from.
+- I'd love to do something where I played a musician.
+- Diving into Internet speculation is like playing with the devil. It's tempting, of course.
+- I try to use public transport, always.
+- I had a pretty steep learning curve in film - as I'm still learning.
+- One of my fears would be getting torn apart by a great white shark. I love the ocean, but I always have this deep fear of getting torn apart by a great whitey.
+- I know I often get a job because of how I look. I hope that I keep the job because of how I act.
+- I know that everyone wants to know about 'Downton Abbey,' but the truth is that it was only a few days out of my life. Still, you play a distinctive part on a hit series, and everyone suddenly knows who you are. Isn't it crazy how this business works?
+- I watched 'The Shield.' That was a big show for me.
+- You know what actors are like. You can sometimes be like, 'Darling, darling, we love each other,' but you don't really know them.
+- I just like being present.
+- I did some British TV and bits and bobs here and there. I've been lucky.
+- There were times I when I'd go out and have some fun, but I wouldn't say I was a 'playa.'
+- Read more. Read every time you go to bed; read in the day - because at least, reading a book, you can't be distracted by anything else.
+- I think you can tell when a New York show isn't shot in the city. It's so iconic and has such a specific energy.
+- 'Divergent' is a story about people who don't fit into a category - that is a big part of the message - but it's also about conformity and forcing people into these simple archetypes. At the end of the day, humans don't exist like that. We're multifaceted.
+- I've been part of five different bands in my time.
+- I find sharing intimate details with people that you don't know an interesting concept. I like to keep some things to myself.
+- Naturally, obviously, nudity is a part of life.
+- I always think that you finish one movie, you start a new one, and you think, 'OK. I did that last one. Now I've learned. I know how this works.' Then by the end of the movie, you think, 'No, I don't, really.'
+- Everybody has a bit of body armor they wear to protect themselves, and love is about trying to break it down. You have to see who a person really is and connect with her to break that armor.

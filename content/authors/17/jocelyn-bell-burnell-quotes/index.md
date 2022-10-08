@@ -1,0 +1,62 @@
++++
+author = "Jocelyn Bell Burnell"
+title = "Jocelyn Bell Burnell Quotes"
+quotes_len = "56"
+description = "the best 56 Jocelyn Bell Burnell Quotes"
++++
+- In the field of astronomy in the mid-'60s, quasars were very sexy objects - gigantic, star-like masses about which little was known. I was a graduate research student at Cambridge working towards my Ph.D. and chose quasars as the subject for my thesis. Part of my project involved surveying the sky for them using a radio telescope.
+- Arguably, my student status and perhaps my gender were also my downfall with respect to the Nobel Prize, which was awarded to Professor Antony Hewish and Professor Martin Ryle. At the time, science was still perceived as being carried out by distinguished men.
+- The Sun's magnetic field reverses every 11 years. There have been a quarter of a million reversals since our predecessor, Homo Habilis, emerged, and they haven't killed us yet.
+- If you'd got a very conservative Republican in power, they might not be happy about some of the scientific research going on, because it conflicts with their fundamental beliefs.
+- I may not have got the Nobel Prize, but I've won countless other awards, including 'Most Inspirational Living Woman Scientist.'
+- If you look at other countries, you'll find lots of girls doing physics, engineering, and science. It's something to do with the kind of culture we have in the English-speaking world about what's appropriate for each of the two sexes.
+- I think a spell abroad for anybody is incredibly useful. It gives you a great sense of perspective, and you see other ways of doing things.
+- You can convert the teachers, and you can convert the kids, but if they go home saying they want to be a physicist, and the parents question why they would want to do that, then it makes it very difficult.
+- There is stardust in your veins. We are literally, ultimately children of the stars.
+- Throughout my working life, I've been either one of very few women or the most senior woman in the place.
+- I believe it would demean Nobel Prizes if they were awarded to research students, except in very exceptional cases.
+- I didn't always have research jobs.
+- My thesis project was to identify quasars, which are very distant, very energetic objects and still quite mysterious.
+- People are suspicious of science. They see it as being responsible for problems like the degradation of our climate. There is also a strand in society that says physics is terribly hard.
+- When I went to my local grammar school, Lurgan College, girls were not encouraged to study science. My parents hit the roof and, along with other parents, demanded a curriculum change.
+- I do suspect we are going to get signs of life elsewhere, but how well prepared are we for this? Have we thought how we will approach them? We need to start thinking about that.
+- I think failing the qualifying or the 11-plus actually hurt me more than I realised. After I'd become a professor of physics at the Open University, I suddenly thought, 'This is a bit silly.' So I suddenly became much more open about it. But I think probably I was hurt by the failure and didn't want to talk about it.
+- Radio astronomers are aware in the back of their minds that if there are other civilizations out there in space, it might be the radio astronomers who first pick up the signal.
+- There's some evidence that if you're recruiting, you tend to recruit a mini-me. Then you have a very comfortable group round a table. You all think alike. You agree. People are arguing that the banking crisis was because too many of the relevant bodies were thinkalikes, and that if they'd had more diversity, maybe it wouldn't have happened.
+- Women of my generation who've stayed in science have done it by playing the men at their own game.
+- Some of the hydrogen in your body comes from the Big Bang, and when you see a kid walking down the street with a helium balloon, you can say, 'There goes some of the primordial universe.'
+- We live inside our universe and cannot get a bird's-eye view of it from outside. And we cannot even see all of our universe. Distant parts of it are expanding away from us so fast that they are invisible; they go faster than the speed of light. Having bigger telescopes to see fainter stars will not help us here: invisible is truly invisible.
+- That is one of the things that has come out of the discovery of pulsars - more knowledge about the space between the stars.
+- We still don't know what about 96 per cent of the universe is made of. It is dark matter and dark energy, but we have no idea what it is.
+- I was born in Northern Ireland, also known as Ulster, and I'm Scots-Irish, therefore.
+- People from different backgrounds approach a subject in different ways and ask different questions.
+- Britain has still got rather fewer astronomers than many other countries - the French and the Italians, for example. Why is that? I don't think those countries have better brains.
+- I'm the eldest of four children: a brother next after me and then two sisters.
+- I know from another pulsar astronomer who won the Nobel that you get no peace. You're asked about every subject under the sun. It quite wrecks your life.
+- I positively encourage time abroad to anybody. It's worth taking the time to suss out which countries in the world are well funded for your subject and look for opportunities there.
+- A search for truth seems to me to be full of pitfalls. We all have different understandings of what truth is, and we'll each believe - or we are in danger of each believing - that our truth is the one and only absolute truth, which is why I say it's full of pitfalls.
+- As observatory architect, my dad was partly concerned with the maintenance of them all. I used to go with him on site visits quite often, from age 7 or 8. I have memories of crawling through the rafters of the old building, trying to find where the leak in the roof was.
+- When I became a professor of physics circa 1991, I doubled the number of female professors of physics in the U.K.
+- Demarcation disputes between supervisor and student are always difficult, probably impossible to resolve... it is the supervisor who has the final responsibility for the success or failure of the project.
+- I became conscious in later life that I had been given an education that enabled me to do all kinds of jobs, but often, jobs weren't open to me.
+- In Quakerism, your understanding of God is revised in light of your own experience, while in research science, you revise your model in light of data from experiments.
+- It's now widely recognised that a diverse research group is usually stronger, more creative, and more robust and flexible. Such a group usually copes better in a downturn.
+- I've enjoyed being a single person, particularly because I'm travelling a lot. It would be hard to maintain a relationship - so I've really not tried.
+- We all have fundamental beliefs of one sort or another, and it is very threatening if somebody is saying they're wrong.
+- I'm one of the few women in science. I have pioneered that. One of the things I worry about is what that pioneering has done to me. I have had to fight quite hard most of the way through life.
+- I am very conscious that, having worked part time, having had a rather disrupted career, my research record is a good deal patchier than any man's of a comparable age.
+- There are some countries where there is not an issue with women in physics. Malaysia, for example, has physics departments where 60 per cent of undergraduates are female, and France and Italy are strong, too. It is not about ability but more about what the culture says is appropriate.
+- We didn't get television until quite late, the late fifties, but we had radio, and I can remember listening to the Korean War news on the radio with my family and sensing the anxiety of the adults although not understanding it myself, not understanding exactly what was going on.
+- Solar storms cause power outages. They pose a hazard to satellites. They might interfere with your GPS or send your compass a couple of degrees off course. But I don't think solar storms are a life-threatening event.
+- When I got engaged to be married, it was assumed that I would quit science and be a housewife. It was considered shameful if a married woman had to work - it implied that her husband couldn't earn enough to keep her.
+- The more diverse a research group or a business, the more robust it is, the more flexible it is, and the better it succeeds.
+- My generation was the turning point. Women older than us didn't expect to have jobs or careers; those younger did. But we were where it was changing - which is interesting but uncomfortable.
+- Science is a quest for understanding.
+- My father was an architect.
+- The universe is very big - there's about 100,000 million galaxies in the universe, so that means an awful lot of stars. And some of them, I'm pretty certain, will have planets where there was life, is life, or maybe will be life. I don't believe we're alone.
+- Although we don't know what is outside our universe, astronomers still wonder. Several pictures of what there might be have been dreamed up. An interesting one, called multiverse, has lots of universes. Picture it as a foam of bubbles. Our universe would be one bubble, and we'd be surrounded by lots of other bubbles.
+- Pulsars are in an ideal part of the universe to test Einstein's theory of relativity - so far, it's holding up well. They may even one day act as navigational beacons for spacecraft. I'll never tire of them; they really are the most extraordinary objects.
+- When I started secondary school, it was assumed that the girls would do domestic science and the boys would do science, and I wasn't too happy with that.
+- If it wasn't for the stars, we would not be here.
+- Once a star dies, it's gone forever. There are no new stars to take its place. Eventually, there will be no stars, and the universe will turn black. That really will be the end.
+- One of the hazards of making a major discovery early in your career is the burden of expectation, not helped in my case by becoming a wife and mother soon afterwards. I'm sure some people think it was a flash in the pan.

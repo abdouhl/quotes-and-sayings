@@ -1,0 +1,31 @@
++++
+author = "Alan Patricof"
+title = "Alan Patricof Quotes"
+quotes_len = "25"
+description = "the best 25 Alan Patricof Quotes"
++++
+- Google is addictive.
+- Cloud computing eliminates capital expenditure, so you can go global very quickly - you don't have to have extensive servers in every country.
+- Our national debt poses a threat to all Americans and is particularly troublesome both for well-established businesses and for those seeking to enter into the marketplace.
+- I love art; I collect mostly modern art.
+- Like many of my friends and associates, I am a life-long Democrat. We have a rock-solid commitment to supporting the political party that we so strongly believe offers the most promising vision of America: one that recognizes the proper role of government, the importance of compassion, and the value of diversity.
+- It's hard to make small investments when you're a billion-dollar fund.
+- I got my first job the old-fashioned way: I took an elevator to the top floor of many buildings and walked down floor by floor on the stairs going into every firm and asking the receptionist if she knew of any jobs available.
+- The Enterprise Value Tax is unprecedented, punitive, and has no justification in the tax code.
+- The advent of interactive communications has created an inflection point where it's economical to provide education differently than in the past.
+- The only thing... in-store retailing has that online doesn't have is it has the ability to touch, smell, feel, and experience.
+- As someone who understands what's needed for entrepreneurs and start-up companies to succeed, I can tell you there is nothing more integral to their success than operating in a stable financial system.
+- Every venture capitalist says at some point, 'I wish I could run this company myself' - to be the entrepreneur instead of the investor.
+- We've done education nonprofit through our history, and maybe the profit motive will be helpful.
+- I got my first job at a firm called Naess & Thomas.
+- In times of huge fiscal deficits, no new revenues can be ignored, and renouncing any becomes well nigh politically impossible.
+- I was very early on in taking venture capital abroad: to Europe first, then Asia.
+- As a venture capitalist, I invest in people and ideas that are fresh, vibrant, and willing to disrupt the market. As a political donor, I like to see the same energy in the people I support.
+- It's tough, no matter how good your technology is, to police every single comment coming up.
+- Your initial instincts about investments and people are usually correct. We do a lot of due diligence in this business and most of the time it comes out where we started.
+- My philosophy, in a nutshell, is to wipe out the greatest amount of risk with the least amount of money.
+- All American consumers have the same needs - to buy great consumer products, with savings and value, and with the convenience of easy delivery.
+- In my 40-plus years as a venture capitalist, I have come to appreciate the certainty a healthy economy provides for businesses both large and small.
+- It's actually a pretty basic concept: when businesses feel secure and confident, they are more likely to grow, hire, and invest. Conversely, when the economy is unstable, businesses often become much more risk averse, and in many cases, they're forced to make undesirable cuts that affect their bottom line.
+- I think CSR, corporate social responsibility, is something that is becoming front and center.
+- I didn't understand the culture and what Starbucks was really about. It wasn't a coffee shop. It was really a way of life... we suffer from thinking that since we have it in New York, or it won't work in New York, that it won't work some other place. That's a discipline we keep trying to improve.

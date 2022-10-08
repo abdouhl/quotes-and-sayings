@@ -1,0 +1,24 @@
++++
+author = "Karl Barth"
+title = "Karl Barth Quotes"
+quotes_len = "18"
+description = "the best 18 Karl Barth Quotes"
++++
+- Laughter is the closest thing to the grace of God.
+- Joy is the simplest form of gratitude.
+- Whether the angels play only Bach praising God, I am not quite sure. I am sure, however, that en famille they play Mozart.
+- What God chooses for us children of men is always the best.
+- In the Church of Jesus Christ there can and should be no non-theologians.
+- Faith in God's revelation has nothing to do with an ideology which glorifies the status quo.
+- Grace must find expression in life, otherwise it is not grace.
+- No one can be saved - in virtue of what he can do. Everyone can be saved - in virtue of what God can do.
+- Jews have God's promise and if we Christians have it, too, then it is only as those chosen with them, as guests in their house, that we are new wood grafted onto their tree.
+- Man can certainly flee from God... but he cannot escape him. He can certainly hate God and be hateful to God, but he cannot change into its opposite the eternal love of God which triumphs even in his hate.
+- Men have never been good, they are not good and they never will be good.
+- It may be that when the angels go about their task praising God, they play only Bach. I am sure, however, that when they are together en famille they play Mozart.
+- Jesus does not give recipes that show the way to God as other teachers of religion do. He is himself the way.
+- Conscience is the perfect interpreter of life.
+- Religion is the possibility of the removal of every ground of confidence except confidence in God alone.
+- It is always the case that when the Christian looks back, he is looking at the forgiveness of sins.
+- Faith is never identical with piety.
+- The best theology would need no advocates; it would prove itself.

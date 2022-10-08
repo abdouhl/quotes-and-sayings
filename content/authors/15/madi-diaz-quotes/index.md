@@ -1,0 +1,25 @@
++++
+author = "Madi Diaz"
+title = "Madi Diaz Quotes"
+quotes_len = "19"
+description = "the best 19 Madi Diaz Quotes"
++++
+- My parents were super supportive of my big dreams; I was pretty lucky. I guess I became a musician because I didn't see myself doing or loving anything else as much.
+- Hopefully, one day I won't have to be so caught up in all of that day-to-day, the Twitter and the Instagram. But I also would like to, at some point, turn off and take a break and also be, like, an artist.
+- My dad was a musician who went to Berklee, and he made me learn piano when I was five.
+- There isn't a single artist out there, I'm sure, who wouldn't take the most perfect record deal. If the right record deal came along, like, the perfect deal, we'd definitely take it.
+- I could never ever say enough about Matt Amato. He has an indescribable presence; this warm, loving, serene calm with intense interest and excitement bubbling beneath his exterior.
+- I love to perform at benefits and charity fundraisers.
+- I'd say, for my freshman year in college, I was doing everything in my power to hide the fact that I had ever had any association with the Paul Green School of Rock Music because it was like this bruise. It was such a sore subject.
+- Coming to Nashville has been so motivating and inspirational. Just watching people live and breathe their music and create something that they can feel from start to finish.
+- I can never sit still. I wanna hurl myself into life.
+- When you're in a songwriting class, and you write a song, and you hand it in to a teacher to grade, I'm still going to say that it's a really awesome song whether I got an A or a D. I learned to stick to my guns and take the tools as tools and not as rules.
+- Both of my parents were super music lovers when I was growing up - they had a massive record and tape collection. I think my dad even had a couple of laser discs, but that was a short-lived thing.
+- I was pretty lucky to get into Berklee at all. I never really had any theory or music-reading capabilities; I was completely by ear.
+- One of my favorite feelings is the sense I get from pouring over parts of my past before lighting them up and leaving it all behind me to start over again.
+- It seems that for all of the artists signed to a major, there exists the same amount of artists that are struggling to break through to the surface within the label. I think, ideally, we'd end up with a very well connected competent indie team that will be along with us for the ride, however long that ride may be.
+- I use Shazam all the time.
+- When I moved to Nashville, I didn't really let myself sonically explore, but things naturally got a little more poppy. And in L.A., even more so.
+- When I was in Boston, I was doing a lot of Americana stuff - I fell in love with Ray LaMontagne, Patty Griffin, and Neil Young.
+- It took five days to drive to Los Angeles by myself. I listened to Abbey Road for six hours at a time and watched the desert open up before me again and again. I saw the sun set and rise at the Grand Canyon, and I sang out over the cliffs, picked up tumble weeds along the way and threw them in the back of my car.
+- My parents were big music fans, and my dad plays music, so I grew up with Madonna, Frank Zappa, the Beatles, Alice In Chains... it was all over the place. I had a Third Eye Blind record, but I also had Korn, Courtney Love, and Shania Twain.

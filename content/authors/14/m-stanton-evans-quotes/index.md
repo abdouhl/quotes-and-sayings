@@ -1,0 +1,30 @@
++++
+author = "M. Stanton Evans"
+title = "M. Stanton Evans Quotes"
+quotes_len = "24"
+description = "the best 24 M. Stanton Evans Quotes"
++++
+- If inequalities of taxable wealth backing up a government service are construed as denying equality before the law, then there is no solution but to have every government service whatever financed out of Washington.
+- As is well known, 'McCarthyism' was an alleged focus of political evil in the 1950s: Accusations of Communist taint, without factual basis; bogus lists of supposed Communists who never existed; failure in the end to produce even one provable Communist or Soviet agent, despite his myriad charges of subversion.
+- In 1775, no fewer than nine colonies had established churches, ranging from Congregational establishments in New Hampshire, Connecticut and Massachusetts to Episcopal churches in the southern states from Maryland on down.
+- I entered Yale in the fall of 1951, and about November of that year, Bill Buckley published 'God and Man at Yale.'
+- I call it the 'House of Reprehensibles.' We don't have any real political resistance to this growth of the domestic state across the board. So I'm much more focused on that than on the Patriot Act, which is a real effort, however inept, to deal with a real problem.
+- From the beginning, the Continental Congress had official chaplains, prayers, and days of fasting and Thanksgiving. When sessions opened in 1774, fear was voiced that the religious diversity of the country would make it hard to choose a form of worship.
+- When 'our people' get to the point where they can do us some good, they stop being 'our people.'
+- Containment, as everyone will recall, was a rough plan for stopping the Communists any time they crossed a certain line dividing our half of the world from theirs.
+- It is fast becoming an article of political faith that financing America's public schools by way of the local property tax is a shame and a civic scandal.
+- I didn't agree with what Joe McCarthy was trying to do, but I sure did admire his methods.
+- The latter 1940s and early '50s were a time of tense, explosive conflict, in the world at large and in the politics of our nation.
+- I was never for Richard Nixon until Watergate.
+- When you get older, two things happen to you. You begin to lose your hearing, and I forget what the other one is.
+- Under the new government of the Constitution, beginning in 1789, all of the peacetime measures were repeated: chaplains, prayers, memorials of Thanksgiving, the Northwest Ordinance, funding for the Christian education of Indians.
+- I've written a lot of books in my time, and to write a book about Joe McCarthy and have some of the major media paying attention, I'm not used to that.
+- Tax cuts are like sex: When they are good, they are very, very good. And when they are bad, they are still pretty good.
+- The trouble with conservatives is that too many of them come to Washington thinking they are going to drain the swamp, only to discover that Washington is a hot tub.
+- Demands for equal financing of sewers, streets, and garbage collection would make more sense than proposals for equal financing of the schools, since some plausible connection may be inferred between the amount of money expended, e.g., for roads, and the quality of service resulting to the taxpayer.
+- I tell my students, even if you are an opinion journalist, your opinion should be based on facts.
+- Annie Lee Moss was a black woman who worked for the Army as a code clerk in the Pentagon. She was identified by an undercover agent of the FBI as a member of the Communist Party. Moss denied it, the Democrats sprang to her defense, and she has been treated ever since as an innocent victim of McCarthy.
+- Soviet expansionism in Europe, the battle for control of China, and the 1950 invasion of South Korea would shatter once-euphoric dreams of post-war cooperation with the Kremlin.
+- The demand that school finances be transferred away from local school districts to the state and/or federal government has been a long-time favorite of the educationist lobbies.
+- Every congressional committee that does an investigation has documents, papers and things that it collects in the course of that investigation - the backup to everything it does.
+- A document was drafted in the State Department in July 1946 by an official named Samuel Klaus. This indicated that there were then 20 alleged Soviet agents, 13 alleged Communists, about a dozen sympathizers, and about 75 suspects in the department, according to the FBI.

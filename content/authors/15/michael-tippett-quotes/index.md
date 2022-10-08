@@ -1,0 +1,28 @@
++++
+author = "Michael Tippett"
+title = "Michael Tippett Quotes"
+quotes_len = "22"
+description = "the best 22 Michael Tippett Quotes"
++++
+- The Greek sculptor - I don't think he was very different from any of us.
+- This is something special. You can attempt to have a kind of non-living music.
+- Shakespeare fascinated me. He hardly ever left the country. His imagination was worldwide though reading.
+- Conductors don't suffer, they are part of the performance.
+- I've seldom become nostalgic or settled.
+- Public notice does not necessarily accord with internal fulfilment.
+- Poetry is fascinating. As soon as it begins the poetry has changed the thing into something extra, and somehow prose can go over into poetry.
+- When we use terms we get confused, yet we have no other way.
+- I am quite certain in my heart of hearts that modern music and modern art is not a conspiracy, but is a form of truth and integrity for those who practise it honestly, decently and with all their being.
+- Characters are an extreme form in Shakespeare's theater.
+- Music is a performing art, as any Native American will tell you. It isn't there in the score.
+- The blues are like the fugue in 18th century. It's probably the music that belongs most to our time.
+- Music remains the most strange of the materials because we don't understand what happens when music moves you.
+- Music is a performance and needs the audience.
+- Beethoven suppressed everything, his personal life disappeared until he was locked inside. That is a figure quite extreme.
+- I think we're all pretty odd.
+- I'm outside the music I've made. I have no interest in it.
+- Nature has different times.
+- My true function within a society which embraces all of us is to continue an age-old tradition. This tradition is to create images from the depths of the imagination and to give them form, whether visual, intellectual or musical.
+- Shiva danced the world into existence... that's a very nice thought.
+- I remain a humanist. We are a very curious race.
+- The nearest figure to myself would be Shakespeare.

@@ -1,0 +1,96 @@
++++
+author = "Michael Morhaime"
+title = "Michael Morhaime Quotes"
+quotes_len = "90"
+description = "the best 90 Michael Morhaime Quotes"
++++
+- I think every year we get better at running BlizzCon. The scale of the event is so large and I think people appreciate the logistics involved in putting on such an event.
+- Our original mission and values consisted of four simple words that formed our foundation: 'We make great games.' We crafted that statement before we had even released our first game, but we were committed to living up to it.
+- One of the things I think has been important for Blizzard is maintaining the direct relationship with our players. Having a platform that we owned and controlled was important for that strategy, and also to not be dependent on other publishers.
+- A lot of the successful Blizzard games that you know actually grew out of failed projects. That was the case with 'World of Warcraft.' We canceled a project and decided to work on that one.
+- If we can help to make the interactions between folks online safer and more friendly, that would make it all more fun and more gratifying for everyone.
+- I don't think consoles are necessarily our best opportunity for 'World of Warcraft.'
+- Activision is structured with independent studios and they give their independent studios quite a bit of autonomy.
+- E-sports used to be this niche thing. We knew it was really cool, but outside of a very narrow audience you really didn't get a lot of exposure.
+- We felt it was very likely the fee would be a deterrent for people, and that 'WoW' would not sell as quickly as some of our previous games.
+- Activision and Blizzard both believe that we're in an expanding market where we can reach more people across multiple platforms, geographies and age groups. Both of our companies are positioned very well to take advantage of those trends to keep lowering the barriers to get more people into gaming.
+- To break the mold, sometimes you have to start over.
+- Our first console game was 'RPM Racing.' We started and released that project in that same year we founded the company, 1991.
+- If we were to choose to do something on a console, the merger with Activision is going to be extremely helpful.
+- When you think about 'World of Warcraft' as a social network, and you think about the future version of Battle.net as Blizzard's social network, then you wanna stay connected to your social network.
+- Well, 'Diablo III' went from no players to over 10 million in a very short period of time. It's really difficult to predict that type of response.
+- I think that gaming is more fun when you're playing with people that you know.
+- At the time we started working on 'World of WarCraft,' I think there was a limiting belief in the games industry and maybe outside the games industry, that MMOs would only appeal to the most hard-core of hard-core players, and therefore you didn't really need to do anything to make the game accessible to the wider audience.
+- I think people are interested in watching what they know and what they care about, so as you have more people where gaming is a huge part of their life, they want to see what the top players in the world are able to do.
+- I was always fascinated by technology and wanted to understand it so when I went to UCLA I studied electrical engineering figuring they knew how things worked.
+- I've met several times with the Activision guys and we've talked at length about Blizzard's philosophy on game development and game publishing and all the things that are important to us at Blizzard. We found that we shared a lot of the same values.
+- BlizzCon will always feel like home to me.
+- I'd been with Blizzard for almost 28 years when I stepped down.
+- When you launch a game, you really don't know how many people are going to show up.
+- I want to thank all of the talented and hardworking people at Blizzard for their dedication, creativity and passion. It has been a privilege to lead this team.
+- We'd really like for BlizzCon to be something that the people who really really want to go, if this is something you're really passionate about, you want to be here at BlizzCon, we'd like it to be possible for you to get here. When we are selling out in a couple seconds, it's really not possible for a lot of people that really want to come.
+- We're basically responsible for making sure you have a great time. If you buy a Blizzard game, we want that to be a great experience.
+- Focus is so important when you're making games.
+- 'Diablo 3' was never really designed to be an eSport, and not every game necessarily needs to be an eSport.
+- We've always had a cultural commitment to reach as many players as we could.
+- Blizzcon is a Blizzard show. It's not an Activsion/Blizzard show.
+- If you're going to create a competitive game and it's going to be popular, you have to have an esports ecosystem around the game.
+- I am surprised by the level of toxicity sometimes that exists online, especially where people can say things anonymously.
+- You should take your reputation very seriously and try to build a track record you can be proud of.
+- 'StarCraft II' is a really great game. It appeals to players on multiple different levels.
+- We created BlizzCon as a celebration of our global community, but not everyone can travel to the show, so the virtual ticket gives us a great way to bring BlizzCon to gamers around the world.
+- I have a great time playing 'Overwatch.'
+- One of the design goals for 'Starcraft 2' was to factor in better features that would make a better viewing experience for e-sports.
+- Well, the team that created 'Starcraft 2' is probably the most experienced real-time strategy team in the industry - there are members of that team who have worked on all our RTS games going back to 'Warcraft.'
+- The great thing about 'World Of Warcraft' is that you can sit down in your lunch hour and do a couple of quests and still feel like you've had a meaningful experience, rather than it feeling like you've got a second career.
+- We love BlizzCon. It's great. It's our favorite thing to do. But first and foremost, we're a game company, and we have to make sure we deliver good quality games for our players.
+- One thing we wanted to take from traditional sports with 'Overwatch League' - we have city-based teams. There aren't really any other models where you have a global city-based league. But you do have teams that are based in a location.
+- I mean, Blizzcon is a great event for us. It's a way that we can basically say 'thank you' to our most passionate players, and it's a great place for us to announce new things.
+- When we look back, what we often find that's most lasting and meaningful from our experiences in games are the relationships we create and foster.
+- Blizzard has definitely evolved around crunch. In our early days, we crunched crazy hours to get the games done.
+- What's really interesting is when you see players using tactics or combinations of units that we'd never even thought of.
+- I think at one point there were three television channels showing 'Starcraft' tournaments in South Korea. We were so unprepared for its success.
+- BlizzCon is a great example of how positive and uplifting gaming can be.
+- As a spectator eSport, I think 'StarCraft' is really exciting, engaging, and interesting to watch. As a player, it just really has something for everybody.
+- 'Starcraft' is a fairly strategic game with depth.
+- Live streaming has been huge in eSports.
+- There is another person on the other end of the chatscreen. They're our friends, our brothers and sisters, our sons and daughters. Let's take a stand to reject hate and harassment. And let's redouble our efforts to be kind and respectful to one another. And let's remind the world what the gaming community is really all about.
+- There's the saying that perfect is the enemy of great, because if you strive for perfection you'll maybe never ship. There's a point that's good enough. But I do think that there's so much competition out there that if you don't hit the quality bar, the product will just fail.
+- As our players have become more experienced playing 'World of Warcraft' over many years, they have become much better and much faster at consuming content.
+- We're thrilled to see eSports continue to grow in popularity around the world.
+- Activision has their own games. Blizzard has our own games. We're not going to go in and fire their people and they aren't going to come in and fire any of ours.
+- If you put smart creative people in a room together, great things are possible.
+- Blizzard has moved into this mode of continuous development. We're contributing a lot of content to our games to keep them evolving.
+- We'd always felt that it would be cool to put the player into the world of 'Warcraft' as a single character, exploring the land and meeting other players, but it really wasn't until 1999 that we thought it was feasible to do it.
+- A lot of games that preceded 'Warcraft' made the assumption that this type of game wouldn't appeal outside the hard-core audience, so that's what they targeted. We thought this type of game could appeal to more people if we made it easier to use.
+- Of course, we create a lot of heroes. But the real intention of that is to make the player feel like a hero in all of our games.
+- There is definitely a trend of broadening the idea of who a gamer is.
+- 'Lost Vikings' and 'Rock 'n' Roll Racing' were pretty critical games to us. We got some acclaim as a result, some video gaming awards. Those are the games that impressed Davidson and Associates and led to the merger talks.
+- A 'Starcraft' showdown between humans and AI itself will be interesting.
+- With a very small team you can create compelling content and reach a large audience.
+- The popularity of eSports was inevitable.
+- The cool thing about 'Hearthstone' is, in terms of accessibility to competitive play, it's very accessible. Anybody can participate in these types of things.
+- It was controversial when we were settling on what the races should be in 'Warcraft 3!'
+- The development of gaming in Asia usually serves as the marker for how their company predicts the development of gaming will go globally.
+- People are getting older. Nine years ago, some people weren't old enough to play 'WoW.' Now they are. We want to be there to be the MMO of choice for them as they grow up.
+- We looked at the sales of 'Warcraft III,' which at the time was the bestselling PC game of all time, and we said, 'That's got to be our ceiling.' We were wrong.
+- ESports is a big part of 'StarCraft II,' and I think it adds a lot of longevity to the game.
+- 'Starcraft' was never designed to support multi-byte languages. In order to support more complicated languages like Korean or Chinese, you need two bytes of storage and 'Starcraft' only had one byte.
+- When you look at how players experienced 'Diablo' I and II, there was a great desire to meet up and trade items for real money outside of the game. There's no real way to provide a secure and safe environment for doing that outside of the game. It really has to be integrated within the game.
+- I had no idea you could get an Emmy for creating a computer game.
+- We want gaming and e-sports to be something that is welcoming and appropriate for everybody who wants to come and watch.
+- We're definitely thrilled that so many people around the world were excited to pick up their copy of 'Diablo III' and jump in the moment it went live.
+- There's no such thing as 'next time we'll do it better.' Do it better this time.
+- When we started Blizzard, we just wanted to make great games. What we realized is that the games we create are really just a framework for communities and human interaction.
+- 'World of Warcraft' was not always a smooth situation. People who played 'World of Warcraft' during the first year can attest to that.
+- When we were making games in the early '90s for the Super Nintendo and the Sega Genesis, popular games didn't have any real story.
+- We're always trying to improve and to make our games better.
+- Ultimately the only way to win is to create great games.
+- Asia is the founding land of competitive gaming.
+- As you start to see more respected advertisers coming in and looking at esports, you're going to find that there's a lot of interest.
+- Sacrificing high quality for speed, it just isn't worth it.
+- I would say a lot of us here think being called a geek is cool. A lot of us at Blizzard identify with it.
+- 2013 is going to be a very important year for eSports. We see this as the beginning.
+- From a development standpoint, at Blizzard Entertainment one of our values of course is commitment to quality.
+- I used to be the guy that sat in the back.
+- I think if you're a small studio, you're living or dying by the success of the next project, it takes a lot of superhuman effort - or at least it did for us.

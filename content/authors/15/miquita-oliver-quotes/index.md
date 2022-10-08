@@ -1,0 +1,88 @@
++++
+author = "Miquita Oliver"
+title = "Miquita Oliver Quotes"
+quotes_len = "82"
+description = "the best 82 Miquita Oliver Quotes"
++++
+- I was once given a huge LG TV, which was the size of a house... all because I went to a party!
+- I was on holiday in Morocco and in the middle of nowhere some random strangers suddenly shouted out 'T4!' It was so out of the blue; l was terrified for a minute!
+- Growing up, I saw Mum as being so celebratory of our culture. So I was surprised to hear - during discussions sparked by the Black Lives Matter protests - about the racism she experienced growing up, and the shame she once felt about being black.
+- It was rough having my body develop, fluctuate and become fleshier in front of the 'Popworld' cameras.
+- We didn't really like each other, Simon and I, because we didn't understand each other. We're very, very, very different people from very different lives.
+- I dropped my prompt cards in front of Josh Hartnett once and I've never recovered.
+- I remember one episode trying to be really gassed about The Darkness and thinking, 'This just feels really forced.'
+- I did Justin Timberlake when I was 18 and I was so nervous I couldn't breathe properly. It was the first time I'd done an interview where I realized the scariest bit is the part before.
+- I'm used to presenting programs about pop music, interviewing pop stars, and hosting awards.
+- I'm quite bingey; I'll be really healthy for two weeks, but then I'll be really crap for a week. I don't get ill, though.
+- Looking back, I had a great lockdown - the vibe of my family got me through it. Every night we'd cook, play tunes and dance.
+- Any nature documentary or TV show will always make you start thinking differently about what surrounds us and how to take care of it.
+- The interview with Busted changed everything - it was just so funny, and we were all on set and they couldn't stop laughing. And I remember thinking, 'We're onto something.'
+- It isn't something I expected to be good at, but I am an amazing skier.
+- 'The Victorians' show is like no TV I've done.
+- I actually have a real soft spot for Kerry Katona.
+- When you skip to a beat, it is a much more pleasurable way to stay active. It becomes a mixture of dance and skip.
+- We grew up in west London, everyone was poor, and we bought our clothes from charity shops or from Portobello.
+- I've received some very creepy letters, from some very creepy men.
+- I've always been very honest about the fact my weight goes up and down, but I think that's the same for a lot of people.
+- Shopping second hand has always just made me feel good.
+- Do you know what, the reason I haven't worked loads and loads is because I got so lucky working on 'Popworld' and T4. They were such unique pieces of telly, so I got really spoiled.
+- When I was declared bankrupt it felt like I was in a financial mess I would never get out of.
+- Fashion shows scare me, and I've always been a bit more of a scruffbag. I'm not really put together like that.
+- I like to be reminded that life is going on.
+- Simon has always said we're a chat show pretending to be a music show.
+- With 'Popworld' I've had the most brilliant time and I'm so proud of everything Simon and I have done with the show.
+- When London first went into lockdown, Mum and I were in the car listening to the radio. We drove to our local Turkish supermarket and saw queues around the building. Everyone looked terrified. I burst into tears when I got home.
+- That the word 'sustainable' can be a bit intimidating, but it's just about keeping an eye on your daily decisions.
+- Black boys always fancy a mixed-race girl. That's my theory anyway.
+- I do have a personal trainer who I'll go to every day - I lose loads of weight, then I get lazy and put it all back on again.
+- I had a mini-breakdown and had to move back in with my parents. But then I got a great therapist and it saved my life.
+- At 17 I was earning money I didn't know how to handle and before I knew it I owed thousands to the taxman.
+- If you weren't nervous, you wouldn't have such a good time knowing that you did a good job.
+- It's weird being mixed race, people never talk about the white side, they always talk about the black side.
+- At the interview, they asked me what music I liked and what I thought of Britney Spears. I said she was an idiot. Then they said I'd got the job. I was absolutely terrified.
+- I find real strength in Drake and I think it's because he's so gentle and confident in his delivery. It's like, he's not panicking and overselling himself or trying to lie.
+- Quite a lot of the American rappers will be a bit confused by the humor and a bit lost. But I think you have to give people the benefit of the doubt.
+- It sucks if you're having a fat day and you still have to go on TV.
+- I've been going around London obsessing about people's gardens; I take pictures on my BlackBerry.
+- I think I'm just realizing what a huge luxury it is to be able to do whatever we want on television.
+- I went bankrupt and then I didn't tell anyone.
+- I cannot express how much music got me through lockdown. I re-discovered Roberta Flack, Smokey Robinson, and Aretha Franklin.
+- I'm not a huge fan of Britney Spears' music but I very much understand her relevance.
+- I cut off my curls and got hair extensions because I felt they made me look more acceptable - more white. I just wasn't very comfortable being a mixed-race woman.
+- I was in a tsunami with Simon Amstell.
+- I just love second-hand clothes.
+- The thing about 'Popworld' is it became such a luxury to be doing this great show every week, and to have people stop you in the street and say it's good.
+- It's quite interesting to hear the different ways boys and girls talk about sex, because they're not so different at all.
+- I like listening to reggae, hip hop, ragga and R&B when I am skipping.
+- Paloma wool and all of the British Heart Foundation shops - I love checking out the latest donations to find quality, preloved pieces that no one else will have.
+- I get angry when people go, 'Oh, you're just rude to people.'
+- I'm proud of how long we did it for, I'm proud that we left when we did, I'm proud of everything about 'Popworld.'
+- I was definitely getting too cosy. I would probably have done 'Popworld' until I was 60.
+- I started listening to old music that represented Mum and us living in west London when I was younger, and delved deep: SWV, Soul II Soul, Mos Def, A Tribe Called Quest, Young Disciples, D'Angelo and lots of Wu Tang Clan.
+- When I turned 30, six years ago, I decided to run the London Marathon and I did not even really train. I thought that it was not even that difficult. I completed it in 5hr 15min, I could have got closer to 4hr 30min if I had trained properly.
+- When I turned 21, I really wanted to go to uni, and then I thought about it and realized all I wanted was the experience. All the stuff you do in uni, I did in London, which is hang out and party with friends - but instead of getting up and going to lessons, I got up and went to work.
+- It's really bad to show kids the only way to be successful is to be famous, anyway.
+- I started 'Popworld' at the age of 16 so for me it's a bit like leaving school.
+- My dad is white, he's an art history teacher, he's very traditional.
+- Me and most of my girlfriends have said that we would never have a boob job, but we all said that we might have a boob lift. That doesn't sound so surgical, does it?
+- It is so important to be active when you are young, and I think it would have helped me tenfold if, alongside 'Popworld,' school, T4, Radio One and all those other things I was doing, that I had played a bit of sport at the weekends with my friends.
+- Tupperware! I use every size I can get.
+- You can be very honest about being nervous.
+- JLS got the biggest reception at T4 On The Beach - it was like whoa, OK!
+- I like girls who look like they never brush their hair. That's the key to real style.
+- My parents had a six floor warehouse on Curtain Road called Cordy House between 2004 and 2007 where we had some of the most banging and memorable London parties.
+- I was declared bankrupt a few years ago, which really made me grow up and look in the mirror, face myself, and find strength.
+- I love looking back on it because it wasn't just 'Popworld' - it was my life.
+- When I'm interviewing people, the way I bond with them is by encouraging them to complain about how hard their day is.
+- I started presenting when I was 16, and because TV is such a small world, you often end up working with the same people. I would say I've worked with pretty much the same circle of people ever since, so in a way I have always felt cradled by them, protected; they've looked out for me because they've known me since I was a child.
+- I was only 15 when 'Popworld' started. We had no money, no budget, no one knew who we were - they just wanted a nice pop show.
+- I've always wanted to live really high up, and this is the only flat in the building with a balcony, so I feel quite smug up here.
+- When I was 15 I went to live with my aunt and uncle instead of my mum, for money reasons. It was a huge shock to my system, suddenly living with six people rather than one. Hopefully it changed me for the better.
+- In my group of friends it's not really a big deal that I'm on telly. They're all much more famous than me.
+- I'd like to become a female Louis Theroux.
+- I don't think I'll ever shop on the high street in the same way again. It just doesn't have the same excitement for me.
+- Me and my nan dress exactly the same.
+- I cry at the drop of a hat.
+- Just the sound of the paper ripping relaxes me.
+- I interviewed Michael Caine the other day for a film about him being a magician and we did it in - and by the way, this place does exist - the Ministry of Magic in Marylebone. I know, it's ludicrous!
+- I couldn't think of anything worse than getting naked in front of the entire world, it must take a lot of confidence to do it.

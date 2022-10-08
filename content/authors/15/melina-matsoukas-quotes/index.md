@@ -1,0 +1,28 @@
++++
+author = "Melina Matsoukas"
+title = "Melina Matsoukas Quotes"
+quotes_len = "22"
+description = "the best 22 Melina Matsoukas Quotes"
++++
+- I still have this habit, I guess, continued from college, where I procrastinate up until the last moment.
+- The reason I got into filmmaking was super naive: to change the world, you know? To really make the voices that we don't get to hear heard and the images and the stories that we don't get to see seen. I would like to normalize that.
+- I really can't get involved with any project that I don't feel a hundred percent I can stand behind.
+- I like to create provocative imagery. Sometimes it works, and sometimes it goes awry.
+- I like to see a video through a computer or through a phone to make sure it looks good at its worst. I hate when you perfect something for the ideal way of consuming things, and then when you see it on YouTube, it looks like crap.
+- I never feel like anything I have done is perfect. I feel like there is always room for improvement.
+- Sometimes, humor is the only way we get through the day.
+- I grew up falling in love with music videos and those images: Hype Williams and Mark Romanek, David Fincher and Diane Martel and Paul Hunter, just from the video side. I grew up also watching a lot of independent films and foreign films.
+- I like to know that my actors or my performers are going into it with the same amount of passion that I have for the project. They're as dedicated to achieving as I am.
+- As a toddler, my favorite piece of clothing was my Oshkosh denim overalls that I would call my Oreos because I could never say Oshkosh. I was literally obsessed with them and wanted to wear them every single day.
+- I love that denim can be as simple or as complicated as you want it to be. Anything goes.
+- In college, I interned at a production company and spent a lot of time on sets. I love music videos and felt I could be experimental and hone my craft in that genre, so I started there.
+- I've tried to create a comedy that doesn't look like any other comedy. Maybe traditionally in TV there has been a kind of formula that says, 'Oh, comedy has to look this way; it has to look super bright.' But the way we shoot 'Insecure' is motivated by the mental state of each of our characters.
+- Denim comes and goes into style often, but my Levi's have longevity. They will never be just a fad.
+- The worst career advice is to just do something because it's paying, and there are a lot people out there that will push you to take a job because of money. I am not motivated by money, and I have found a lot of disappointment when I've had to do something because I needed to support myself in that way.
+- I never really saw myself as a comedy director, and I still don't. I see myself as a director.
+- I got a young black woman agent, and she kinda just knew what I would be attracted to. She sent me this pilot for 'Insecure.' I never saw myself as a comedy director, but when I read those pages, I said, 'Wow - this is my life on the page.'
+- For me, the scariest moment is walking on set before we shoot the first shot, and I am so anxious. It's a lot of pressure, and it's scary, and I don't think that fear ever goes away.
+- My style is super versatile and doesn't pertain to any one category. It can be best compared to a mood ring. It is very dependent on the mood I am feeling for the day.
+- It's important for women to embrace their beauty and sexuality. Females are victimized and made to feel ashamed of their bodies, or they can't be smart and beautiful, and I try to work against that.
+- I usually hate most of my work: probably at least more than half of it.
+- I'm proud of who I am. I'm proud of my history. I'm proud of the women and the men who came before us who are black, and I'm proud of the women before me who are black and who have achieved so much, even though we have so much against us, and we don't have those doors opening for us every day.

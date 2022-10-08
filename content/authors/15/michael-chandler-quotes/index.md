@@ -1,0 +1,106 @@
++++
+author = "Michael Chandler"
+title = "Michael Chandler Quotes"
+quotes_len = "100"
+description = "the best 100 Michael Chandler Quotes"
++++
+- Training in Las Vegas at Xtreme Couture was awesome and I was there for almost two years.
+- I look after two people - my wife and my son.
+- My body is durable, my body is able to withstand a lot of practices, a lot of punishment.
+- It really has been just take it one day a time, one fight at a time, one training camp at a time, one year at a time.
+- Obviously, beating Alvarez was the first step to getting my name out there. Now people now know who I am and see, at least in some part, that I'm the real deal.
+- I'm not who I am without the organization of Bellator.
+- I just turned 34 and feel like the best striker I've ever been.
+- I talk to my god every day and he's completely fine with me beating the hell out of people.
+- Letting emotion get into it isn't part of my game. Letting animosity or a rivalry come into it, that's all for the show.
+- My wrestling's always better than most people's.
+- I had my first fight in August of 2009 and haven't looked back since.
+- If I had the opportunity to fight Khabib, or anyone ranked No. 1 - I've played that in my head a million times.
+- You see it from my area, from any area, really, so many who want to be great and have the drive, but don't have the resources. I'm very blessed that I have a family that was financially stable enough to get me to tournaments and camps and to practices so I could wrestle year-round.
+- Finishing a guy like Benson Henderson, who hasn't been finished since for six years, the guy doesn't get finished and I finished it with a switch-step switch to Southpaw, knocked him out with my left hand.
+- On my way to winning the title, it was great for me, but once I won the title, it was tough for me to get fights.
+- You got to surround yourself with the strongest in the world, the strongest training partners and the best people. That's what I do.
+- There's still times I wish I could throw on the black and gold singlet and go out there in the Hearnes Center and wrestle for the Missouri Tigers. I miss that and I miss the stuff about college wrestling.
+- I'm going to stash up my cash and invest in real estate. I want to be set up for the end of fighting.
+- Benson is a champion. I'd be lying to you if I said I wasn't scared to death inside this cage, stepping into the cage with that monster.
+- I pretty much just train... and go to church on Sundays.
+- I eat about every three to four hours.
+- If I could do this until I was 60, I would. This is a great life. All I do is train, all I do is work out, and prolong my life by the training that I'm doing, the things I have to do as professional athlete.
+- I think overall body awareness and knowing exactly where I need to be makes a big difference. Knowing how much weight to put on each foot or where I need to put my hands are things I'm very good at. Obviously with the wrestling background those are things that come naturally.
+- I had so much growing up and I'm so thankful for all the people who invested in my life.
+- I really have a heart for children who suffer from cancer. I can't imagine having to go through that at such a young age.
+- There are always a ton of different people to learn from and people that are pushing me to get better.
+- Once I'm in training camp, there's no beer, there's no soda, there's no bad food. There's no anything. It's eat, sleep and breathe training.
+- There are a lot of people who don't believe I deserve to be recognized as one of the top-10 best and I don't necessarily disagree with them.
+- I didn't even drink in college.
+- Benson Henderson is a professional; he's a champion. He knows how to handle himself in the cage and he knows how to win fights.
+- My goal is to win and to finish fights quickly.
+- I never focus on my opponent - I focus more on myself: knowing what my strengths are, where I can take the fight, how I can win the fight, and the intensity that I'm going to bring to a fight.
+- The people who know me, the fans who've watched my fights, they know what I'm about. They know that I'm going to give 100 percent of everything I have each and every time I get into the octagon.
+- I've had the belt and it's great. But at the end of the day it's just 12 pounds of leather and gold.
+- Brandon Girtz is a tough man who can really throw the leather, but I'm on a different level.
+- I knew I wanted to fight. It's a great way to continue competing and not to mention actually make money. You can make a career out of it.
+- I'm happy with the life I'm making for my wife and son. That's the most important thing.
+- I just think that with my wrestling background there's not going to be any doubt in my mind that if I have to go through a three round war that in the third round I'm gonna be more fresh, more tenacious, I'm gonna want that win more than anybody else I'm going to have to fight.
+- Life throws you curveballs and there are things that happen - you don't understand why they happened at the time. But then you step back and understand you're a better fighter and competitor because of the things that happened.
+- I love collegiate wrestling but the thought of training for international stuff just didn't really appeal to me.
+- You don't hope to go up and hit a single. You go up and hope to hit a home run.
+- I'm just blessed that fighting was an option. Now I'm doing it and I love it. I thank God every day that I'm in the sport.
+- Derek Campos is really tough.
+- I do have some unfinished business with Josh Thomson. I think that's a fight fans want to see, it's a fight Bellator wants, it's a fight I want.
+- Life is too short and too sweet to complain about the silly things.
+- God has always opened up doors at the right time. He's closed doors at the right time.
+- Financial freedom is very important to me because when that kind of stuff is taken care of, I can just focus on fighting.
+- When people talk about the lightweight division they will probably mention my name a little bit. Whether they believe I don't deserve to be up there or I do, they are at least going to mention me.
+- Not since 2011, when I stepped into the cage and fought Eddie Alvarez for the first time and was the extreme underdog - I've never quite had that feeling of a 10 since then.
+- I do love the outdoor. Love love the outdoors, fishing and hunting and that kind of thing.
+- Bellator wouldn't be who they are without my performances and Michael Chandler wouldn't be who he is without Bellator promoting him and us having a phenomenal symbiotic relationship.
+- I got a wife and a son I have to fight for.
+- Benson Henderson is a guy that I fought before. He has two arms and two legs. He has certain patterns, mannerisms and tendencies that I know I can go out there and exploit.
+- It is not that hard to go out there and put on the performance of your life and beat any guy in the lightweight division on any given night.
+- I actually have a tattoo on the left side of my chest that says 'Blessed.' It represents how blessed I've been in my life and how thankful I am for all that I have.
+- I've been blessed so much in my own life and I want to spread that blessing to others who need it.
+- Growing up as a wrestler, especially in practice, I think you get used to competing without much of a crowd around.
+- The belt will grow dust and sit on the mantelpiece, but it's not about the belt. It's about how I can be as a father, as a human being that matters to me.
+- I'm a guy who's been around this sport on the outside looking in, seeing, watching, scheming, plotting and planning his next big move.
+- I like Scott Coker a lot. He built Strikeforce, turned it into what it was and he has a great reputation with fighters and other promoters.
+- America was built on hard work and not complaining about stupid junk.
+- Henri Hooft has made my hands and feet deadly weapons.
+- It's damage to a nerve. It pretty much shut down the whole lower part of my left leg. I wasn't able to step anymore. It's called foot drop - basically, you can't lift your foot.
+- Nothing has really made me upset aside from the baseless, false accusations of PED use.
+- For as long as I can remember, our family has been huge Cardinals fans. My grandpa is a personal friend of Whitey Herzog's; they were neighbors for decades. Our love and support of the Cardinals definitely runs deep.
+- I train my butt off every single day.
+- I love Scott Coker and I love Bellator and I love what we have built together and it's a little uneasy to think that I will no longer be under contract with Bellator after I knock out Benson Henderson and get my hand raised.
+- Everyone who has kids that you talk to tells you, 'Wait until you have kids. It's going to change you.' You're like, 'Nah, come on. How can it change you that much?' But it changes you so much.
+- I've taken fights on short notice while injured to help save shows, and in return I've been taken care of.
+- Obviously, as a young, young, hungry fighter, I'd like to be fighting three or four times a year.
+- If it's an emotional chick-flick type of movie, chances are, I'm going to end up crying. I'm not afraid to admit that, because I think emotion is very healthy.
+- I want to build a brand that inspires as many people as I possibly can.
+- If fighting ever got in the way of my marriage, you'd see me sacrifice my career.
+- I built my name on fighting so hard - I'll always do that - but I'm also trying to become more of a veteran, to be be calm and calculated and not always trying to bowl people over.
+- I'm trying to be the best lightweight fighter in the world. That's my main objective. I just have to keep my head up, keep training and enjoy this awesome ride that I'm on.
+- I was never an upper body wrestler. I am a shooter.
+- I'm just getting better every single day and I want to be the best in the world.
+- For me, I want to make sure every single day I wake up and give thanks for everything that I've been given in life.
+- I've had a phenomenal life. I have a phenomenal God that I serve. I have a phenomenal wife.
+- At first I thought, beer's nasty. Then I found IPAs. They're delicious.
+- I'm a force to be reckoned with.
+- Some guys, when they enjoy some success in this sport, they get complacent. Not me. It makes me work and train that much harder, helps to bring out the warrior in me.
+- For me, getting up is an inside job, but it has been hard stepping in the cage with guys who I've had to lose against and not a lot to gain.
+- No matter where I've been or where I go, a piece of Missouri is always with me because this is where I'm from and where I grew up.
+- Nothing bad can happen if you train your butt off and make the right decisions and surround yourself with the right people.
+- The greatest thing about fighting a guy like Dave Rickels: He always comes to fight.
+- I'm a nasty human being when I step into that cage, but before that I could care less.
+- Somebody with a huge brand like Bellator under an even huger brand like Viacom, to have them put their faith in me, to put me in so many things, to put me in commercials, send me to all these events, and just to continue to put me in the cage with great talent, it's great.
+- I just try to keep the main thing the main thing: getting my butt in the gym.
+- When you're wrestling, it's such an amazing sport. I love it. I loved that I came from that background.
+- There are always a couple of ways you envision fights going; you always envision a win and a great finish.
+- Henri Hooft is the greatest striking coach on planet. He's phenomenal leader - he makes me believe in me more than I will ever believe in me.
+- I don't focus on how I'm gonna get the finish or how I would like to get the finish. I focus on just my game plan that I've gone over with myself, my coaches. If the finish comes it comes.
+- I'm always training to be quite honest, but there are those moments when you're a little more out of shape than you should be.
+- When I first started fighting, it was just me. But things changed when I married, knowing that I had another person counting on me.
+- I didn't have to fight. I chose to fight. I believe God put me on this Earth to be able to do this and do it at a high level.
+- Bellator has taken care of me, and I've taken care of them. It's been the perfect storm of a symbiotic relationship - them having an asset they were not willing to lose, and me being in a situation where the grass isn't always greener on the other side.
+- It's a fast-paced somewhat violent sport, but it's very much entertaining. And the greatest thing about mixed martial arts is that it transcends a lot of demographics.
+- I don't want to just be a great fighter, but also a great man.
+- It's OK to have a little bit of pride in yourself.

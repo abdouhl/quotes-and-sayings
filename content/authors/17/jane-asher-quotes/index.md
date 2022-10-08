@@ -1,0 +1,38 @@
++++
+author = "Jane Asher"
+title = "Jane Asher Quotes"
+quotes_len = "32"
+description = "the best 32 Jane Asher Quotes"
++++
+- Of all the things I do, acting is the thing that grabs most, but there's another level on which it strikes me as being a little silly. In the end you're dressing up and deciding to be somebody.
+- I adore food and always have.
+- I know some actresses who used to be older than me who are now younger than me - I don't know how they do it.
+- Acting has been very useful to me.
+- Spreadable butter is wonderful for cake-making: it's much easier to cream than the block type and slightly lighter because it's blended with oil.
+- It makes me upset, if not angry, when people assume that there can be no morality without a religious framework. If there's a moral framework without all that religious stuff, it's more valuable.
+- Thank God I've never had the sort of intense fame that means you can't walk up the road. That sort of blazing stardom must be difficult to cope with and maintain; my career has just bubbled along happily.
+- I don't agree with the whole 'my mother's my friend' approach, because you're their mum and there has to be a difference between the generations.
+- An actor's job is about putting across the author's intention; I don't think of myself on the same level as a creator.
+- I enjoy the crafts on the show enormously, too, when we have experts in showing how to make things. You watch them thinking you'll go home and do the things yourself, which is fun. Some I have done myself later on.
+- I try to be classic without being mumsy.
+- I look at myself objectively and in a way I see myself as a commodity. Your name becomes somehow outside yourself. Now, when I'm at home being Mrs. Scarfe, that's when I'm most myself.
+- I think one wants lots of different lives.
+- Having cakes as a business certainly changes things for me - I don't now sit at home doing a cake for the fun of it anymore. But it's an extremely happy and pleasureable business to run because people are generally buying cakes for celebrations.
+- I'm not advocating we should all be back in the kitchen and cooking all the time, because life's too short and we've got more interesting things to do. But to rediscover the intense pleasure of making a cake and putting it down on the table is ridiculously satisfying, out of all proportion to the work.
+- We get a lot of overseas people wanting to order cakes.
+- As a child, I wanted to marry a farmer, but no doubt the reality would have been very different to the idyll in my head.
+- I'm a creature of habit, so I like going to boutiques, rather than larger stores, where I know I'll find something that suits me every time.
+- I've never particularly liked the idea of looking back; I'd rather look forward.
+- I do find modern jazz quite tricky.
+- Listening to my regular favourites - Mozart, Beethoven, Brahms and so on - I always feel, quite misguidedly, that nothing can be too bad if such beauty and brilliance exists in the world.
+- The rehearsal time is almost my favourite part of being an actress, particularly if you're working on a play that hasn't been done before.
+- I was always very determined, as was my husband, that we wouldn't let any of our children act when they were young.
+- I do enjoy fashion - a lot of runway clothes are pretty unwearable, but if moderated, the trends can be worn by just about anyone.
+- My parents were not theatrical at all.
+- I think all good writing is a struggle. To write as well as you feel you can has to be a struggle, almost by definition, because you could always improve.
+- I swim more or less every day.
+- I learnt basic cookery by watching my mum.
+- The things you leave school knowing - some dates and long division - so much of it has been of no use to me. Schools should teach the basics of cookery, first aid, how to look after your money and how to speak foreign languages. Useful things.
+- My mum taught me that redheads shouldn't wear pink, red or orange, but if you choose the right shade, such as a bright orange or a cherry red, it can look fabulous.
+- People ask what the secret of a happy marriage is. If there is one, it's 'don't talk about it.'
+- There's also something of an illusion in that, you can perhaps record a TV thing one month and complete a book the next and then be in a play. Then, if they all come out at once, it looks as if you're actually juggling a million things.

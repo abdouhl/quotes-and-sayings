@@ -1,0 +1,53 @@
++++
+author = "Michael Che"
+title = "Michael Che Quotes"
+quotes_len = "47"
+description = "the best 47 Michael Che Quotes"
++++
+- I kind of write in my own little world.
+- I would love to do more TV and do movies for the experience, but my ultimate focus is stand-up. It's the number one thing that I love most because there is nothing like being with a live audience.
+- When I was little, I used to suck the candy coating off of Advil and spit the white part back in the bottle.
+- When you're doing comedy constantly, you're organized: you know where everything is, you know how to get out of it, you know how to stretch it. But, like, doing 'SNL,' I stopped doing spots, and then I would finally do some sets - it take me so long to, kind of, get in the rhythm of it.
+- I have six brothers and sisters. My mother has six kids from two different marriages. And we would just sit around making fun of each other's dad, and all our dads had real problems.
+- I remember liking the MTV awards when I was a kid.
+- Cartoon violence is something very vivid and dark but made palatable for children in a fun way. That's the kind of comedy I do - I try to take subjects that might seem deep and make them as silly as possible.
+- I'm not saying I shouldn't have to pay any taxes, but I shouldn't have to pay as many as somebody that votes. I don't vote because I don't know anything about politics. And honestly, I can't believe they'd let me. Isn't that an important thing? They'll just let me pick the president! I don't gotta know anything!
+- Live comedy is fantastic. It's when live comedy is transcribed and reported and critiqued outside of the venue without context that things become complicated.
+- Comedy's my outlet for my ridiculous emotions.
+- Watching someone getting really angry can be very funny - if it doesn't affect you, you can laugh at it, and the sillier the thing he's angry about, the funnier it is.
+- I can tell how honest a joke is or how true a joke is by how fast the laughs come.
+- It's true - my mother kicked me out the house at 14. I had to go live with my sister. I had some problems. I was very rebellious as a kid. I don't even know why or where it came from, but I had a lot of anger. Me and my mom clashed a lot because she didn't tolerate that, as she shouldn't from a 14-year-old.
+- I grew up in the projects with four older brothers.
+- Improv classes were too expensive, so I just started going to open mics. And the day I did it, I did, like, three because I just loved it so much. It was so much fun. And it wasn't good, it was just fun to do. It felt like a release.
+- Your number one job as a comedian is to be aware. You're supposed to understand the temperature in the room more than anyone on the planet - that's the whole craft of comedy.
+- When I was about nine, I went to school with a toothbrush in my mouth. I saw Method Man do it in a video.
+- I can't speak for every American comic, but for me, a great show is its own reward. Comedy is too subjective for awards.
+- If I think something's funny, I try to mold it into a joke as soon as possible. Once I have a joke, I say it a million different ways on stage until I find a rhythm and it feels like it's as good as it can be.
+- If I'm doing a show on Sunday at 7 P.M., that wouldn't be the same show that I'd do at 11 P.M. on a Saturday - it's a different room at a different time of day with different sensibilities. That doesn't mean you have to compromise your art, but it is communication: you have to know how to talk to people.
+- I get to do what I love for money. It's weird to process that.
+- I like comedy that's not political but social, dealing with issues of people talking to each other. No matter what your politics, we still have to live with each other. Politics is taking a side. I'm not running for office, you know?
+- Nothing is funnier than a true story told by a bitter old black man.
+- If you're honest about things, people will trust you, even if you're a bad guy. That says something about where we are and who we are as people.
+- I'm lucky enough to have two different platforms to perform on - I do stand-up comedy, and I have 'SNL.' That's where I make my most controversial statements because I can explain myself and I'm in control of the microphone, as opposed to Twitter, where it's in the hands of the reader.
+- If I could work with Eddie Murphy on 'SNL,' I think I could quit comedy forever. For me and my generation, he's God.
+- I follow a lot of news outlets on Twitter, so I'll just go skim through the headlines and see what's going on.
+- America's a gangbanger country. We got our gang, and everything else is irrelevant.
+- I feel like comedy is only respected on the highest level, and on every other level, it's like a joke, like, 'Ugh - comedian,' you know?
+- I'm from New York, and I started in New York, which I think is a huge advantage because I wasn't overwhelmed by the city. I understood the city. All of the distractions that could come with somebody that started comedy in New York didn't really happen for me.
+- I used to paint pictures - what happened was, I used to draw and paint pictures. And some of my friends would be, like, 'Yo, you should put that on a T-shirt,' because that's where their brain would go.
+- I think satire suffered under Obama, but not because of Obama. People are more sensitive now than ever, and strong satirical voices are stifled because of that. I don't think a Clinton presidency would change that.
+- Some things hit close to home with people, and it's going to be hard to tell someone who lost somebody on 9/11 that a 9/11 joke is funny.
+- In comedy, you work with people so often that they just become familiar faces - it's like a fraternity.
+- My uncle is a martial artist, and in the early '80s, he made a kung fu flick with director Charlie Ahearn.
+- It's a unique fraternity to be a standup. I think everybody understands, you know, opportunity, and everybody - especially at the top - are genuinely rooting for you.
+- I'm a huge Steven Martin fan.
+- I feel like most standup comedians do it the way I did it, where you just go to open mics and cut your teeth. Sketch and improv - they take a lot of classes. It's not unusual, the way I did it. It's just that, with standup, no one knows how to start because there's no book for it; there's no place you can really go.
+- I don't know how you can do comedy once every two weeks. Ever since I started, if I'm off for three days, I got to learn how to do comedy again.
+- Comedy is subjective.
+- I always feel like you don't do comedy for the special - you do the specials so you can do comedy. That's like a commercial for people to come out and support the new shows.
+- If you really think everything in your life, everything that you benefit from comes from socially aware, like-minded, good-hearted people, then you're out of your mind. If you want only those people to have good jobs, we would have to learn how to adjust very quickly without those people. Maybe I'm cynical, but I truly believe that.
+- When you grow up in the city, New York is so big that you can kind of stay in your own little corner of the city and think that that's it because you don't need anything. You don't have to venture out; you don't have to touch the boroughs. You can kind of stay in your neighborhood, and there's everything there.
+- To deliver something deadpan is very difficult; I don't think people know how hard those jokes are.
+- I'm a big Knicks fan, and I will tell a professional basketball player that they suck because they didn't do what I wanted them to do.
+- Black people have, like, this thing, and I have it, we all have it, we have this kind of embarrassment. Where we don't like white people to find out our little insecurities and out little quirks. We don't really like that that much. It's kind of, we're like, 'Don't let them know - that ours; that's for us.'
+- Yes, I believe in equality. But I don't like the word 'feminist,' because it's such a rational belief to think that women are equal to men, and I'm a rational person. You shouldn't be labeled for being reasonable.

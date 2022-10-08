@@ -1,0 +1,52 @@
++++
+author = "Ken Follett"
+title = "Ken Follett Quotes"
+quotes_len = "46"
+description = "the best 46 Ken Follett Quotes"
++++
+- Well, for people who want to write best sellers, the best advice I can give is to say that the novel has to engage the reader emotionally.
+- I'm a great planner, so before I ever write chapter 1, I work out what happens in every chapter and who the characters are. I usually spend a year on the outline.
+- There is a real connection between Philosopy and fiction.
+- We all now tell stories by cutting from one dramatic scene to the next, whereas Victorian novelists felt free to write long passages of undramatic summary.
+- Most of my stories have some basis in fact.
+- The thriller is the most popular literary genre of the 20th century.
+- A very good editor is almost a collaborator.
+- For success, the author must make the reader care about the destiny of the principals, and sustain this anxiety, or suspense, for about 100,000 words.
+- There was a very serious communist strain among American intellectuals before the war. America was a more tolerant place in those days, and Communists were not treated as pariahs. That ended with the McCarthy era.
+- I wake up with the story in my head, so I really like to be at my desk about five minutes after I wake up. So I don't get dressed. I put on a bathrobe, I make tea and sit at my desk.
+- I started writing stories in my spare time.
+- When I'm writing a woman character, I don't think, 'What would a woman do?' I just think, 'What would this character do in this situation?'
+- Movies have influenced all writers, not just thriller writers.
+- The research is the easiest. The outline is the most fun. The first draft is the hardest, because every word of the outline has to be fleshed out. The rewrite is very satisfying.
+- I have quite a few different Bibles. Having rejected my parents' religion, I still think the King James Bible is the most important work of literature in English. None of us can help being influenced by it.
+- I start with the history, and I ask myself, 'What are the great turning points? What are the big dramatic scenes that are essential to telling the story?'
+- I might not be a good socialist, any more than I'm a good Christian, but I am one.
+- The CIA's research program is described in a book called The Search for the Manchurian Candidate.
+- After a certain point, most people, including editors, will tell you everything you do is great.
+- My favorite period is World War II, and I'm in the middle of writing my fourth novel set in that era.
+- I wanted to be some kind of captain of industry. Then I wanted to be in advertising, and then I wanted to be a newspaper reporter.
+- It's great that in the German language I've sold almost 30 million books. Isn't that amazing?
+- I use a professional researcher in New York who does all the legwork, all that stuff which would take me days and weeks of calling, waiting for people to call back.
+- I read mostly fiction, a lot of 19th-century novels.
+- I went and looked at one of these great cathedrals one day, and I was blown away by it. From there I became interested in how cathedrals were built, and from there I became interested in the society that built the medieval cathedral. It occurred to me at some point that the story of the building of a cathedral could be a great popular novel.
+- Without books I would not have become a vivacious reader, and if you are not a reader you are not a writer.
+- I am very fond of Edith Wharton. She's quite high brow but also a great storyteller. My favorite is 'The House of Mirth.' I also like 'The Reef.'
+- An awful lot of thriller writers write women rather badly. So just doing it OK gets a lot of credit.
+- I enjoy learning technical details.
+- Listen, I wrote 10 unsuccessful books before I broke through, so I'm looking all the time to keep my books fascinating. I want to write what people want to read, not push any message.
+- I aim to be translucent, so you don't notice the words, just their meaning. I haven't much insight into people's motivations.
+- I like reading history, and actually most authors enjoy the research part because it is, after all, easier than writing.
+- I want to tell a story that makes the reader always want to see what will happen next.
+- With the World War II era, there's so much written material to draw on. When you go back to the 14th century, you have to imagine more.
+- James Bond is quite serious about his drinks and clothing and cigarettes and food and all that sort of thing. There is nothing wry or amused about James Bond.
+- I don't think there's any great mystery to writing female characters, so long as you talk to them. If you lived in a monastery and never met any women, maybe it would be difficult.
+- World War II is the greatest drama in human history, the biggest war ever and a true battle of good and evil. I imagine writers will continue to get stories from it, and readers will continue to love them, for many more years.
+- I like to create imaginary characters and events around a real historical situation. I want readers to feel: OK, this probably didn't happen, but it might have.
+- Culture clash is terrific drama.
+- People are much more complicated in real life, but my characters are as subtle and nuanced as I can make them. But if you say my characters are too black and white, you've missed the point. Villains are meant to be black-hearted in popular novels. If you say I have a grey-hearted villain, then I've failed.
+- With hindsight, we see that the Soviet Union never had a chance of world domination, but we didn't know that then.
+- Thrillers have been traditionally very masculine books; the women characters often rather decorative.
+- In my books, women often solve the problem. Even if the woman is not the hero, she's a strong character. She does change the plot. She'll often rescue the male character from some situation.
+- There is no point in asking a man a question until you have established whether he has any reason to lie to you.
+- Be a perfectionist.
+- One of the hardest things for me, now that I'm famous, is finding people who can read my stuff and give me an honest critique.

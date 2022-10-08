@@ -1,0 +1,169 @@
++++
+author = "Jason Statham"
+title = "Jason Statham Quotes"
+quotes_len = "163"
+description = "the best 163 Jason Statham Quotes"
++++
+- I like fashion. My mum was a dressmaker, believe it or not, so the consequence of that was that all my clothes were homemade, and I looked like a terrible mess until I was old enough to buy my own. But I love good tailoring.
+- There's a voice in all of us, and you can only get expressive through words. There's a limit to what you can do without speaking.
+- I'm not a method actor; I hope you know that!
+- I could take my grandma and put her in a cape, and they'll put her on a green screen, and they'll have stunt doubles come in and do all the action. Anybody can do it. They're relying on stunt doubles and green screen and $200 million budgets - it's all CGI created. To me, it's not authentic.
+- I want to work with Will Ferrell. I want to do, like, an action-comedy with him. How do I get the project for that? It's killing me. I've got all these great ideas, and the hardest thing is getting the material, the screenplay, you know.
+- People who are in a position of power like to throw their weight around, and that becomes abuse.
+- People love stories about the mafia: 'The Godfather,' 'American Gangster.'
+- You got to be careful mentioning people as great as Clint Eastwood. You can't put me in the same sentence as that man.
+- I'm a big Bruce Lee fan, and if I saw Bruce Lee try to be some namby-pamby lawyer, I'd want my money back.
+- Whatever you do, do it to the extreme.
+- I endured many weeks of it, but I had a big background in martial arts and fighting as a kid, so kind of all the problems got brushed away and I was ready.
+- Without doing the big blockbusters, I wouldn't be able to find the money to go after little projects that I want to do.
+- If you got a good imagination, a lot of confidence and you kind of know what you are saying, then you might be able to do it. I know a lot of colorful characters at home that would make great actors.
+- The physical DNA has always been part of our family. My dad was a good boxer and gymnast; my mum is a ballroom dancer, and my brother does martial arts.
+- Action comedy, if you can get it right, it is, for me, a particularly brilliant genre. It really is.
+- You should never assume about someone.
+- Look at someone like Edward Norton. A truly phenomenal actor. He's definitely went to school and trained.
+- The TV world is not what it used to be. I mean, the quality has become something quite exceptional.
+- High risk is high adrenaline.
+- We're trying to make a movie that's interesting.
+- Once you expose your private life, if you give one little bit, the floodgates are open and everyone's got a free range for you.
+- My role model is Sly Stallone.
+- One of the toughest guys in the world is Randy Couture - he is the true epitome of what a tough guy is.
+- A lot of the characters I've played before are heroic or invincible in some ways and not tuned into fear and anxiety and pain.
+- When I'm getting ready for a movie, let's just say my diet is 'The Antisocial Diet.' I don't go to restaurants. I don't eat what I really want to eat. I don't eat much. I eat small things frequently. Lots of protein and greens. And I don't eat with people, because there's a tendency to get social and then to overeat.
+- There's a huge amount of faith and confidence in the stunt team.
+- I've never had an acting lesson in my life. I don't know whether that's a good or bad thing.
+- Comedy is not my first go-to sort of genre.
+- Musclemen grow on trees. They can tense their muscles and look good in a mirror. So what? I'm interested in practical strength that's going to help me run, jump, twist, punch.
+- Some people are very good at that, communicating with the world; I'm not sure I'm suited to it.
+- I was running around and bouncing out of the pram as a baby.
+- Some of my favorite movies are action movies. You want something good to say. That comes from good writing. But writing is not a skill I possess, unfortunately.
+- A lot of actors are frustrated because they want to do things that are different and test themselves. Character actors are always looking for something the opposite of what they did.
+- If we want to talk about the movies that have made an impact in what I do in the action realm - Bruce Lee in 'Enter the Dragon.' I've watched that countless times.
+- Looking good and feeling good go hand in hand. If you have a healthy lifestyle, your diet and nutrition are set, and you're working out, you're going to feel good.
+- I've never been one to run around in Speedos on the beach.
+- Usually, if you've got a great script, everything falls into place.
+- In Hollywood, people get reputations, just rumors that are passed down.
+- If you're gonna do action movies, you're gonna get an injury at some point. It's inevitable.
+- People like to pigeonhole you.
+- I love to get behind the wheel and get competitive.
+- I loved 'The Sweeney.'
+- I've always had a fascination with cars and racing, not that I've ever competed.
+- I think we're all sensitive; everyone has a certain way about themselves that people don't like to let their emotions out too often. I think people tend to suppress them and hold them in, so I think there's a bit of that in me.
+- Revenge is a caustic thing. I say, Breathe in, breathe deeply, let it go.
+- I don't do isolation body building; I just do practical things that help me with the kind of things that are asked of me in action movies. You know, a lot of kick boxing, a lot of sparring.
+- I love people who have a good sense of humor, tell a good story, tell a good joke.
+- Justin Lin has just been exceptional with what he does with that vehicular action.
+- I like a few vintage Rolexes, and Panerais are good. I'm not into sports watches - I like chronometers.
+- And it was a great experience, you know, to travel the world and compete at a certain level. It teaches you discipline, focus, and certainly keeps you out of trouble.
+- I suppose that's the European way, dangerous and hairy.
+- My mom and dad used to tell me, 'You've got to see this film,' and they were influential to a high degree of the films I saw as a kid.
+- People take chances every now and then, and you don't want to disappoint them.
+- Science fiction I've always been a fan of.
+- I think being a competitive diver for years helps you focus and dedicate yourself to what's needed.
+- I love Tony Jaa. He's one of the best and most capable martial arts stuntmen in the world.
+- 'Homefront' was written by Sylvester Stallone. He actually wrote it for himself, which is, for me, an amazing privilege: To be handed a script by Sly that he wrote for himself, that he asked me to do.
+- In L.A., it's very hard to have some kind of conscience of some style out there. The weather's too hot; there's no seasons.
+- Jet was very busy. I've been inspired by a lot of his movies.
+- I had such a good time working with Paul Feig on 'Spy.'
+- Most of the scripts that land on my desk are stuff you read and go, 'Is someone really gonna make this?'
+- You can't be pretentious about what we do, because at the end of the day, movies are about entertainment, and if people get 10 dollars' worth, then that's okay.
+- A franchise is dictated on the success of doing one film right, so if you can get it done correctly, you've got a chance of something else, but sometimes it just doesn't work that way. Ideally, it's insurance for the future; if you can do something, if you can find a character that people really do like, then you're very lucky.
+- I thought 'The Bank Job' was a really quality movie.
+- I don't have to pitch movies. I'm no good at it!
+- The thing about the UK is we don't really make that many great movies.
+- The most frustrating thing about injuries is that they take so bloody long to heal.
+- I remember the first time I saw Robert De Niro at a party. I didn't want to run over and shake his hand. I wanted to admire him from a distance. Later, I ended up making a movie with him, and that was fantastic.
+- I'm into all things German. Everything that I own is German. As far as cars go, anyway.
+- There's so many ways to play a bad guy, and usually people choose the obvious one.
+- The fight training was very extensive, a lot of stretching, a lot of coordination of balance exercises.
+- As an actor, you work to the script: that's our main priority. But you have to be aware and look around for things that help you bring that little bit extra, that touch of realism that rams the point home.
+- I love getting dressed up in a suit because I don't do it all the time.
+- In my misspent youth, I was risky.
+- A lot of good actors are turning to TV.
+- I love the hip-hop scene.
+- Bruce Lee was just so lightning-fast. People try to emulate him in whatever way they can, but to try and do what he was doing... you're just inspired by it; you're not trying to say, 'Look, I can do that.' No one can do what he did.
+- Guy Ritchie, he thinks going to drama school is the worst thing in the world.
+- There's something quite fascinating with crooks and criminals and all things against the law.
+- I tend to leave people alone that I admire.
+- I used to play a lot of racket sports, tennis and squash.
+- I'm very fussy. I'm very hard to please.
+- You don't usually meet directors on the streets.
+- My productivity is overwhelming!
+- Some of my best experiences are with writer/directors. Guy Ritchie is one. I feel they have a clearer view of what they want to do. They haven't got to try and interpret someone's writing; it's all theirs. I really admire that.
+- Every movie you do, you find something in yourself that you probably didn't know that you had, and a director will find something in you that you can nurture and find and bring for the next one.
+- Each director maintains a different personality. Either you get along, or you don't.
+- Well, I'm used to rubbing shoulders with crooks and criminals.
+- Take a martial art or a sport, something that gives you a skill, engages the body, and allows you the possibility of being great - or at least being active. You'll find your confidence. Without it, you're nothing. It's the remedy for everything.
+- A bespoke shirt is one of the true luxuries that you can acquire. There's nothing better than a fitted shirt. Once you've picked up your first one, you'll never stop buying them - providing you can pay for it.
+- I've always got a home in England. My family and friends are there. It's a place I hold very close to me.
+- I'm naturally a protective person to those close to me.
+- It's street theater. You have to make it entertaining so people don't get bored and walk away.
+- Every single day has a different combination of exercises. It always changes, and that's what keeps things interesting.
+- I pick up a lot of stuff from them, but I don't think there's any great trick to acting.
+- There's so many interesting aspects of making a movie: the costume department, the set design, the casting itself, the locations.
+- All of the stunt men - these are the unsung heroes. They really are. Nobody is giving them any credibility. They're risking their necks.
+- We were diving in caves. It wasn't totally safe.
+- There's so much more danger in someone where you really don't know what they're going to do, and you don't know what they're really capable of, rather than someone who's trying to be physically tough.
+- London and L.A. are two opposites - I like the difference.
+- A movie, it's like a very complicated timepiece. There's a lot of wheels in a watch. And some of those wheels, if they don't turn right, then, you know, the watch ain't gonna tell the time.
+- I like to meditate. But I get rid of my stress at the gym.
+- A lot of action movies today seem to have scenes that just lead up to the action.
+- I really enjoyed working with Guy Ritchie. One, it gave me a career, and two, they're probably a couple of the best films I've ever done.
+- 'The Bank Job,' for me, was a great opportunity for me to do some good acting, you know?
+- A kid is something precious, and you want to protect it and keep it fun. I'm not a dad, but I've seen people and how they behave with their kids.
+- I know, a lot of the films I've done, it's obvious I'm going to beat up six guys and just walk out the door. There's not a lot of motivating factors - it's just action for the sake of action.
+- It's good to step out of the box, but don't step out so far that you can't get back in.
+- Suits change a lot - the wide lapel thing, the fashion trends, the trousers change.
+- Yeah, I'd make a decent Bond. But it'd be very, very different if I did it.
+- For years, I've been wanting to do something that has a bit more of a dramatical drive and combine it with some action.
+- I've been unfortunate enough to be working, and recovering from a few injuries now and again.
+- When I was growing up, my dad didn't have weights, so he made himself a weight bench. Instead of a hand-me-down jacket, it was a hand-me-down weight bench.
+- I'm sure everyone that has ever done an action movie has just drooled over how full of talent Bruce Lee was and how unique he was.
+- When I go to the cinema I watch all different kinds of films.
+- If someone's got a fear of heights, they'd probably say, well, hanging off a helicopter at 3,000 feet above downtown L.A. would be the scariest. For me, that's a day's work, something I was very happy to do.
+- Scorsese will only work with brilliant material. And everyone wants to work with him.
+- The insurance of working with a big, already successful franchise just gives you the chance to do other things on a more personal level.
+- Your body is like a piece of dynamite. You can tap it with a pencil all day, but you'll never make it explode. You hit it once with a hammer: Bang! Get serious. Do 40 hard minutes, not an hour and half of nonsense. It's so much more rewarding.
+- I've come from nowhere, and I'm not shy to go back.
+- All exercise releases endorphins and makes you feel good.
+- I'm certainly not Tom Cruise or Brad Pitt.
+- I've just got a really bad smile. I go for the scowl instead.
+- The Rock is the Rock, you know? He's the ultimate athlete, the professional man with precision. And you want precision from a 270-pound living, walking brick wall.
+- Most guys, tough or not, hide emotions. I know a lot of tough guys; they're just as weak as the next man, but they don't show it.
+- The best things in life sometimes happen spontaneously.
+- How long you can continue to be good at something is how much you believe in yourself and how much hard work you do with the training.
+- I'm not as big a soccer fan as people might imagine, being British.
+- I'm enthusiastic and ambitious, and I work hard.
+- My father used to run auctions. He's now a singer in the Canary Islands.
+- Human nature says that you want a bargain, whether you want the goods or not. You think that something is a steal, you'll buy it.
+- Just because the rest of the people in Hollywood don't do their stunts doesn't mean I don't.
+- People like 'Crank,' some people like 'Redemption.' I'm just happy to do things that satiate a different part of me, that test me a little bit.
+- Every actor has a strength, and sometimes you just respond to things that you see yourself better at. I'm aware of what I can and can't do.
+- It's not like I'm dying to do work that's taken seriously, and I'm not looking to become a thespian. It's not what I'm looking for; I'm just looking to do quality work.
+- It's not like I am a junkie that wants to throw himself from very tall buildings, but some people are, and I love them kind of people.
+- If you can have a great story that people can follow the mystery and get the suspense, and then you have those moments of tension and a splash of visual fun, then you kind of get everything. You get your money's worth.
+- I'm prepared to take risks. And every movie that I do is a risk. No one knows what the movie is going out turn out like.
+- I'm more into MMA than any other sport. I watch a lot of the UFC fights. I have since it first came onto the scene.
+- Working with Sylvester Stallone is beyond a 'pinch yourself' moment. I remember growing up watching his films.
+- I think of Paul Feig as the Scorsese of comedy. He's the best at what he does. I think people just trust everything that he's got to say.
+- The oil sequence was about two or three days. It was very cold and was snowing.
+- When I was a kid, the people that used to push other people around, if someone whacked them, then they wouldn't be pushing people around again. But you can't really do that with adults.
+- If you're going to do something, do it with style!
+- At least in making an action film, there's always going to be someone who wants to see a car chase. Even if a lot of the people don't like it, there will be a lot of people that do. But bad comedy is just garbage.
+- A lot of the TV shows, they do long hours, and they do a lot of days, and you don't get a lot of time. But the good thing is, if you get one that's made in L.A., or made in a place you want to be, you get to go home every night.
+- I've smashed myself around, been on crutches, and broken a couple of bones when I was a kid.
+- I like crime thrillers. I like heist movies.
+- And if people come up and say they like the movies you're in, it's a great compliment.
+- It's great to play the hero. You get all the good stuff. You're in it all the way through.
+- It's something I never dreamed I'd be doing, making movies.
+- Depending on the season, you'll find me outdoors doing an activity.
+- The movie style of fighting is completely exaggerated with over-the-top movements. You'd get completely hammered if you fought like that in a real fight situation.
+- I do like a lot of the '70s movies. I love Charles Bronson in 'Hard Times.' All my favorite movies where ones from yesteryear. The '70s was a good era. I love all those.
+- You only get one shot in your life, and you might as well push yourself and try things.
+- With 'The Expendables,' you have such a brilliant mess of the greatest action stars of all time, so you're in for the ride with those people.
+- I just gravitate to those more testosterone-filled sort of parts than me playing something a bit more fairy-like.
+- I go to this gym full of stunt men. There aren't any TVs or treadmills there. This is a spit-and-sawdust kind of place. It has a lot of great training aids - trampolines and bags and every weapon ever invented to do harm to a human being. If you want to know how to throw a knife, it's great.
+- I love westerns. It's guys being guys. There's no room for frilly stuff.
+- Some comedies, they want you falling on your face and doing silly things.
+- I don't go in for the high-end gyms with the high-tech equipment and all the fancy stuff.
+- The action-movie genre is a very difficult one to get satiated in terms of your acting bits.
+- Me in a cape? I don't fancy that. Tight tights? Nah! I don't think that's right for me. I just respond more to true stories; that's my flavour.

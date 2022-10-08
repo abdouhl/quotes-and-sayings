@@ -1,0 +1,88 @@
++++
+author = "Adrian Lewis"
+title = "Adrian Lewis Quotes"
+quotes_len = "82"
+description = "the best 82 Adrian Lewis Quotes"
++++
+- The only person I've got to prove to is myself.
+- Darts should definitely be in the Olympic Games. Can you tell me any difference between archery and darts or shooting and darts? It's a very similar concept and both of those are in the Olympic Games. And don't forget that darts is also a hugely popular sport.
+- I'm fed up of hearing that Adrian Lewis is so naturally talented blah blah blah. I'd rather hear that I'm winning.
+- The guys in the Premier League are about the 10 best in the world and that is what makes the event so special.
+- I need it to be do or die to really get focused.
+- We're all trying so hard to win each of these World Series events and the standard now is phenomenal but it's great that everyone's pushing each other.
+- That's the biggest one the Worlds, second is the World Matchplay and then you'd have to say the Premier League I think.
+- Sometimes we complain about being on the road all the time, from tournaments to exhibitions and sponsors' appearances, but really it's a doddle.
+- Everybody gets a bit tired now and then but that's what being a world champion is all about. You just deal with it.
+- To tell you the truth I thought I was going to be in the building trade, I worked in a builders' merchants in Stoke.
+- Winning the U.K. Open's a massive boost for my confidence.
+- Mates are supposed to look after each other, right?
+- I'm a more consistent player than I was and if I can keep averaging over 100 week-in and week-out in the Premier League I'll be happy.
+- It's very special to be the first winner in New Zealand. Phil Taylor has always said to me about trying to be the first player to win when we go to a new country and I'm over the moon to do that in Auckland.
+- I've made mistakes but we all have to learn from time to time.
+- It doesn't matter what the weather is like - even if it's minus 10 I will go out there and fish.
+- Success seems to go round in circles.
+- You have to get yourself right for the Worlds. If you can't get yourself right for that you shouldn't be playing.
+- Every time you come to Glasgow, it is going to be tough because the crowd don't like me. When they are swearing at you and booing, it's hard.
+- The best mark of a player is to beat him over a long distance.
+- One minute you're nobody and the next thing you've got people following you around.
+- The world has gone a bit mad.
+- The more money in the game, the more players will try anything to win.
+- In a way getting fired up for these matches is what makes the Premier League the hardest tournament for me. Knowing I can lose and still be in the tournament probably makes me relax too much sometimes.
+- I know people say that we are a load of beer drinkers but we are far more professional these days. These critics should come and have a go at playing darts if they think it is so easy.
+- The majority of players are serious about being fitter. They are drinking diet coke instead of lager in the practice room and if I'm going to stay ahead, that's what I'll have to do.
+- When I throw a dart, even when I'm looking I know if I've missed or hit as soon as I release the dart.
+- I was a promising keeper as a kid and, at 15 and 16, was on the books of Crewe Alexandra.
+- When you first start playing, that's your aim obviously, to win the world title.
+- There is always room for improvement even if you're getting 110 averages.
+- I really enjoyed working on a building site. I also worked for a couple of months in a mobile phone repair shop. That just wasn't me.
+- If I'm on my game it doesn't really matter about anybody else.
+- When I'm flying, the big stage is the best time to show it.
+- When I play under bright lights on TV, the reflection off the dart barrel could be distracting. It's not high-tech stuff but I use the flame from the gas cooker at home to blacken the metal and dull them.
+- It's important to spend some time with your family. You've got to get the right balance. If it's all darts, you'll then just burn out.
+- Perhaps I should just motivate myself by buying trophy cabinets - so I have to fill them.
+- Because we're playing tournaments week in and week out I'd think to myself, 'What's the point in practising?' You have no down time to yourself and you're looking for some to spend with your family and friends. But I've now realised that with the game so cut-throat and standards going up every week, it doesn't work.
+- I know what to expect from the crowd and enjoy playing in front of the big crowds.
+- You don't want 8,000 fans booing you so you want them on your side.
+- I've got respect for everybody I play but I don't fear anybody. Nobody causes me sleepless nights.
+- The Matchplay is a straight knock-out tournament so everybody is under pressure straight away - I prefer that.
+- When I start winning big tournaments I don't think I'll just win tournaments, I think I'll blow them away.
+- I think that winning a third World Championship would really take me up to another level in the sport.
+- We don't spend our lives at dartboards in the pub - we are at home practising.
+- Of course I want to add more titles all the time.
+- It is a disgrace. I think darts should be at the Olympics. Obviously you'd have to cut out the drinking side of the game. But apart from that there's no reason why it shouldn't be there.
+- If you can beat Phil Taylor in the longer format you can beat anyone.
+- I'm working really hard on my practice routine which I'm really enjoying and I'm constantly trying to improve with the help of Target Darts.
+- My mum played darts for the county. But only in the B team.
+- You can focus on the ranking events but I do miss the Premier League because it's massive.
+- I am the best in the world.
+- You have to put in the extra hours away from the tournament. There's no other option.
+- I'm two times world champion, I've got nothing to prove to anybody.
+- I don't mind being busy.
+- I like to think I won't change as a person, even if I go on to win 20 world titles. I will still be just a working-class lad from the Potteries, the same daft old me.
+- I always wear flat shoes for darts because a heel can put me off balance. I press the side of my shoe against the oche, not the toe. That puts my throwing arm a few inches closer to the board. Not everybody is the same but it works for me.
+- It was very hard when the newspapers were chasing me. It was also very weird. I know I'd just become world champion but shouldn't they be following someone who has done something wrong?
+- Darts is huge in the Philippines and Pacquiao is much bigger over there than David Beckham is here. I'm happy playing darts against him but I wouldn't want to box him.
+- After school I went to work at a builders' merchant in Stoke. After we finished on a Friday, it was down to the Duke of York for a drink with my mates and a game of darts. Unfortunately for them I had a natural talent and nobody could beat me.
+- I like stuff like 'Top Gun.' I like horror films. I love them.
+- When I am not playing or practising, I like to spend time with the family.
+- One World Championship is not enough. Probably eight is not enough. I've set a target of 10 and I'd like between eight and 10.
+- I have the game for the pressure matches and now I just have to be consistent.
+- I'm just trying keep focused and believe in myself, that's been my game plan.
+- If you don't believe in yourself, who will?
+- When I won the first world title in 2011 I was practising six, seven or even more hours a day.
+- I was a goalkeeper at Crewe as a kid but piled on pounds when I stopped training every day.
+- You go to a lot of cities they've got these great big footballer's houses. There's not many in Stoke-on-Trent.
+- I was very proud after winning the World Championship the first time, so to win it three times, and consecutively, would be great.
+- I'm brilliant at working out numbers up to 180 but if you ask me to split a restaurant bill I'm rubbish.
+- It's all about timing and taking out big shots at the right time.
+- When I was younger I got accused of gamesmanship but I grew out of it.
+- In the Premier League you know you'll play a certain amount of matches so you can always think 'I'll put it right next week' if you lose.
+- Sure, there's pressure when you have one dart at double top when there's a world 'championship to be won, but real 'pressure is what our troops are doing in 'Afghanistan.
+- You don't hit an 11-darter unless you're feeling good.
+- I was in Las Vegas, playing on the fruit machines. I was only 20 at the time and I won the jackpot of $72,000, of which I couldn't claim.
+- Some people say it is relaxing to fish. But not with me. I simply cannot switch off my competitive instincts.
+- When I am playing my game, I fear nobody.
+- The worst I encountered was Peter Manley talking behind me as I threw during our world championship quarter-final back in 2006.
+- Hobbies-wise, I love to carp fish. I like to be on the bank when I have some downtime.
+- If you start badly, and the crowd get on your case, there is no way back. But if you start well and your confidence is high all that booing becomes music to your ears.
+- I think the mixture of pressure and elation after winning the world title took some getting used to and that impacted on my personal life big-time.

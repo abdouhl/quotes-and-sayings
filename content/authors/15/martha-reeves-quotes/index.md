@@ -1,0 +1,31 @@
++++
+author = "Martha Reeves"
+title = "Martha Reeves Quotes"
+quotes_len = "25"
+description = "the best 25 Martha Reeves Quotes"
++++
+- Detroit is full of talent.
+- There are times in show business when you work so much you think you will pop your cork, and then suddenly you can't find any work.
+- I will always dance in the street.
+- I don't worry about being in a hurry any more, because my faith in God will always deliver me on time.
+- Going on with life, it only gets more and more intense as time goes by - and the challenges only multiply.
+- A large family makes you accept sharing your parents.
+- Lead singers not only do the majority of the work, but their personalities are singled out and taken as the general attitude of the unit.
+- Most performers spend half their earnings taking care of family members.
+- The world I was born into was one filled with music.
+- If you stick around long enough, people start referring to you as a survivor. Suddenly I found myself on the receiving end of several prestigious awards.
+- Divas need their furs!
+- I went from elementary school to proper training, operatic training, and I went on to the Motown University and learned a lot of things from some wonderful people.
+- The morning after my high-school graduation found me up early job hunting. The dream of college I put on the back burner.
+- Disco music in the '70s was just a call to go wild and party and dance with no thought or conscience or regard for tomorrow.
+- I have always thought music as a way out of the ordinary mundane obligations of life.
+- God uses singers in a mighty way, and I am grateful.
+- I worshipped Berry Gordy for the creative dreams he had made come true.
+- Good and bad - this is the story of my life.
+- I was stranded in Disco. I went to dozens of darkened places with enough flashing lights to drive the average person mad. I felt lost in the pulse of sheer panic.
+- You can't very well live in a castle while your kin is on the poor side of town and barely have enough food. Some want you to get to the top and rely on you making it for them, too.
+- A song has to become as much a part of you as a tailored suit.
+- I pray for miracles. I have always found prayer to bring quick results.
+- I still marvel at how God turns dreams into reality.
+- Berry Gordy turned his house into a studio and discovered over 30 acts in the city. And we're famous all over the world.
+- After years of making wrong decisions in my life, in 1977 I found out that it was all right to be square, simple, and sober.

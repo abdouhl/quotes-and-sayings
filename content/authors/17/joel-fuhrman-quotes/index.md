@@ -1,0 +1,84 @@
++++
+author = "Joel Fuhrman"
+title = "Joel Fuhrman Quotes"
+quotes_len = "78"
+description = "the best 78 Joel Fuhrman Quotes"
++++
+- Combine anti-cancer foods to maximize protection against all cancers: A number of plant foods are associated with lower risk of cancers, and substances contained in these foods display anti-cancer or immune-boosting properties.
+- My findings have demonstrated that an optimal micronutrient intake reduces the desire for calories and reduces body temperature and white blood cell counts.
+- The vast preponderance of evidence in modern epidemiology shows that those who eat more whole plant foods and fewer animal products and processed foods have lower rates of chronic disease and longer lifespans.
+- Doctors' positions and recommendations about drugs, procedures, surgical interventions, health and nutrition are not always based on strong scientific evidence.
+- To provide optimal levels of protective micronutrients, a diet must be vegetable-based, not grain-based.
+- There is simply not enough money available to support a system in which the lion's share of expenditures is devoted to acute care, with virtually nothing being spent on preventive medicine, i.e. health care.
+- Dieting by portion control doesn't work because one is constantly fighting addictive drives.
+- Without micronutrients to remove waste, cells become congested, DNA gets broken, and the body doesn't have the ability to repair itself. Eventually, you get sick.
+- Food is really and truly the most effective medicine.
+- We need radical dietary improvement, and the earlier in life that change is made, the better. Just following a vegan diet or eating a few more vegetables is not enough.
+- Certainly adding fats in the form of oils is fattening and unhealthy, but naturally fat-rich foods like nuts and seeds have profound cardiovascular benefits.
+- You cannot escape from the biological law of cause and effect - food choices are the most significant cause of disease and premature death.
+- A high nutrient diet, if widely adopted, could bring millions of people in touch with true hunger, and stop the proliferation of obesity and preventable chronic disease.
+- Meeting the body's micronutrient needs helps to suppress food cravings, and high-nutrient foods do not produce dangerous, addictive craving.
+- Simply restricting portions of the same disease-causing foods does not resolve the symptoms of toxic hunger.
+- The goal of my diet-style is eating for optimal health and longevity. What greater benefit could there be than living healthfully and actively into old age with no dependence on medications and almost no risk of heart disease, diabetes or dementia?
+- The diet, to be healthy, has to be mostly fruits, vegetables, beans, nuts and seeds.
+- Raw leafy greens contain only about 100 calories per pound and are packed with nutrients.
+- Blueberries, strawberries and blackberries are true super foods. Naturally sweet and juicy, berries are low in sugar and high in nutrients - they are among the best foods you can eat.
+- Preferring healthful foods is a skill, and skills take practice and perseverance to develop.
+- I have appeared on 'The Dr. Oz show' and recognize that Dr. Oz does not hold the exact same viewpoints about all controversies in human nutrition that I do, but he has a huge base of knowledge and is open-minded and willing to re-consider a position based on emerging evidence on multiple scientific and health issues.
+- Sodium is an important mineral that is essential for proper functioning of the human body - however, the American diet contains dangerously high amounts of sodium, almost 80 percent of which comes from processed and restaurant foods.
+- If we get kids eating right, we could decrease cancer rates by 90 percent.
+- What are the physical sensations you associate with hunger? For most people, these sensations include stomach grumbling, headaches, light-headedness, irritability, fatigue and inability to focus.
+- Excess body fat alters the levels of the hormones insulin, leptin, and estrogen, and these factors are believed to be responsible for the acceleration of pubertal timing by obesity.
+- Cancer initiates due to a wide variety of causes, some of which are outside of our control or already occurred during our childhood.
+- Girls of 7, 8 or 9 years old are not emotionally or psychologically equipped to handle puberty.
+- The most significant and alarming consequence of early maturation is an increased risk for breast cancer in adulthood.
+- High salt intake is a risk factor for osteoporosis because excess dietary sodium promotes urinary calcium loss, leading to calcium loss from bone and therefore decreased bone density.
+- Cutting back on calories is not the answer to successful weight loss and successful health... you have to increase the quality of what you eat, not just reduce the quantity.
+- Chemicals are not currently tested for their endocrine disruption potential before they are approved for use and enter our environment, and there are endocrine disruptors in a vast array of products we come into contact with every day, including organochlorine pesticides, plastics, fuels, and other industrial chemicals.
+- I have serious concerns about the potential risks of taking lots of fish oil capsules. So much fish oil can have paradoxical effects, reducing immune function in later life.
+- Americans are grossly deficient in basic micronutrients and especially those phytochemicals that arm our immune system to fight cancer.
+- Eating a high-nutrient diet actually makes you more satisfied with less food, and actually gives the ability to enjoy food more without overeating.
+- We're not going to find a magic cure for cancer. We've got to prevent it.
+- Excess dietary salt is most notorious for increasing blood pressure. Americans have a 90 percent lifetime probability of developing high blood pressure - so even if your blood pressure is normal now, if you continue to eat the typical American diet, you will be at risk.
+- Most weight loss diets center around portion control, which is just trying to eat smaller amounts of the same addictive foods. This approach inevitably fails.
+- The key to excellent health and longevity is to eat a high ratio of micronutrients to macronutrients.
+- When you eat healthfully, your body gravitates relatively rapidly toward a better weight.
+- If you eat the standard Western diet that most people eat in the modern world, it's quite likely you will develop heart disease.
+- Three of the most beneficial, longevity promoting anti-cancer foods are green vegetables, beans, and onions.
+- If you want ideal health, you need to overcompensate and eat an excellent diet.
+- The indisputable fact is that nutritional science is the most powerful weapon available to win the war on cancer.
+- Consuming mushrooms regularly has been associated with decreased risk of breast, stomach and colorectal cancers.
+- Instead of trying to increase your metabolism with the goal of losing weight, try to slow your metabolism with a low-calorie, high-nutrient diet for a longer, healthier life.
+- Don't forget: cruciferous vegetables must be chopped, crushed, or chewed well for maximum benefit!
+- We know that childhood and adolescence are the most crucial times for environmental stimuli to affect breast cancer risk, but changes made during adulthood and even after diagnosis still have the potential to create positive changes in the body.
+- We can reduce these cancer rates - breast cancer, prostate cancer, colon cancer - by 90 percent or more by people adopting what I call a nutritrarian diet.
+- Reducing dietary salt is not only important for those who already have elevated blood pressure - limiting added salt is essential for all of us to remain in good health.
+- Your future health can be predicted by the nutrient density of your diet.
+- I make a big salad bowl just for myself, double or triple the size of a normal salad.
+- Scores of studies support the power of certain natural foods to prevent cancer.
+- We need to take vegetables out of the role of side dish, even in low-fat, vegetarian diets, whose calories are generally derived mainly from grains and other starches.
+- Healthy people eating healthy food should never need to take an antibiotic.
+- We must always remember that all medical interventions have risk, and very little can be asserted with 100 percent certainty.
+- One can be a vegan and eating a health-promoting, high-nutrient diet, but one can also eat a small amount of animal products while following a Nutritarian diet and still live a long, healthy life.
+- Hypertension is an important risk factor for kidney disease, but dietary sodium has other damaging effects on the kidneys. High salt intake drives the production of oxygen radicals, leading to oxidative stress in kidney tissue.
+- The modern diet is grossly deficient in hundreds of important plant-derived immunity-building compounds which makes us highly vulnerable to viruses, infections and disease.
+- Out of one pocket we pay billions of our tax dollars to support the production of expensive, disease-causing foods. Out of the other pocket, we pay medical bills that are too high because our overweight population consumes too much of these rich, disease-causing foods.
+- A high nutrient density diet was associated with more feelings of hunger in the mouth and throat and less in the head and stomach.
+- The problem with the standard American diet, a primary cause of our current obesity epidemic, is the fact that the majority of foods consumed are high in calories and low in micronutrients.
+- What you eat matters. It influences the quality of your life.
+- Micronutrient-poor foods, like pasta, sugar, and soda, don't just give you empty calories and make you fat; they also do damage to the body and cause disease.
+- The right raw materials can... double or triple the protective power of the immune system.
+- I am a physician specializing in nutritional interventions for chronic disease and a strong advocate of superior nutrition as the first line of attack to prevent and treat most chronic diseases.
+- In the future, it's going to become more and more impossible for the economy to support how expensive medical care is and the number of sick people we have. Why don't we just get our population healthier so we don't need medical care?
+- We have these weapons of mass destruction on every street corner, and they're called donuts, cheeseburgers, French fries, potato chips, junk food. Our kids are living on a junk food diet.
+- The human diet, for millions of years, did not contain any added salt - only the sodium present in natural foods, adding up to only about 1000 mg sodium per day.
+- A significant number of research studies have documented that heart disease is easily and almost completely preventable through a diet rich in plant produce and lower in processed foods and animal products.
+- Cancer is caused by what you do for many, many years, not what you do for a few weeks or months.
+- It may seem difficult at first, but eating more high-nutrient foods reduces the desire for low-nutrient foods; it becomes easier with time.
+- Seeds and nuts are indispensable for cardiovascular health. The protective properties of nuts against coronary heart disease were first recognized in the early 1990s, and a strong body of literature has followed, confirming these original findings.
+- The human body is a miraculous self-healing machine, but those self-repair systems require a nutrient-dense diet.
+- Onions, along with leeks, garlic, shallots and scallions, make up the allium family of vegetables, which can have beneficial effects on the cardiovascular and immune systems, as well as possible anti-diabetic and anti-cancer effects.
+- Resting metabolic rate is largely genetically determined, but our calorie intake has an effect as well.
+- Omega-3 fatty acids are essential nutrients that we must get from our diets because our bodies cannot make them; they are crucial for early brain development, and there is much evidence that they promote cardiovascular health and cognitive function.
+- The American diet causes disease. It is composed of 25 percent animal products and 62 percent processed foods and only 5 percent of calories from fruits and vegetables.
+- Although measuring omega-3 levels in the blood seems like it would be an objective and accurate indicator of fish oil intake compared to using the subjects' reported dietary intake, this test does not accurately reflect long-term dietary intake.

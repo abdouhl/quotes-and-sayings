@@ -1,0 +1,41 @@
++++
+author = "Jeremy Kyle"
+title = "Jeremy Kyle Quotes"
+quotes_len = "35"
+description = "the best 35 Jeremy Kyle Quotes"
++++
+- I did die once, for seven seconds, after a burst appendix.
+- I sort of felt like the runt of the litter. My brother was just great. If you gave him a cricket bat he'd score 100. If he walked into a party he'd pull the best-looking girl. He was my hero.
+- When I get through the front door, I haven't got time to tie my shoelaces. There are three kids, and the wife, and I make that absolutely the priority. By the time we've got the kids to bed and had a bite to eat we're in bed by 10:15 and are knackered!
+- Two days after the chemo I felt terrible, like I had a permanent migraine and had been shot in every limb. I was knackered, starving. The doctor explained that was because I had essentially been poisoned.
+- I was out of work for, probably, about six months. I had a clear idea about what I wanted to do - I wanted to be in TV so I went to meeting after meeting after meeting. I had a six-month-old baby and a family to support.
+- My dad epitomises everything I'd like my kids to say about me. He gave his kids the best start and he had values.
+- I was actually born in the front bedroom while my dad sat on the wall outside, feeling sick. Twenty minutes after my mother gave birth, she went downstairs and made my old man a cup of tea.
+- And I would never set myself out to be the best parent or the greatest man.
+- Many feel sorry for a person like David Platt. He was abandoned by his father, his mother wanted to abort him and his stepdad wanted him dead.
+- I've always said I would never say never when it comes to politics.
+- I've not worn underwear for 20 years.
+- When economist William Beveridge dreamed up the postwar welfare state he wanted to fight five 'giant evils' - want, disease, ignorance, squalor and idleness. Fast forward 65 years and it seems the last New Labour government grew an Unfair State that fuelled - not fought - one of those evils: idleness.
+- I'm sure that everyone has been in a situation in their lives where they've had to change their game plan.
+- I'm not on Twitter or any of that rubbish. I'm an old man.
+- Radio was my first love as a broadcaster and where it all began for my on-air career.
+- If you stick your head above the parapet and you have an opinion, and you spout family values and morality and all that, you'd be pretty naive to think that everybody would go, 'Oh, he's great, I love him.'
+- But I will just make the slight point here - I have never ever bought anything online. I don't know how to.
+- Life isn't a dress rehearsal.
+- I'm an intelligent man but I don't feel I articulate or get that across nearly enough, especially in social situations.
+- Cancer is just one little word but, when you hear it, it turns your whole life upside down.
+- I didn't know what I wanted to do until I was 40. Seriously.
+- We have this joke in England that half the people want me to be prime minister, and the other half want me shot.
+- We all make mistakes, nobody ever wrote a book saying 'This is how you live your life.'
+- The U.K. voted for Brexit and a lot of weak-willed, lily-livered people will say 'yeah but the people did not know what they were voting for, they had no idea of what this was going to entail.' Those are the people who are saying 'lets get a second referendum, let's make the people aware this time that there is, in fact, a lot more to this.'
+- My three children keep me calm.
+- Some people will always think I've got the eyes of Satan. Others will think I'm a TV god. People have the right to criticise.
+- My kids are amazing and they are the ones that keep me going.
+- A lot of the problems in society nowadays are down to diet and lifestyle - be that obesity, diabetes, asthma caused by smoking or drinking.
+- I see pictures of myself BB - before Botox - and I see the ones after and I am happy. I am on television 1,500 times a year and it is a very small way, and a safe way, of looking a little bit better than I used to.
+- I don't want to get into a debate. I have never talked about my first marriage for that reason. I don't think it would be fair to my daughter. I don't think it would be fair to my second wife. That's the past.
+- I don't think the British people really knew the ramifications of what would happen after Brexit or not.
+- I am particularly looking forward to meeting ordinary American people and hearing about their extraordinary lives.
+- I think the British viewing and listening public are very fickle. If they like you they will listen to you, they will watch you. If they change their mind then it's all over.
+- I have never had a pair of knickers sent in the post. I've had jams, lemon drizzle cakes, West Ham football shirts and footballs and books. I've had pillowcases with my face on, tea towels with my face on, face flannels with my face on, towels with my face on.
+- I used to have a gambling problem.

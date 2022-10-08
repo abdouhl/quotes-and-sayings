@@ -1,0 +1,109 @@
++++
+author = "Tim Ferriss"
+title = "Tim Ferriss Quotes"
+quotes_len = "103"
+description = "the best 103 Tim Ferriss Quotes"
++++
+- Having a size 9 foot is fantastic because almost all of the shoe companies do their prototyping in size 9, so if you visit a place like Nike headquarters, you can try every sort of wacky, out-there model.
+- To make a bestseller, there are more customers than just your customers: Selling to the end-user is just one piece of the puzzle. In my case, I needed to first sell myself to the publisher to get marketing support and national retail distribution.
+- Every time I find myself stressed out, it's because I do things primarily driven by growth.
+- I do not equate productivity to happiness. For most people, happiness in life is a massive amount of achievement plus a massive amount of appreciation. And you need both of those things.
+- There's an entire generation of male strength and endurance athletes, even recreational lifters, who have never gotten off the ephedrine-caffeine-aspirin stack. The process of getting off stimulants is really horrible.
+- People really do think they have to choose between high stress and high reward jobs, and low stress and low reward jobs.
+- If you look at the purported dangers of salt or fat, there is no consensus of support in scientific literature. So I would ask first: 'Is it possible to have an informed government that actually follows the science?' From what I've seen, it's not likely.
+- I learned to associate discomfort with getting better. And that transcended wrestling and applied to a lot of other things in life.
+- I still feel there are much smarter self-promoters out there than me. I am very methodical about my messaging, and I know how to gain attention very quickly.
+- There are a lot of things that can be learned from the darker corners of athletics. You have doctors who view bodybuilders as cavalier amateurs of science. And then you have the bodybuilders who view the doctors as too conservative to do anything interesting. So I've tried to become the middleman for putting some of those pieces together.
+- I gauge success in years, not weeks. The weekend box-office approach to book launches is short sighted and encourages crappy books.
+- The truth is that since the first book, I have wanted to emulate Benjamin Franklin and put together a healthy, wealthy and wise trilogy and so healthy was 'The 4-Hour Body,' wealthy was 'The 4-Hour Workweek' and then wise is 'The 4-Hour Chef.'
+- I might seem biased, but I use Evernote every day. It came to me through my readers, who I'd asked for software recommendations via Twitter and Facebook. For seemingly every function, the answer was 'Man, you have to use Evernote.'
+- Workaholics typically have a lot of achievement with very little appreciation of what they have, whether it's cars or friendships or otherwise. That is a shallow victory. Then you have people with a lot of appreciation and no achievement, which is fine, but it doesn't create a lot of good in the world.
+- It's very easy to confuse confident motion with being productive - and they're not the same thing. Productive to me means measurable outcomes that apply to my most important to-dos that positively affect my life. That's it.
+- World barista champions use the AeroPress to make coffee on the folding tray tables of airplanes.
+- If you walk into any bookstore, you can look at the newsstands and see which magazines are nationally-distributed, and you recognize certain names. Same with television. With the blogsphere, however, you actually have to dig, and know how to use multiple tools to figure out whom you should be speaking to.
+- You can enjoy stargazing just by going out and learning a couple constellations with your kids.
+- The least-crowded channel for meeting high profile bloggers is in person. Email is the most difficult, the most crowded... I'm a top 1,000 blogger, not a top 100 blogger, and I get hundreds of pitches by email every week. Most of them I don't even see because my assistant declines them.
+- The reason I was successful in launching my first book with bloggers is this: I assumed that I should spend as much time on a blogger with a million-person readership as I would pitching an editor of a publication with a million person subscription-base.
+- I view myself as an experimentalist. I've tried everything in the book, and I have replicated results to one extent or another.
+- Turning 40 didn't, as a number, scare me or throw me off at all.
+- The more books there are on shelves, the more will be sold. Once you get to the level of The Secret and have 40-100 copies in many stores, managers have almost no choice but to put them in prime real estate like front-of-store, end caps, or front window.
+- A recession is very bad for publicly traded companies, but it's the best time for startups. When you have massive layoffs, there's more competition for available jobs, which means that an entrepreneur can hire freelancers at a lower cost.
+- What I don't like is snark for snark's sake. If you are going to make fun of me, at least be witty while doing it.
+- I definitely grew up with a lot of venom and distaste for city people.
+- I was an All-American in wrestling in high school, was National Champion in Chinese kickboxing in 1999 and have spent a lot of time around professional athletes, which includes my eight-plus years as CEO of a sports nutrition company.
+- It's just astonishing to me, but not surprising in some respects, how dependent we are on the somewhat meaningless and certainly ephemeral feedback that we get from strangers on the Internet. I think that's a dangerous dependence to develop.
+- When you elevate the heels more so than you elevate the sole of the foot, you trigger a cascade of compensations in the knees and hips that cause tight hip flexors, and then those hip flexors cause lower-back pain.
+- I tend to split my activities into fun, income and legacy. The number of things in that finance bucket is pretty few and far between and doesn't consume much time at all.
+- A 'social media fast' is a fast, I suppose like any other. In this case, you're simply giving up whether it be a device or a particular type of social media site. And I do this at least once weekly.
+- If someone's criticism is completely unfounded on data, then I don't want to hear it. It doesn't hold up to scrutiny.
+- I always thought I was going to end up teaching ninth grade, specifically, because I had a lot of really formative influences, I think, at that fork in the road, where a lot of crucial decisions are made by young folks.
+- I think that survivorship bias, the survivorship bias is something I'm very acutely familiar with because of investing.
+- I still feel there are much smarter self-promoters out there than me. I am very methodical about my messaging, and I know how to gain attention very quickly. David Blaine is an example of someone who's better at self-promoting than me. He is much better than I am.
+- I have scary eyes. I look like the guy in 'American History X,' yes. I remember coming home from school and asking my mum if I could get an eye transplant, and of course she declined.
+- Resveratrol is fascinating stuff. One of the best sources of information about it is the Immortality Institute. They have a forum where some people are in the 500 Club, as they call it. They've been taking 500 milligrams for years. It's a really great source of data.
+- I discourage passive skepticism, which is the armchair variety where people sit back and criticize without ever subjecting their theories or themselves to real field testing.
+- You don't have to travel, but I find extended travel to be a helpful tool for reexamining yourself and the constraints you've artificially placed on your life. It's easy to believe everything has to be done one way if you're always in one place around the same people.
+- Food became for me a way of becoming self-sufficient with my hands, to regain manual literacy, which I think has been lost on our generation and certainly younger generations. Very few people can actually make things with their hands and do things with their hands.
+- After decades of hauling telescopes around in the back of vans and going up to high altitude locations and so forth, I did finally build an observatory, here on Sonoma mountain.
+- The problem with New Year's resolutions - and resolutions to 'get in better shape' in general, which are very amorphous - is that people try to adopt too many behavioral changes at once. It doesn't work. I don't care if you're a world-class CEO - you'll quit.
+- At its core, I don't view Facebook as a social network. I think it could become the driver's license of the Internet. And beyond that, it can become the pipes and the plumbing upon what most of the Internet is built. I think it's very well positioned.
+- Work is an activity that is financially-driven or one that you'd like to do less of.
+- Exercise is overrated.
+- It's very easy to say, 'Well, hey, you should wake up at 4:30 in the morning and do what ABCD people do.' Just because it works for one person, just because it works for even many people, does not mean it will necessarily work for you.
+- Writing is thought crystalized on a piece of paper, which can then be reviewed.
+- The first thing I would do for anyone who's trying to lose body fat, for instance, would be to remove foods from the house that he or she would consume during lapses of self-control.
+- I value self-discipline, but creating systems that make it next to impossible to misbehave is more reliable than self-control.
+- I'm not a fan of idleness, except in small doses.
+- If you take a print magazine with a million person circulation, and a blog with a devout readership of 1 million, for the purpose of selling anything that can be sold online, the blog is infinitely more powerful, because it's only a click away.
+- I've had a very good stretch with startup investing, and I think it's very important to know when to hold your chips.
+- I don't journal to 'be productive.' I don't do it to find great ideas or to put down prose I can later publish. The pages aren't intended for anyone but me. It's the most cost-effective therapy I've ever found.
+- I'm very familiar with how people can confuse correlation with causation.
+- For most people, life would be boring without meaningful work.
+- One of the bigger misconceptions of learning is that many skills take a lifetime to get world-class at, or 10,000 hours to become world-class at.
+- To be functionally fluent in a language, for instance, in most cases you need about 1,200 words. To acquire a total of vocabulary words, if you really train someone well they can acquire 200 to 300 words a day, which means that in a week they can acquire the vocabulary necessary to speak a language.
+- One of the great things about stargazing is that it's immediately at hand for so many people. You know, you could get into scuba diving or bird watching, but the stars are always up there.
+- I was never the most technical wrestler. But my coaches definitely instilled in me the belief that if you can push yourself and practice smarter than the other guy, you can beat him.
+- I think time management as a label encourages people to view each 24-hour period as a slot in which they should pack as much as possible.
+- I view my job more almost as a field biologist or anthropologist, where I'm collecting practices. I'm collecting techniques.
+- I am a human guinea pig and a professional dilettante.
+- The way we measure productivity is flawed. People checking their BlackBerry over dinner is not the measure of productivity.
+- Learn the art of the pitch and of messaging.
+- I think there's a difference between having a bestselling book - meaning through marketing, PR and buying that first wave of customers - and writing a bestselling book. The second implies that the product propels itself to the best seller list.
+- Converting your own passions into a job is the fastest method for eliminating any passion you once had.
+- If you take a strong stance and have a clear opinion or statement on any subject online, you're going to polarize people. And without that polarity, there's no discussion. Discussion is what I want, which means that I'm fine with the consequences.
+- Online I see people committing 'social media suicide' all the time by one of two ways. Firstly by responding to all criticism, meaning you're never going to find time to complete important milestones of your own, and by responding to things that don't warrant a response. This lends more credibility by driving traffic.
+- I used Evernote almost exclusively for researching 'The 4-Hour Body.' I was able to eliminate all of the perpetually open tabs and multiple bookmarking services. It's also all automatically backed up to Evernote, which gives me peace of mind.
+- Everything that works in sales has been done already. Just keep track of the crap that you buy, or the awesome stuff that you buy, and decide what was the trigger, and then just sell to people like you. It's really that easy - and that's what I do.
+- The best way to counter-attack a hater is to make it blatantly obvious that their attack has had no impact on you.
+- If you start out with a little telescope observing the stars and you keep at it over the years, as I have, it's kind of a dream to one day have an observatory where you can always go and use the telescope conveniently.
+- I was really small and had a lot of health issues growing up. I mean, not compared to some people, certainly, but I had a number of full-body blood transfusions when I was kid.
+- If retirement means laying on a beach and rubbing coco butter on your stomach, about 48 hours of that will be enough for most people. You'll want something new.
+- I was a very happy kid. I didn't get new bikes very often. We ate a lot of chicken legs for dinner. But I never felt in want of anything. I wasn't cognizant until much later of the discrepancy between what we had and what other people had.
+- I've found cinnamon to be very effective for lowering the glycemic response to meals. People have heard that before, but I didn't realize how profound it could be until I did the actual testing with continuous glucose monitors. And I tested all different varieties and species of cinnamon from Ceylon to Saigon.
+- Being called a huckster and a charlatan started several years ago, so that's something I'm accustomed to. In most cases, it doesn't bother me.
+- My parents didn't have much money growing up, but they always had a budget for books.
+- I really feel like knife skills - not just in the kitchen, but in life - are really critical.
+- The best entrepreneurs I've ever met are all good communicators. It's perhaps one of the very few unifying factors.
+- Everyone is going to binge on a diet, for instance, so plan for it, schedule it, and contain the damage.
+- I suppose my professional life can be split into writing books that all sound like infomercial products, most notably 'The 4-Hour Workweek,' and then tech investing.
+- Rather than spend my life on data entry and typing, I also take photos on my iPhone of business cards, wine labels, menus, or anything I want to have searchable on-the-run.
+- If you're sitting in a monastery, where your schedule is set and you have very few uncontrolled variables, that's fantastic that you can do loving/kindness meditation, but that's not the world I live in.
+- I started using Twitter about year after its very early adoption and ended up investing in it around that same time. I'm involved with the Tech scene and companies ranging from Facebook, Stumbleupon and Twitter.
+- I'm very often described as a 'risk-taker' and 'extreme,' and there are a few examples of that, certainly in the physical experimentation.
+- The biggest misconception about work is that you need to spend the majority of your time doing it.
+- If you optimize for money too early, you will be minimizing for learning, almost without exception.
+- I'm not averse to making a lot of money. But where does that end? I hang out with people with hundreds of millions of dollars. Is that the standard by which I should measure myself? Where does that take you if you're in my business? I think it takes you to pretty dark, corrupt places.
+- I encourage active skepticism - when people are being skeptical because they're trying to identify the best course of action. They're trying to identify the next step for themselves or other people.
+- I work hard, but in spurts.
+- In a digital world, there are numerous technologies that we are attached to that create infinite interruption.
+- Most of my readers think I'm obsessed with time management, but they haven't seen the other - much more legitimate, much more extreme - obsession. I've recorded almost every workout I've done since age 18. Since 2004, I've been tracking everything from complete lipid panels, insulin, and hemoglobin A1c, to IGF-1 and free testosterone.
+- I didn't even like white wine. Then I tasted it and bought a case. It was the first case of any wine I'd ever bought.
+- If you do something as simple as 15-minute ice baths three days a week, and you time those baths properly, you can significantly multiply your fat loss.
+- My parents did a great job of raising me and my brother. Very supportive parents.
+- As far as income goes, there are three currencies in the world; most people ignore two. The three currencies are time, income and mobility, in descending order of importance. Most people focus exclusively on income.
+- When you're directed by social media, I think it's very easy to lose a sense of agency. And you can see it when you go to any subway station, you walk down any street in a city, you will see 70-80 percent of people staring into their phones as they walk or stand.
+- There are certain things I will automate, but when it comes to quality control, I want to keep a very close eye.
+- I like work/life separation, not work/life balance. What I mean by that is, if I'm on, I want to be on and maximally productive. If I'm off, I don't want to think about work. When people strive for work/life balance, they end up blending them. That's how you end up checking email all day Saturday.
+- When I left the U.S. for the first time, I spent my first year abroad in Japan. That culture shock and abundance of new stimuli combined with a lack of guidance forced me to develop my own approaches to learning and juggling.
+- I have plenty of money to do what I want to do, and I have the relationships.
+- I think that whenever you feel reactive or are being reactive as opposed to proactive, that inherently - consciously or subconsciously - creates a lot of stress.

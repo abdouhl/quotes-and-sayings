@@ -1,0 +1,73 @@
++++
+author = "Kieran Trippier"
+title = "Kieran Trippier Quotes"
+quotes_len = "67"
+description = "the best 67 Kieran Trippier Quotes"
++++
+- At Tottenham, it took two years for me to try to break in there. I knew my opportunity would come - it was just about being patient and working hard on the training pitch - and it did.
+- I've never met Beckham, but I'd love to. I'm a massive fan of him. Hopefully we can cross paths and chat.
+- At Burnley, I'd enjoy myself with my missus and friends, but because at Tottenham we're playing Saturday-Tuesday, even Wednesday-Sunday, and with the intensity we play at, playing in the Champions League, we can't afford to have a night out.
+- Gary Neville played a similar position to me. Defensively and offensively, he was a quality player for Manchester United and England. His trophies speak for themselves.
+- In football, things happen so quickly.
+- I work hard on the training field every day.
+- I've picked up a lot of injuries, and there's been games when I've looked back and watched and thought, 'I could have done this better,' 'I could have done that better.'
+- I just looked up to my brother because he was a professional. He was the one I wanted to follow.
+- I know I played for England at a World Cup with millions and millions of people watching, but I still stick to my same routine - I train, then go home to see my wife and little boy.
+- I went for a tackle with Radamel Falcao against Colombia, and he just dropped to the floor. I said to him 'Just get up!'
+- You can learn a lot in the Europa League or from playing different teams from across Europe, and European football has improved me as a player.
+- Obviously, I don't go into a game not wanting to do well. I go into every game to try to do my best for my team-mates and the club.
+- I give everything, 100%, every game - win, lose, or draw.
+- Coming off the back of the World Cup, it is important you get that rest.
+- It's just about confidence and believing in your own ability. If you hit it over the wall, you've got every chance of it going in.
+- In the World Cup, you can only play who you are drawn against.
+- All I can do is keep doing the best I can, and every opportunity I get, I'll try to put balls in like David Beckham.
+- I analyse my games for club and country. I look at what I could have done better and learn.
+- I am not a fan of being under water.
+- I used to watch David Beckham on YouTube for ages when I was younger.
+- I wouldn't be were I am now without my parents.
+- If someone makes contact with you, it is a foul, and you are going to go down.
+- All of us have our own journeys.
+- There is a lot of room for improvement for everybody, no matter who you are, so that is all I did, really: practice.
+- Coming back to Tottenham, you feel confident with these players and the manager - the way he talks to you and wants you to play.
+- Beckham was the one I always looked up to - the technique, his crossing on the move or set-pieces. But as a kid, I just played with my brother. He was playing for Oldham, in League One and League Two, and he's the one I really looked up to.
+- I always liked how David Beckham played - his set-plays and his dead balls.
+- You never know what could happen. Someone could get injured early in the game, so everyone knows they have to be ready. Anyone can come on at any stage in the game and make the difference.
+- The training at Tottenham is intense, but the structure is set out perfectly - in the gym, running, sometimes double sessions. Every player at Tottenham is in great shape.
+- When I was playing week-in week-out, I was playing 46 games a season, and there's nothing better than playing every week.
+- I'll do the best I can for my family and for the fans.
+- As full-backs, we like to get high and wide. It's the style of football that I enjoy playing.
+- At Tottenham, we are just bombing on as wing-backs, but sometimes on the international stage, where there is so much quality, you need to be more careful about the distance between yourself and the right-sided centre-half.
+- I always thought I could get back to the Premier League, and thankfully, I did that with Burnley.
+- You know when you've had a bad game.
+- I wasn't in the best shape when I came to Tottenham, and the manager let me know that. Within six months there, I was in great condition.
+- Sometimes you have to wait. Sometimes you have to be patient, and your chances will come.
+- My brother is brutally honest with me - he always has been - and he's the first one I text after games. He has a nice chat with me and tells me how I did. He's one I've always looked up to, and I'll always respect him for that.
+- You need to keep working hard on the training field to show the manager you want to play.
+- All I can do is try and keep doing my best in training and games.
+- I didn't think twice about coming to a big club.
+- Spain are certainly one of the best teams in the world.
+- My dad was a tree surgeon. When I was younger, he was working away five days a week for weeks on end, just trying to get as much money.
+- My delivery is something I always worked on.
+- Obviously, when I was playing in the Championship, I always dreamed about playing for England, putting on the jersey.
+- When I played for the first time against France, I wanted more.
+- Playing at Wembley wasn't easy.
+- Whenever I get a chance, I want to do well for the other players, the staff, and, of course, the fans.
+- My career has totally changed. Burnley helped me get to where I am, and I'll never forget that.
+- I got let go at City, but I always believed I could play at the top level.
+- Obviously, you want English players playing in the Champions League against the very best players in Europe.
+- There's some days you start to think, 'When is my chance going to come?' As a professional, you always have that at the back of your mind.
+- I loved Gary Neville's energy, to get up and down for 90 minutes, and his leadership as well. He was always organising; he was passionate. It was just his all-round game. He was a quality defender and could also chip in with a goal and an assist.
+- If the manager selects me to play, I will always give everything I can.
+- I used to watch Beckham and Andrea Pirlo. Players like that, they had a fantastic right foot on them; everyone knows that.
+- I want to stay in England.
+- Ever since I was in the youth team at City, I've always loved crossing the ball.
+- If I'm having problems, I speak to my older brother, who used to play professional football.
+- I thought I was in good shape. When I was at Burnley, and we got our body fat done, I had a really good percentage. Sean Dyche was happy. I went to Tottenham, and I was well high - I think they pinch you tougher at Tottenham - that's what I think. Unless it was my all-inclusive holiday in Mexico.
+- I've had to work so hard in my career to get to this point, from leaving City and going to the Championship to work my way back up. I believed I could do it, and I'm grateful to Burnley and Tottenham for letting me do it in the Premier League.
+- I always wanted to play for City because I was there from such a young age.
+- After the World Cup, I feel more mature, more confident.
+- I was still going out when I was younger - drinking - and I wasn't looking after myself properly.
+- Me and Steve Eyre, the coach at Manchester City, used to stay behind for ages after more or less every session.
+- Representing England makes me emotional.
+- It's the World Cup, and everyone wants to be there. No one will be burnt out; everyone will be raring to go.
+- Everybody knows what Harry Kane is all about; he's a goalscorer, a great professional.

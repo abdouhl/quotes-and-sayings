@@ -1,0 +1,106 @@
++++
+author = "Jamie Hyneman"
+title = "Jamie Hyneman Quotes"
+quotes_len = "100"
+description = "the best 100 Jamie Hyneman Quotes"
++++
+- I'm not an early adopter of technology unless I consider it absolutely indispensable.
+- We seriously irritate each other and don't want to spend any time together. And yet we have a profound respect for the partnership. We're like a couple of dogs with a rag.
+- We're not too out there to educate people about any specific thing necessarily so much as we are to encourage critical and scientific thinking.
+- A good urban legend is something that actually did happen but it got twisted in the telling over time.
+- We've gotten quite creative with our use of explosives... It's almost like an art form, rather than just blowing crap up.
+- Is there some situation where square wheels would be better than round wheels? Sure! A round wheel has a pressure point directly under the tire. A square wheel's corners are going to bite and propel you forward. The square wheel could be superior on snow or mud or sand.
+- I love Tim Curry as the Devil in 'Legend;' the prosthetics that are on him are so over the top sensually evil, and Tim takes full advantage, is just oozing with the role. The makeup and prosthetics, and his character are seamless.
+- We've got a great deal of respect for each other on camera as well as off, no matter what it might occasionally look like.
+- Over the years, we've developed a respect for each other in the roles that we play and we rely on that difference to recreate clarity for the audience.
+- I grew up on an apple orchard with a lot of surrounding wooded area, and I ran everywhere. I was outside all the time climbing trees.
+- I'm a builder, first and foremost.
+- There are times when we're testing an actual explosion, and then there are times when we blow stuff up just because we can.
+- In my case, the only thing to note is if I show up at home at an unusual time, it's cause for raising my wife's blood pressure because it only happens if... usually that involves stitches.
+- Well, one of the myths early on that I think is one of the funnier things we've done is airline toilet seats. That one was about a large woman that sat down on a seat in an airline and flushed the toilet and got stuck on it.
+- Terry Gilliam has directed some of the best examples of what I like to see in a film - one of them being 'Baron Munchausen.'
+- After working as a charter boat captain and dive master in the Caribbean for a number of years, I decided it was time for a change.
+- For four years, I worked as one of the general shop crew on movies like 'Naked Lunch' and 'Arachnophobia.' I made lots of bugs.
+- I've run several of my own small businesses in my life.
+- I found that cardiovascular exercise boosts my mental performance. If I have a problem to solve, like an engineering one, and I get on a treadmill, then time disappears; all I know is an hour later I'm all sweaty and the problem has been solved.
+- Neither Adam or I are scientists, we're not engineers or anything of the sort. We just have a lot of fun and the thing is, fun for us happens to involve science and satisfying our curiosity.
+- I pretty much learned not to fight with it a long time ago and let it do what it likes to do. Otherwise, my shaving techniques are pretty mundane. I tend to do it in the shower because it makes the bristles soft and keeps the razor from building up the hairs inside it, and the mustache is dealt with with scissors.
+- It's millions of times more efficient to collect hydroelectric power through a dam than raindrop by raindrop.
+- I'm not a sociable person. I don't like to talk.
+- I was a problematic kid, to be sure.
+- You have to remember that I'm a guy who is happiest in a dark room just thinking.
+- It's the results that are surprising, even results where we've totally screwed up, and then learned something in the process, are the ones that stand out. Having our preconceptions overturned is actually thrilling for us.
+- Over time, shop classes sort of disappeared or got marginalized in the states. I don't really know why. Now with tech like 3-D printers and CNCs, shops have acquired a new shine.
+- There are things that you would think were not possible, and yet they are.
+- The core of what we're doing is, we're playing with the world. And our curiosity in doing that is what we are most proud of and what we like to put out there.
+- I work out regularly because I don't see the mind and body as that separate.
+- You know, when you look carefully at stuff that you deal with everyday, applying a little creativity to it and thinking outside the box, it's amazing what you can do.
+- I'm developing some new kinds of robotic firefighting vehicles to help with the massive forest fires we're dealing with in the West.
+- When I watch a movie I don't really care too much about the plot - not that it isn't important, but what I remember is the visual imagery, something that happens in an individual scene.
+- Pepper spray, a Taser, a suckling pig and a self-built motorized spit. It's a perfect Thanksgiving, 'MythBusters'-style.
+- I'm like a race horse attached to a freight wagon.
+- Both Adam and I come from a practical effects background.
+- A lot of mythology surrounds British inventor Geoffrey Pyke. He supposedly made people come to his bedside to see his designs because getting up and getting dressed took too long.
+- You know, dealing with effects, as a job it's great, but with 'Mythbusters,' the stuff we've seen, the stuff we've absorbed over the years, has just been fantastic, and I wouldn't change it for the world.
+- If you build a robot, you're welding, machining sculpting, casting, dealing with electronics and hydraulics.
+- Adam's impulsive and energetic, and I'm calm and methodical.
+- Running out of material for 'MythBusters' is like saying, 'We've done everything we could possibly do and we're not curious or interested in anything.' Let's hope that never happens.
+- As far as I'm concerned, raising the bar or encouraging kids in large numbers to be interested in science, I can't think of anything I'd rather see happen.
+- One of the main reasons for success on the show is that we're not a demonstration show. We're an experimentation show.
+- In my case you can pretty well figure that you can put a beret and a mustache on just about anything you want and it looks like me.
+- I think it's probably safe to say that continuing our onscreen relationship in front of the camera is probably not happening. I expect Adam may well pursue things in front of the camera, but I'm most likely not. It's not who I am.
+- I wouldn't spend five minutes with Adam outside work if I didn't have to. But yet I feel somewhat displaced without him in the workplace... destroying my tools and leaving messes everywhere he goes.
+- Now that I'm not a puppet for some director, the Hyneman is free to explore the world at large.
+- I think anybody who's curious about anything, including their own mind, is inherently a skeptic.
+- My hair was falling out so I got in the habit of wearing a hat. And I didn't like baseball caps so I got a beret.
+- Just by going fast enough, you can ride on water with a motorcycle.
+- We're not friends - in fact, we pretty much as a rule irritate each other. But we've learnt to embrace it and use it as a strength... the other guy's always seeing something from the opposite pole.
+- I'm excited about all technology.
+- We're these guys that are very tech-savvy, so people tend to expect us to say our favorite gadgets are thing like the latest iPhone or the latest app or something like that. Adam is pretty much like that. As far as myself, I'm the kind of guy that tends to go for the absolute simplest things.
+- Neither of us were experienced hosts on television. But the show seemd to moved in the direction of our characters, the way we approached things. It evolved around us and the things we think are interesting.
+- Occasionally, you know, a myth is specific with a certain model of car, you know, like a Corvette or whatever. And so we end up spending some cash on those.
+- We're fond of pointing out that we've known each other for over 25 years now and not once sat down alone to have dinner together. We pretty much avoid spending whatever time together that we can.
+- Duct tape is like that. It's a building block. You can make a rope out of it, you can make a cloth out of it. And because it sticks to stuff it's even more powerful. It's like an uber-material because of the versatility of a sticky fiber.
+- Some of the most important discoveries that scientists have made were not what they were seeking at the time.
+- We've done a zombie episode - only one - and the way we look at it as is we understand that there probably aren't zombies out there for real, but there's a lot of interesting stuff we can test about them. We've tested how bodies of zombies pressing against a gate, would they push it through and things like that.
+- If we knew what we were doing we wouldn't be entertaining.
+- At its core, what we do in 'MythBusters' is turn science into an adventure.
+- Arachnophobia' was one of the first films I did major effects for.
+- I'm sort of reluctant to celebrity.
+- I mean, we're - if I may say so - we're experts at using materials and processes in ways for which they were never intended.
+- Miles Flannery - he's a beast. Very talented, but a brute. He's one of three guys who help us keep the shop maintained, help us set up on location and assist in building something if time is short.
+- Science is for anyone who wants to explore their world and understand things.
+- There are a lot of scientists or other people who can be very skeptical or rational within their field, but they may well not do that in other aspects of their lives, when it comes to things like religion, or what have you. People have this amazing gift for being selective with their curiosity and skepticism.
+- If you ever decide to build a boat out of wet newspaper, it's important to remember to lay down the sheets like shingles on a house: One issue at a time, starting at the bow and moving aft, so water flows over the layers, not under them.
+- Science isn't just for guys in lab coats, you know? It's for anybody who wants to do a good job of understanding and investigating the world.
+- I was approached to do 'MythBusters' in 2002. I didn't think it would go anywhere, but I guess anything can happen if you wear a funny hat and have lots of facial hair.
+- The only way we can fly planes and use computers is because people were curious about their world and also skeptical about the things they were told to be immutable, so they figured out other ways of doing things.
+- When I was in school, shop class was where the kids that weren't good in anything to do with books went.
+- I don't see that we're any different than many, many people that are out there. And it's hard to kind of accept something like we're larger than life, super-people or something like that.
+- We got a lot of gay fan mail when the show first started. Something to do with being in San Francisco and being a big, burly guy with a big moustache. But we're both happily married. To women.
+- We couldn't be happier that the show has encouraged kids to have an interest in science and math, but we don't try to do that. We just have fun, which is its own bold statement.
+- We are seeing robotics creep into all areas and become accessible, where it used to be something tedious that only the most persistent people could access.
+- I pretty much just use my smartphone for phone calls.
+- There are a couple of scenes in David Lynch's 'Dune' that I loved - again, small things but inspired and elegantly done.
+- I'm a little suspicious of using microwaves.
+- Algae are such basic, simple organisms.
+- Personally I'm more into science and engineering types of things, not so much into testing 'Star Wars' myths.
+- On occasion, we at 'MythBusters' come across stories we want to test that require using a pig carcass to simulate human physiology.
+- Children are just little scientists.
+- I really didn't think this was going to be a success. We did the first three episodes and I said to Adam, 'I can't see this going anywhere. I've already used up all my urban legends.'
+- When I'm problem-solving with something, I have, effectively, a CAD program in my head that's like a room that has specific qualities to it that I go to some deal of effort to populate. Textures and smells, something like that.
+- I have to say that we're not actors, at least on 'Mythbusters' or any of the other television projects that we've done.
+- I think when you do stuff in a computer people tend to dismiss it. It also allows you to make a lot of stuff totally not connected with reality because you're not limited by any kind of reality.
+- An indispensable tool is a pair of diagonal cutting Knipex pliers. There isn't any other hand tool of any other brand that stands up to it.
+- I went to the library - and this was before the Internet - and I searched for a career that was creative, would not fall into a routine, involved problem solving and making things. It also had to be dynamic. I came up with special effects.
+- If you get the question right, if you really define it, then the answers are just sitting there waiting for you. And it's something a little different than people usually think.
+- Adam and I don't consider ourselves friends. We don't spend any time together that we don't have to.
+- I am pretty much who I seem, and it's not a television host.
+- It's fun to use your brain.
+- I never dreamed we would be on television at all, much less for such a long time and with so much praise for keeping a thought provoking show on the air. And best of all, we were able to do what we do and still have all our fingers and toes.
+- If I had one word to describe how I feel at never having to work with co-host Adam Savage again it'd be relief.
+- We really do prefer to build things rather than destroy things, believe it or not.
+- The daily work on special effects is fairly mundane.
+- As it turns out, one of the biggest choices we have doing the show is deciding the tangents we are allowed to take, the stuff that we see along the way. We're allowed to explore the world at large on these things; the urban-legend aspect of it is just kind of an excuse.
+- I've ended up water skiing behind the Stanford rowing team as well as water skiing behind an excavator while it swung around in a circle.
+- I think 'MythBusters' is a step up from special effects because we not only have to make things look like they work, they actually do have to work. It's more challenging and even transcendental.

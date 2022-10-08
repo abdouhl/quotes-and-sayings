@@ -1,0 +1,38 @@
++++
+author = "Tye Sheridan"
+title = "Tye Sheridan Quotes"
+quotes_len = "32"
+description = "the best 32 Tye Sheridan Quotes"
++++
+- I'd say James Dean is someone that's really inspired me. Just the fact that he did only three movies before he died at such a young age, and yet everyone knows who he is. It really blows my mind.
+- Since I was a kid, I've always been obsessed with animation.
+- I love South Africa.
+- There's not anyone in particular I'd like to work with. I just want to continue doing work that I have a passion for.
+- I just randomly fell into acting. I was so young at the time that I never really thought about acting... After I was into it, I had a feeling that I was going to end up doing this anyway somehow.
+- I just like doing things with people that I love and care about and trust to work with, and I care about good material and good content - as long as I'm doing that, I'm happy.
+- Everyone should feel comfortable in their own skin. Whether there are social standards set in place that act against that, it doesn't matter because the people that love you for who you are are going to love you always, and you should love yourself always.
+- There are films of mine that I've seen numerous times and other ones I've been in that I haven't seen at all. It depends on my experience making them.
+- This is the best film school there is, just to make movies and be there on set.
+- L.A. can be a tough city, very lonely. A lot of people move here to pursue a dream, and that's understandable. But sometimes it's hard to find genuine friends.
+- You have some great films every year, but for the most part, no one is making films with heavy messages or themes. People are afraid of doing that.
+- 'Ready Player One' is an actor's dream, so - I mean, to work with Spielberg is - everything.
+- I got rid of my Instagram and had a flip phone for two years. I only started one after a friend told me someone was impersonating me.
+- When you don't understand something, it's always OK to ask questions. That's really the mentality that I've had.
+- I've been so honored and so lucky to work with some amazing people. I've collaborated on amazing sets and with amazing crews.
+- I didn't really grow up watching a lot of films. I grew up in the middle of Texas in a very rural area, so we were always outside fishing or playing a sport - we were never in front of a TV watching films.
+- I think my passion for cinema really started when I was on the set of 'Mud' and my third film 'Joe.' That's when I really started to fall in love with the art of filmmaking.
+- When I was shooting 'Mud,' every day was my favourite! I had so much fun on this film and loved working with all the cast and crew! It was a great experience.
+- I was a kid that grew up in the South and was always outdoors fishing and hunting and, you know, swimming in the pool during the summer.
+- I had such a pure upbringing - my childhood was a really happy time.
+- I was late to the franchise; 'Days of Future Past' was the first X-Men movie I saw.
+- I had no idea, really, on my first film what I was doing.
+- My dad and I are, like, best friends.
+- I like films that are about people and real, and honest films that are authentic depictions of real-world problems.
+- Drama is something I'm good at, I guess.
+- For me, learning about cinema and the craft and the art of it, through making films with great people, has been such a cool experience.
+- I think it's my job as a young actor to watch adult actors and take tips on the way they work.
+- Growing up, I didn't have a chance to watch a lot of films. It wasn't until my teen years that I had to chance to see the classic films.
+- If I could be any avatar and go into a social virtual space, I think I would try to be my avatar from 'Ready Player One' 'cause why not? He's already got the windy hair.
+- My first audition was for Terrence Malick's 'The Tree of Life.' These casting directors came through Texas, and they recruited somewhere around 10,000 kids to come and audition for this movie. They sent me a letter in the mail, and I went and auditioned for this movie.
+- There's a lot of love in my house. I have the greatest parents ever.
+- As an actor, I always wondered what it would be like to watch an animated character with your voice behind it and see if it seems seamless or if it seems like your voice is isolated from the animation.

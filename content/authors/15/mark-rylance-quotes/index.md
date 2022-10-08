@@ -1,0 +1,71 @@
++++
+author = "Mark Rylance"
+title = "Mark Rylance Quotes"
+quotes_len = "65"
+description = "the best 65 Mark Rylance Quotes"
++++
+- Chaos can be incredibly creative.
+- Pretty much all children are helpful to act with; they lack any guile when they act.
+- So there's a lot of people tied into believing that the traditional response to the authorship question. In terms of actors, some people get very angry about it.
+- My understanding is that we are generally a very philanthropic and compassionate people - that when there are disasters in the world, individual citizens send loads of money into appeals for different things. We're a bloody violent people, football fans, and we've been successful at wars, and we sell far too many weapons.
+- There have been more books alone written about Hamlet than have been written about the Bible.
+- You know, I don't think you need to be educated to be a great actor.
+- The bad, angry, upset, wounded people are more interesting, so they're in the news more, but I don't think they're in the majority. I have faith that things will change - I mean, just like everybody else, I don't fix my roof until it's actually leaking, but eventually, we all get round to doing it.
+- Shakespeare was the main thing I did in my life from the age of 16 when I first played 'Hamlet' at school. I then did summer stock the next summer and then went to RADA and joined the RSC and ran my own company and then worked at the Globe. That was about 30 years of my life.
+- Every great filmmaker at some moment makes a war film.
+- It's an awful thing to be aware of your own corruption. I think a lot of people are bound by the particular economic system we work in to serve companies and masters who aren't really telling people what they're doing.
+- And it is a very beautiful idea, and possibly true, that a common man from Stratford with a common education was able to write these plays.
+- I have a lot of ideas come to me when I'm working that are different from the plan, and sometimes that can be a little overwhelming and difficult for directors.
+- You try, as an actor, to wear a mask; you're serving a story.
+- As a leader, you get a pat on the back when you make a hard choice.
+- I did audition a lot. One's agent is keen to get you into film and TV because there's more money. I was always getting myself into commitments to theatre companies.
+- You feel a lot of rage when someone dies. I have a lot of faith in nature, but it can be cruel.
+- I like to connect with the other actors in a fantasy situation.
+- I've always looked at famous actors and hope that once they get a part that they have success in, they would reprise it every few years in the way a pop singer will reprise their hits. Like Bob Dylan singing 'Blowin' in the Wind' until he's fed up with it, finding different ways of doing it.
+- So often, in my life, when you play a joke on another actor, you say, 'Hello? Steven Spielberg? It's for you.' What's it feel like? It's bizarre. He feels like he's a friend. He feels like he's some kid in the neighborhood who has a camera and makes films, now and then, and says, 'Would you come 'round and play?' It doesn't feel grand at all.
+- And people do enjoy the plays at completely different levels. And, likewise, they enjoy the authorship question... at completely different levels.
+- Moments are incredible, but in my fantasy mind I see a Globe company which is renowned throughout the world for what it does with pure storytelling. So that people come and say: it's not just the building, it's the only place you can hear this kind of work.
+- My accent does slip. When I arrived in England in 1978 at 18, I was shocked to find myself 'the American' at RADA. The English and the Americans have an intense relationship. They helped us out in the Second World War.
+- I love film. I love going to see films; I always have. I've done quite a few.
+- Our job is to make manifest the story, to be it. In a sense, the theatre is such a big star itself, bigger than any Shakespearean actor I could hire, that we should take the opportunity to fill it with voice and verse and movement, not interpretation.
+- I think, early on, I was very distrustful of authority yet needed a lot of approval from it. I was in that kind of bind. Which is a kind of abuse bind.
+- If I were to do a sequel, it would be with Sophie as a very old woman and The BFG the same, a bit like that 'Let the Right One' in film.
+- It's an intuitive exercise to do a Shakespeare play and to go through a Shakespeare play.
+- We have people we admire, like Einstein, saying mystery is the most beautiful thing a human being can experience. Yet, everywhere in our culture, everything that is truly mysterious is immediately dismissed.
+- If there was no fame involved and very minimal money - which is the case for most actors - I'd still be doing it. If I wasn't good enough to be a professional, I'd be an amateur actor.
+- Great actors try to dismiss all ideas from their conscious mind in order to provide an experience that is real.
+- I know that some people who move into film lose their nerve for the stage.
+- You're stealing people's secrets. You convince them to give up their life and imagine the life you've created is real or more interesting. If it's a good play, they'll cry or think private thoughts about their lives or laugh.
+- Well, my wife always says to me, and I think it's true, it's very difficult for us to understand the Elizabethan understanding and enjoyment and perception of form as it is to say... it would be for them to understand computers or going to the moon or something.
+- I didn't particularly aim to be a Shakespeare actor, but I suppose I had a certain gift or it; I certainly got offered lots of it. I liked Complicite and Shared Experience and Kick Theatre, and all the small theatre companies that were getting going. I wanted to be like that, making original theatre.
+- Some actors are frightened and concentrating so hard on their own performance, you don't feel that anything you do makes any difference. They're just kicking a ball against a wall, so to speak.
+- But I don't sit down at dinner and have clever ideas.
+- In a way, I think science is the modern religion, and at times, I despise it as much as I despise other religions because it really will only accept stuff that fits its masculine ability to define the world.
+- There are still people, obviously, who are stopping you and want a selfie because they need to justify their own lives by being in close proximity to a celebrity... but those are minor with me. I'm not a major celebrity.
+- I just absolutely needed the theatre so desperately - it was my fate; it was where I was running towards. It was the place where I found peace and survival and all kinds of things.
+- It's strange how the mind works while you're acting, because you have all sorts of quick thoughts going on as well as the motivations with the character.
+- A lot of actors, you can't get them to shut up. Instead of listening and watching, they're always telling you something.
+- You need to gain the confidence that you're doing enough on film. You must resist the temptation to do too much.
+- I certainly never pictured myself even attending the Academy Awards, much less winning at 56. I very, very happily settled into a theater career. I did more than that, but I let all of my agents and people go. I said, 'I don't want to be promoted in film anymore. I have enough to do in the theater, so I'm just going to carry on.'
+- I'm quite simple, really. I like to play and inhabit my character. I really like to inhabit the situation. It's the situation that intrigues me.
+- I had to turn down a part in 'Empire of the Sun.' It would have paid £15,000, which was a year's earnings for me then, but I was offered a season at the 'National Theatre.'
+- It's a very dangerous and lonely thing, I imagine, to be a spy: to have friendships that are deceptions, that are not honest.
+- It's difficult for me to say, but I don't think the sex scenes are particularly erotic.
+- I can't believe, even in 'The Guardian,' people ask the questions, 'Where did ISIS come from?' 'How did this happen?' 'Why do young Muslim women go off to join them?' Maybe because we've been degrading their people since 1917. Maybe their teenage years are a little bit more stressed than that of Christianity.
+- I have great mood swings, maybe because of playing lots of different characters as I do. I'm like a gymnast whose muscles get too stretched. I've got better at it, but I have a lot of emotional energy.
+- Nature is very cruel. It is much riskier to love any living being than not. I'm painfully aware that even my little dog is a walking bundle of mortality. I'm painfully aware he's going to pass.
+- But I find with Francis Bacon, some of the things were in the place, and someone who was connected with these schools of thought, and someone who had a motivation that equals the scope of the comedy and the tragedy in the plays.
+- Burleigh, absolutely; and a lot about Elizabeth. I mean I found when I play Henry V a lot of connections with the hidden history of the connection between Francis Bacon and Elizabeth.
+- There were terrific shows on TV like 'Star Trek' and 'Voyage To The Bottom Of The Sea' and 'Wild Wild West.' All us kids would watch them. We would act them out in the basement. I think I found that I could speak a bit more clearly when I was playing with other people.
+- I don't think humanity is the highest form of life that will ever exist in the universe. Maybe that's a bit cynical. But most of the people I know are loving, kind, doing their best.
+- I'm still struggling with whether I might want to get off the Internet. More and more people I know have. Daniel Day Lewis doesn't do the Internet at all, and I noticed he had many more books open around his house.
+- The publicity machine for films and television is so much bigger than for theatre.
+- The scientific-rational mindset is as much a cosmology as the Catholic mindset was in the Middle Ages; scientists are so proud of their mindset and convinced that it's the only reality. I find that worrying.
+- It's an important thing for children to be able to make up their own words.
+- When I was a child, Sunday afternoons felt like they could last a week or a month. Increasingly, as I get older, time is going so, so fast.
+- I think the idea that life ends when we physically die is as painful as the idea in Cromwell's time that there's some awful purgatory, and you have to give money to the Catholic church to get your loved ones out. I certainly have experienced a lot of evidence that there's a consciousness that isn't physical.
+- I love poetry. If my mind gets a bit tight or bound up with information or depressed with bad news, I find a good book of poetry is like going to the gym for an hour. My mind just expands.
+- I learnt so much wit, really, from the Globe audiences. If you can make a circle, even in a proscenium theater, if you can get a circular energy going, so that all these people are involved with it and present, then there is something curious that happens with the imagination.
+- It's something I've enjoyed since being a kid, the fantasy of it, the imagining I'm someone other than who I am. I've always felt claustrophobic in one sense of identity. If anything, I've had to work to develop a sense of my own identity. I used to really hate it when people defined me.
+- I think that was very important to Bacon... personally. I think he went to great efforts to get a house for the Stratford man, to make it so difficult for us to prove that it was Francis Bacon, because it is very difficult to prove.
+- It's amazing how much the sense of telling a story with a beginning, middle, and end helps me to relax. I find that the mass of stories that one is subjected to living one's life is otherwise overwhelming.

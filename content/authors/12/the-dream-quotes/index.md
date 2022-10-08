@@ -1,0 +1,106 @@
++++
+author = "The-Dream"
+title = "The-Dream Quotes"
+quotes_len = "100"
+description = "the best 100 The-Dream Quotes"
++++
+- When I used to work my 9 to 5, I used to go to this abandoned house down the street. It was for sale, but nobody knew it. It was a mansion. Every day, or at least four days out the week, I would just stand on the porch of the house for like a year straight. That was around 2001 or 2002.
+- I refuse to do something that's not me as an artist.
+- I got fed up with the idea of partnering with labels on a major scale because of how they have to deliver things. They get gun-shy.
+- Man's biggest enemy is a woman who has it in for them.
+- Most of the time, men don't really express ourselves.
+- What I want to do is to create a conversation piece and something people remember. I want to make it repetitive enough but not use what I call 'thin thinking' - the kind of thing anyone can do. A hook tells me what you are talking about and it doesn't have to be a lot of words.
+- I used to draw cars when I was growing up. I wanted to be a car designer. I've never been professionally taught. It's something that comes and goes.
+- Everybody needs love and loves something.
+- Music was always a passion, but when I was a kid I didn't see it as a viable career.
+- The easiest part is growing something from nothing because there's no expectations.
+- People aren't really honest with themselves about anything. That's one of the reasons why we ended up with Trump in the White House.
+- There's nothing I can't do musically.
+- If you got a hit and you're white, there are no limits to what you can do.
+- I don't think anybody does contemporary R&B albums better than me.
+- I think of myself just as a writer.
+- It's hard doing something that nobody actually wants to hear.
+- Rhythm and blues is about what life is, it's about being able to talk heartbreak and understanding that people go through it, not about this fantasy in how much you're spending.
+- I'm just not Mr. Joe that goes to work nine-to-five. I never will be.
+- You probably shouldn't date a songwriter if you don't want to end up on the record.
+- What I look forward to the most is influencing an individual to go out into the world and make the world a better place.
+- My days, sometimes, it's just about work. I'm not thinking about taking a picture in the studio, and I don't have the time to stop being creative to stop and post on Instagram. That's not a part of my creative process.
+- The record company has fought for themselves, never for me.
+- Earlier in my career I had so much to prove.
+- Every time you hear an 808 drum machine beat on one of my songs, it comes from Freaknik.
+- You never know somebody till you get in the room with them.
+- I've never lied on a record.
+- I don't believe in cards. I believe in cash. I'd carry gold if it wasn't so heavy.
+- I am pretty frank of a guy. That used to be appreciated, back in the day.
+- I'm not arrogant but I'm confident enough to know what I can do and what I can't do. And I'm fine with what I can't.
+- If anybody sounds like me... everyone knows me, I'm flattered.
+- I paint. A lot of people don't know that.
+- I love Rihanna period!
+- I listen to Sinatra way more than a person my age probably should.
+- I'm everybody in music's guilty pleasure.
+- The world gets better as soon as people start doing exactly what they're great at.
+- I grew up on Jodeci and R. Kelly.
+- You don't need a band to do hip-hop; you only need a DJ.
+- Anytime a musician says they're going to retire they're lying.
+- I love it when people come in my house and ask for my paintings off the wall, and I have to tell them that I did it. I love art.
+- I don't stop working.
+- My mama died when she was 35 years old.
+- I can't control when somebody likes my song or they don't.
+- It was always in me to just put records out. I don't like holding on to records.
+- I love movies. They've always influenced the music i've done.
+- My uncle used to say, 'You'll go on and become the dream of the family.' That's how I got my name.
+- Some people aren't smart enough to understand the intellectual part of a being. That's why as a 30-year-old you don't have a conversation with a 15-year-old. I don't dine with 15-year-olds and talk about life. Our experiences are completely different.
+- Whether I'm working with a Top 40 artist or crafting my own music, it goes back to one thing: telling a powerful story and having that story resonate with people.
+- I think what makes me great as a songwriter is there's still an artist behind it.
+- Frank Ocean is definitely amazing.
+- I really love customising certain songs for certain people. No matter what weight that comes with it - whether it comes with it not being a number one on the Top 100 or whatever. I'd rather write someone a career defining record.
+- You can't just keep stacking up things and not go and live.
+- It takes a lot to put a 5-piece band on, even though we need it. We need those harmonies; I need those four background singers - not because I can't sing but because I need to relay the message of what the song is emotionally, or the feeling, period.
+- My influence is everywhere.
+- If I do five, six records that sound great, I want it to come out as fast as it can. I don't care how many copies it sells. It's about musically moving the needle.
+- When people try questioning my artistry or what it is that I do, it's because it doesn't look like everybody else's art.
+- I love Kanye. He's literally the only person that challenges me. He has an overwhelming love for music also, and that's why he's misunderstood. The boy is a genius. You can be mad all you want, but he loves what you listen to more than you love it. When he lost his mom I cried.
+- I'm talented in other places, not only in songwriting, but music is always going to be the backdrop to whatever happens in life.
+- Money affects everything, from who I'm with to what label I'm on, so everything I do now is about protecting it. But I didn't understand how powerfully that would affect my home life.
+- Life gets you hurt. Love didn't do it. Life does it.
+- Some of the time, I am competing with myself.
+- Writing a song is about inhabiting a specific frame of mind and conjuring a mood, a character, an entire vision.
+- When the Atlanta Braves were owned by Ted Turner, he was very passionate and did whatever it took to do something good - and eventually he made money. Labels used to be the same way. Now they're corporations, and it's only about their stock.
+- Men don't really change. That's just how it is.
+- R&B is a conversation that you should be able to sit down and have.
+- My gears that I have to go through... One minute in my mind to be Beyonce and one minute to be Rihanna and one second to do a hook for Kanye and then have to write records for myself. I'm so many people, I'm never just one person. So I don't have to reinvent because artists around me reinvent for me.
+- I'm an artist because of how I do things, not because I'm trying to be one.
+- One thing is relationships: Don't get in a relationship if you're going to leave a man if he cheats on you. Because 99% of the time he's going to cheat.
+- I've always had a soft spot for women because of my mom. Just their power.
+- The cultural impact of records is more important to me than a No. 1 record.
+- I know how a woman thinks - that doesn't mean that I agree with it.
+- I'm an oddball Georgia working guy.
+- I love Aaliyah.
+- I would never intentionally hurt a soul and everyone around me knows that!
+- I have a problem with men that are supposed to be R&B artists that talk about women in a certain way, because you're supposed in the cornerstone of uplifting love in a sense.
+- At the end of the day, I'm big on principle and loyalty.
+- I was playing a lot of Coldplay before the world knew who I was, before anybody knew my 'Umbrella' song. Those songs still stick in my head. I just love it. It's without pop culture, it's just a song. It's just singing.
+- I think The Weeknd is an incredible melodically driven artist. People often say to me that he sounds a lot like what I do, and I'm sure that the influence is there. But he's not me, nor is he trying to be me.
+- I'm not a singles artist - I never have been.
+- My influence is everywhere. You know when you're touching people.
+- It's very hard for me to write a generic song that could be sung by anybody.
+- I call my attorney three times a day.
+- More than anything, 'Purple Kisses' just came about because I'm very hands on, especially in relationships.
+- I always loved the Clipse. Period, point blank.
+- Politics changes music most of the time. Ronald Reagan - you can kind of say that he made hip-hop what it was by the embargoes that he set. Certain things that he did created N.W.A in a way. Politics has always done that.
+- I want to be the king of music. Period.
+- People are so over what they did yesterday, they don't even sit and discuss what made it a great time. They'd have to be reminded by their Instagram, after 52 weeks, and it's like 'Oh, I remember that now.'
+- The business of a label is to make money - my business is to make music. I'm gonna get paid if I do it right.
+- My grandfather would go to work at 6 A.M.
+- I learned to play instruments and I've been in bands since I was 13, but I wanted to be an artist and I really wanted to design cars.
+- I understand freedom of speech but if I made my living spreading rumors about people, my family wouldn't claim me.
+- I'm a hopeless romantic, of course.
+- To somebody else saying all I need is 10 million dollars, then I've probably made it. But there are Paul McCartneys walking around with $500 million catalogs. That's pretty much what I want. And that's just music. That doesn't even include directing and writing of movies and all of the other things that I want to go on to do. So I have a big dream.
+- There are certain people who respect me in the dark. Some people who don't know me are afraid to say, 'What you doin' is kind of incredible.'
+- The-Dream is a fantasy, but without fiction.
+- I'm a vulnerable guy, which is always been there, you know? Like, most of the time I put myself in positions where I am vulnerable, because I don't think you're living unless you do.
+- At the end of the day, I'm a songwriter.
+- Spiritually, I just have an innate feeling about things and individuals in life and I'm touched in that way that I can't explain.
+- This is Life. Nothing's promised or perfect, neither am I.
+- I grew up looking at the Grammys. It was a childhood infatuation with these people walking around with gold statues. I felt like they were the best, and that's why I started working so hard.
+- I am human, and people fall in and out of love all the time.

@@ -1,0 +1,106 @@
++++
+author = "Alice Roberts"
+title = "Alice Roberts Quotes"
+quotes_len = "100"
+description = "the best 100 Alice Roberts Quotes"
++++
+- You don't need to go to Rome, Prague or Vienna to find wonderful architecture, amazing stories and suprising, hidden gems.
+- I'm slightly obsessed with Moomins. They were my specialist subject on BBC's 'Celebrity Mastermind' a few years ago!
+- Educated guesswork' is what science is. You form hypotheses, test them against the evidence, and if they fit the evidence, you can assume you've got close to the truth.
+- I don't think anyone is saying that we should be treating boys and girls exactly the same and that we should try to eliminate all differences. What the psychologists who do this work are saying is we should be aware of it and careful about it, especially if we think it could be limiting choices.
+- Lunch on the road is usually the same as breakfast and tea in remote places - packet meals. I'm veggie and generally get vegetable curry or rigatoni.
+- When I asked what people would change about their bodies on Twitter, the birthing process was an extremely popular response!
+- Eighteen years later, pregnant with my first child, I started eating fish. Oily fish in particular contains plenty of long-chain omega-3 fatty acids, essential for neural development.
+- Science offers us the possibility of understanding natural rhythms and events that must have seemed like the work of angry and unpredictable gods to our ancestors.
+- It is so stimulating for young children to hear someone who does science talking about it. It can be so exciting and inspiring. It is easy to get younger school children enthused about science.
+- My mum was an art teacher, so we used to have fantastic dressing-up costumes when we were little.
+- The important thing is when you look at areas like physics and you realise that only one in five A-level students is a girl. We know it isn't about aptitude.
+- One of the big factors in me going to an independent school was the bullying at junior school. But it wasn't an easy choice for my parents. And now, I do have issues with independent schools.
+- From a very young age, parents are pushing their boys to achieve in a way they don't always do for girls.
+- Always attempting to tame and subjugate nature is not the solution. But the latest science is helping us to map out a path across this shifting landscape in uncertain times, showing us how to work with natural forces, not against them.
+- We have been talking about public engagement for a decade. For me it is about recognising that the mission of science has to be embedded within our culture - the direction in which science is going has to be determined by all of us, and so we need a dialogue with the public.
+- I was effectively unemployed after my son was born. I resigned from Bristol because I wasn't happy with the way my career was going then discovered I was pregnant when I was out of a job, but I was freelancing.
+- So I think as a biologist I would like us to focus on this planet and finding solutions to sustaining humanity, to improving people's lives globally, but doing our absolute utmost to preserve as much biodiversity as we can, knowing that we have already been responsible for the loss of thousands of species.
+- If we don't concentrate on resurrecting science, we're not going to be able to compete in a global economy.
+- As an anthropologist, I believe strongly in our common humanity. We can rise above the tribal divisions that have caused so much anguish and real damage in the past.
+- The colour of a British wood in autumn is predominantly yellow. There are relatively few European trees which have red leaves in the autumn. But there are splashes of crimson or rust-red colours from a few indigenous trees, like the rowan, as well as from introduced species, like the North American red oak.
+- Chance is hugely significant in biology. In fact, the presence of apparent randomness in so many aspects of biology - from mutations in DNA to the chance involved in that one sperm reaching that one egg that became you - suggests that randomness is useful, even necessary, in very many cases.
+- Then the BBC approached me in 2005 and asked me to be one of the presenters of the series 'Coast', which turned into a very long-running series.
+- Later, I found it too hard to give up, and so I've continued eating fish and other seafood, while trying to ensure it's sustainably sourced. This means I'm now one of those vegetarians I used to frown at - one who occasionally eats fish.
+- The real hallmarks of humanity are: curiosity and an amazing ability to cooperate.
+- One way I try to manage it is by not having a princess party for my daughter and trying to do things that are not so stereotyped. But if she's invited to a princess party, of course I'm not going to stop her going.
+- You can somehow get access to what is perceived to be a better school by either being religious or appearing to be religious. That is unfair.
+- The environment would be better off and everyone would be healthier if we stopped eating meat.
+- We have plenty of young women coming into biology and medicine, but we don't have enough coming into physics and engineering. It's a really weird thing because, of course, all these subjects are completely neutral.
+- I love Roger Deakin's writing, and enjoyed making a programme about wild swimming for BBC4, inspired by his book about his own aquatic adventures, 'Waterlog'.
+- I love Christmas. At this very special time of year, when the sun appears only fleetingly to those of us living in the northern hemisphere, I feel a deep connection with ancient ancestors.
+- Look what consumer power has done with organic food; we can do the same with clothes.
+- If a group of humans began to run regularly, perhaps allowing them to hunt or scavenge more effectively, anatomical changes would follow, especially among the still-developing youngsters.
+- Our long, flexible lumbar spines are great in many ways - they help us to run efficiently, for instance. But they have their drawbacks. The lumbar vertebrae are under great strain, and as we age, the ligaments that hold the pulpy centres of the intervertebral discs in place dry out.
+- We need to stop being so profligate with fossil fuels, to rein back climate change and protect biodiversity. We need to work together, globally, and I'm optimistic that we will.
+- Science is about questioning things.
+- We're not the only mammals who are partial to blackberries, far from it. Foxes and badgers will also gobble them up, helping to distribute the seeds, which survive the transit through the gut.
+- Just as your own existence is unlikely and far from inevitable, the evolution of modern humans as a species depended on a whole string of chance events - some happening in the environments our ancestors inhabited, and some inside their own bodies, including random mutations in their DNA.
+- I'm a firm believer in teaching children to manage risk.
+- It's tempting to look back into history with rose-tinted glasses. Most people in the Stone Age didn't live anywhere near as long as we're living now. Today we can enjoy a more wide-ranging diet and we have fruit and vegetables available all year round.
+- The fate of the vast majority of species on this planet has been extinction, eventually.
+- I find humanism to be the most rational and positive philosophy for life. And it's not a new thing at all - the history of humanist thought is deep and inspiring.
+- More useful than beautiful perhaps, my favourite regular programme is 'Question Time'. And Charlie Brooker is just hilarious.
+- When I was in my 20s, and even though I was studying medicine, I didn't ever really think that my body would fail. Now I'm in my 40s, I have to face a different reality - I, like everyone else, am slowly falling apart.
+- Around 4000BC, the Mesolithic, hunter-gatherer way of life here gave way to a more settled, farming existence. Those Neolithic people built wooden trackways across the salt marshes and reed beds.
+- It seems that humans have been enjoying the taste and health benefits of blackberries for thousands of years. Gathered blackberries have been found at Neolithic sites, while a preserved iron age bog body, known as Haraldskaer Woman, provides definite evidence of blackberry ingestion.
+- I know a bit about vertebrate anatomy and I'd like to think that I'd spot if a skeleton was entirely fabricated or cobbled together from existing bits and pieces.
+- Easter is an ancient festival of rebirth, but it's also an excellent excuse for eating eggs. I really like eggs, of both the chocolate and chicken variety. But the chocolate ones, you must admit, can sustain only a fleeting interest. A sweet, sugary hit - and then it's gone.
+- Of course 'Horizon' had made an impact on me from a young age, but it was also humbling to meet and interview eminent scientists, and hear their high opinion of the series and of the science presented on the BBC more generally.
+- Stonehenge is famously aligned with midsummer sunrise, and possibly also intentionally with midwinter sunset.
+- I was a goth in my student days. I dyed my hair black, but it came out grey, with a blue scalp. Then I dyed it red and it came out fuschia pink.
+- The history of palaeontology is littered with examples of famous frauds and fakes, often with eminent researchers in the field being thoroughly hoodwinked by some fairly shoddy fabrications.
+- Choosing my career was always based on job satisfaction rather than financial security. I wanted to get a job in science; I enjoyed being a surgeon and I now enjoy being an academic and having a media career.
+- Looking in detail at human anatomy, I'm always left with two practically irreconcilable thoughts: our bodies are wonderful, intricate masterpieces; and then - they are cobbled-together, rag-bag, sometimes clunking machines.
+- My childhood hero was David Attenborough. He opened my eyes to the wonder of the natural world. In fact, he's still my hero. I interviewed him at the Science Museum in 2015, and he is such a thoughtful, humble and inspiring person.
+- I gave up meat when I was 18, and it was an ethical decision. I loved the taste, and went on holiday to Greece, fairly gorging myself on lamb souvlaki before taking the plunge into a meatless existence.
+- Our ape legs make us great generalists - we can walk, run and climb. But when you try to do too many things at once, you can end up with problems.
+- Whatever happens to science in schools, there's something peculiar going on if students don't see it as creative.
+- As well as tasting fantastic, blackberries are good for you. Anthocyanin isn't just a pigment, it's a flavonoid, a heroic antioxidant! The stuff of superfoods!
+- I was keen to earn my own money from an early age. I had a job as a paper girl in my local village when I was about 11 - and when I was a bit older, around 15, I was a waitress.
+- Pagan Romans started their midwinter celebrations with the feast of Saturnalia on 17 December, ending them with a new year festival, the Kalendae Januariae, at the start of January - both were celebrated with parties and the exchange of gifts.
+- I love prehistory - particularly the Neolithic and the Bronze Age. These were times when our ancestors made a revolutionary change from being hunter-gatherers to being farmers, and when great migrations of people spread languages - and genes - across Europe.
+- In fact, humans have less variation genetically than chimpanzees.
+- And when you take something like the changing colour of autumn leaves and start to ask why, you're starting off on an intellectual journey which will take you beyond that moment of visual satisfaction, while robbing nothing from that experience.
+- So I had this fascination with old bones and being able to diagnose disease in old bones. And I was doing that, and started to do bone reports for the Channel 4 series 'Time Team'.
+- I grew up in the Seventies; my dad is an aeronautical engineer and my mum was an English and arts teacher and for a while my family had to exist on one salary.
+- The scientific method is about trying to remove our own bias and subjectivity, and be as objective as possible. But then you can put it back into context and you're allowed to be emotional and human about the way you engage with it.
+- There should be regulation that prevents all schools, not just state schools, from teaching creationism because it is indoctrination, it is planting ideas into children's heads. We should be teaching children to be much more open-minded.
+- In our evolutionary narratives, the organism itself often seems to play a passive role: a powerless victim, almost, of changes to its environment or mutations in its genes.
+- People who believe in creationism say that by teaching evolution you are indoctrinating them with science, but I just don't agree with that.
+- I've wanted to write a book on embryology, that extraordinary journey where you start off as a single cell and end up with a human body, for a general audience for years.
+- At Bristol I found it quite difficult to continue trying to balance three things - teaching, research and public engagement, for which television was obviously the most prominent part.
+- I've seen many dinosaur fossils, some mounted in museums, others in the process of being extracted from their rocky matrix, and it has never occurred to me that any could be anything other than genuine.
+- When I started doing television, I was very aware my clothes would be obvious and it was a great opportunity to promote brands which are made with respect to people and the environment.
+- But I think you can strip the emotion and the subjectivity away while you focus on doing the science - and that's really important.
+- We need to get across the excitement and creativity of science. That it isn't just a list of facts that have already been discovered - but a process, a creative project, that you are generating ideas, testing them and looking for evidence.
+- The access to information the web provides is both daunting and exciting. Information that was once secreted away in library stacks is now so much more easily available.
+- The science of being healthy is well-known. It is not esoteric. There are no magic bullets. If you want to live a long life, we've known the answers for more than a hundred years. It's a wide-ranging diet with as much fruit and veg as you can stuff into yourself, and plenty of exercise. It doesn't even matter what kind of exercise.
+- The human knee is complex and prone to failure in a variety of ways; there's a lot of muscle mass low down in the legs which makes moving them fairly inefficient.
+- Archaeology can be overlooked as a discipline, I think, but it's incredibly important to have this other way of approaching the past - not just through historical documents, but through actual physical remains - objects, buildings and the layout of our towns.
+- While planting woodlands along rivers has been shown to work in small areas, it has been unclear whether it would be effective on a larger scale. But computer modelling indicates that restoring forests on floodplains could slow floodwaters and reduce the height of the flood downstream.
+- It's incredible that the layout of the centre of Chester, for instance, is still essentially that of the original Roman fort.
+- Embryology reveals surprising similarities between early embryos of seemingly quite different animals. And it also shows that some structures that may look very different later on have fundamental similarities in the way they form.
+- Did people's attitudes towards me change after I appeared on TV? Yeah, definitely. During my career I've had some flak - particularly doing television.
+- I have family connections with Salisbury through my godmother. Her sister lived there, so I have very fond memories of visiting the city as a child.
+- Evolutionary biologists have long pondered the phenomenon of the changing colours of autumn leaves. It's possible that the red pigments are manufactured in the leaf as a side-effect of something else that's happening at this time.
+- I suppose the thing I'm quite pleased about is that I am, I would hope, a role model for girls and younger women who are thinking about doing science.
+- I was extremely lucky as I was in one of the last generations of British students who went to university and had my fees paid, and I had a grant as well. I also earned money from my waitressing and designing and selling my own range of dinosaur cards.
+- The paleo diet is utter nonsense - it is such pseudoscience.
+- Biological anthropology tends to focus on skeletons because that's what is often left behind in the ground, but I am a whole-body anatomist, I'm a clinical anatomist and that's what I teach, I teach it all, not just the skeleton, the muscles and nerves, blood vessels.
+- I'm strict about taking nuts and dried fruit with me and, if I have access to milk, small packets of porridge to eat in a break.
+- After a few days of vegetable curry I crave my husband's home-made pizza.
+- I've always loved the seaside and I used to be a fairly keen surfer, but it's a solitary activity so when my husband and I had children, we bought sit-on-top kayaks. Whenever possible, we escape to the coast or explore rivers with them.
+- You're not tapping into the widest possible pool of talent if you're shutting some people out of particular careers.
+- I usually turn over when ads appear on television. But - very rarely - I am gripped by a particularly beautiful one, and wonder if art historians of the future will point to these televisual delights as our best art.
+- I was a fairly strict vegetarian - I ate eggs and dairy products but nothing that would involve killing an animal to furnish the food on my plate.
+- Science plays a huge role in our lives. We're surrounded by technology, we depend on it.
+- Spiders are always big in the autumn: they've had all summer to grow.
+- Autumn is much redder in North America and east Asia than it is in northern Europe, and this can't be explained by temperature differences alone. These areas also have a greater proportion of ancient tree lineages surviving: trees have gone extinct at a higher rate in Europe compared with those other areas.
+- In Luke, shepherds go to find Jesus. In Matthew, an unspecified number of wise men, sometimes portrayed as kings, arrive. Nativity plays usually throw all the elements together, with kings and shepherds beating a path to the stable.
+- I consider myself to be a relatively sceptical person. I like to see evidence for myself, and try to avoid speculating beyond available evidence. But I also have to accept some things on trust.

@@ -1,0 +1,17 @@
++++
+author = "Jenny Offill"
+title = "Jenny Offill Quotes"
+quotes_len = "11"
+description = "the best 11 Jenny Offill Quotes"
++++
+- I felt like I could write about quiet, self-contained moments and also about those moments when the world rushes in again.
+- One of the odd things about being a writer is that you never reach a point of certainty, a point of mastery where you can say, 'Right. Now I understand how this is done.'
+- Oh, I collect facts and quotes when I can't write, and I can't write most of the time. I do a little chance operation sometimes where I flip through outdated reference books to see if anything will strike me as beautiful or momentous. Library roulette, I call it.
+- Always the danger for me in life and in art is not to be brave. I am not a naturally brave person. I have to will myself not to hole up in my house and read my life away.
+- I think that when we're looking at things when we're right in the center of things, as opposed to being a bit unmoored from what's going on around us, we see things through a kind of dulling lens of convention, and there's something about extreme emotional experiences that gives us a heightened clarity, I think, of thought and of feeling.
+- I had written a novel that was more of a classic linear novel, and I worked on it and worked on it for years, and it always seemed like it wouldn't catch fire. At a certain point I just scrapped it all, and I kept maybe 15 percent of it, and I wrote those parts out on note cards.
+- I can be bolder on the page, as a character. I can gnash my teeth, I can scream and yell, in a way that I'm perhaps too timid to do in real life.
+- I think part of what I like about being a fiction writer is that I can inhabit something that's beyond the limits of my own personality.
+- I have a slightly contrarian streak as a writer, and one of the things I was interested in was how distilled could I make a life, and how I could cross what is kind of trivialized as a domestic novel with a novel of ideas, a philosophical novel.
+- I like to write from midnight to dawn with great stores of candy and Red Bull laid in... I'm not sure why I have the work habits of a 20-year-old coder, but no matter how many times I set up a more reasonable schedule, I always fall back to this.
+- What I try to capture as a writer is the feeling of being alive, of being awake.

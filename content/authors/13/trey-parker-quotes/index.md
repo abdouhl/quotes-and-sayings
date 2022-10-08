@@ -1,0 +1,87 @@
++++
+author = "Trey Parker"
+title = "Trey Parker Quotes"
+quotes_len = "81"
+description = "the best 81 Trey Parker Quotes"
++++
+- You know, and it really doesn't have a lot to do with the movie. That's the trick to doing a good musical is that, if you take that music number out, there's less to the movie there. You would miss it.
+- The problem is we moved to LA... The only way to be punk rock in L.A. is to be a Republican.
+- If we have a great idea, we'll go, 'Oh, this could be a cool movie.' Or really for us, it's more like, 'Oh, this is a really bad idea. Let's do this. This seems really stupid.'
+- We created a brand for ourselves, so that now people can't get mad at what we do, because then they're just making of themselves.
+- The 'Beavis and Butt-head' movie was just a movie-length version of the TV show.
+- Jerry Bruckheimer creates comedy, he just doesn't realize because he's a turd.
+- When you sit down and write a song, you kind of have the idea for the song, and you sit there at the piano and you kinda just write it. And then of course later there's some dinking around with it and changing some stuff.
+- It was exactly the same on the South Park movie really too. There's lots of violence in that too, but it always came down to anything sexual... They don't care about anything else.
+- Once you have kids, you think like a parent. You get a lot more protective.
+- I've never met a Mormon I didn't like. They're really nice people. They're so Disney. They're so Rodgers and Hammerstein.
+- When I was in sixth grade there was a talent show, and I wrote my first sketch, 'The Dentist.' I played the dentist, and I had my friend play a patient. It was sort of what can go wrong at the dentist, and I just remember I had lots of fake blood and everything.
+- You don't need missionaries in Colorado; you got Colorado.
+- So we're considering doing a new Christmas album, because there's been Christmas episodes since then, and maybe finally do the version of 'The Most Offensive Song Ever' with lyrics intact.
+- What we're always looking for is weird social issues and weird connections to make. Luckily for them, there's no shortage of material.
+- Most people I know are not hard-core religious people. They are what I would call 'lightly religious.' So I don't buy the notion that we can't laugh about religion in America.
+- It's been a fascinating thing because we didn't really know how to write when we started South Park at all. It's been like, we've just sort of grown up a bit and it's amazing to just see how, if you take Butters and Cartman and put them in any scene, it works.
+- Out of all the ridiculous religion stories - which are greatly, wonderfully ridiculous - the silliest one I've ever heard is, 'Yeah, there's this big, giant universe, and it's expanding, and it's all going to collapse on itself, and we're all just here, just 'cuz. Just 'cuz.' That to me, is the most ridiculous explanation ever.
+- Like anything important, anything you need people to hear - you've got to have music for it. You've got to make it at least a little piece of a song or sometimes a whole song.
+- If you're famous, you suck, just for being famous. People in England totally get that; Americans don't.
+- Hollywood views regular people as children, and they think they're the smart ones who need to tell the idiots out there how to be.
+- It's not like we have a formula, but I think one of the reasons this show has survived is that it has a big heart at its center. Other cartoon shows have people crap on each other and make racist jokes. But I don't think people tune in for that. I just don't think a show lasts for 10 years without a heart.
+- We have it, we're lucky enough that we've created a show where it's not about... a family, or a kid, it's about a town.
+- People have a lot of different beliefs, and at the end of the day, we all have deeply held beliefs that probably don't make sense to anyone else.
+- My favorite musical? I don't. It changes all the time. I'm just a diehard, I'm totally old school, like I'll sit and watch, if they are re-doing Oklahoma in New York, I will be the first one there.
+- I got into this little habit of architecture and building. I designed a house in Colorado and one in Hawaii. The idea is supposed to be build and sell - but then I can never bring myself to sell them.
+- Bargaining makes you come up with the best ideas.
+- I don't even know where Russia and Mexico are.
+- The only way to be punk rock in L.A. is to be a Republican.
+- You know that everyone thinks that in order to do South Park we must be wild, crazy, rock and roll stars. But the truth is we're just wholesome middle-American guys. We enjoy soda pop, baseball and beating up old people just as much as anybody.
+- I bought a house for my mom, I bought a house for my dad, I bought a house for my sister.
+- When I was a kid, to me, the Evergreen Players were the big time.
+- You can't make experimental work by copying past work.
+- Saying goodbye doesn't mean anything. It's the time we spent together that matters, not how we left it.
+- I find Mormons adorable.
+- I've gotten to a point where I wouldn't direct someone else's material. It would only be something totally original.
+- When you're watching 'Armageddon,' and the Aerosmith song starts... Super funny.
+- Sean Penn's really the only one stupid enough to put anything down on paper.
+- I was a big 'Charlie Brown' fan as a kid.
+- I have no desire to ever talk to Sean Penn.
+- We find just as many things to rip on the left as we do on the right. People on the far-left and the far-right are the same exact person to us.
+- I spend shockingly little time thinking about real-world stuff.
+- Colorado's right next to Utah - you know, Mormon Central.
+- I grew up with the religion of 'Star Wars,' frankly. That's when I realized there is something bigger out there... and it's called The Force.
+- Sometimes what's right isn't as important as what's profitable.
+- Careful?! Was my mother careful when she stabbed me in the heart with a coat hanger while I was still in womb?
+- I was always a very happy, optimistic person.
+- In terms of the creative side of it, it's really been a thing where you come up with the funny stuff is usually at a bar or out talking to people or whatever.
+- I was a big Broadway fan for a while.
+- I would let my kids watch this stuff way before I'd let them watch something like 'Full House' that I think would make them stupid.
+- Doing a musical is like having a kid. It's out there alive somewhere. It's not like a movie or a TV show where what we intended is what everyone will see. The kid can act out. The kid's going to do what it wants to do.
+- That was a misconception among a lot of people - that Mormons are polygamist. No, they're not. I mean they obviously have that in their history, and there are some fundamentalists.
+- I can feel myself dying inside.
+- My fear is that, as soon as I get married and have kids that I'll kind of do what a lot of people do and suddenly start making, 'Now I'm gonna make films for kids.' I really hope I don't do that.
+- I try not to tune in to politics until it's two or three months before the election. Till then, it's like watching preseason football.
+- My first serious girlfriend, when I was 16, was Mormon. I went to her house for 'family home evening,' and I was like, 'Why aren't you people ignoring each other and watching television?'
+- My dad was just a big Joseph Campbell nut.
+- All the religions are super funny to me.
+- A lot of people don't realize this, but probably the one person that gets made fun of in 'South Park' more than anybody is my dad. Stan's father, Randy - my dad's name is Randy - that's my drawing of my dad; that's me doing my dad's voice. That is just my dad. Even Stan's last name, Marsh, was my dad's stepfather's name.
+- No show would be successful if you took a group of people and just said, 'You're dumb!' over and over. That's not what Broadway's about.
+- It's this simple law, which every writer knows, of taking two opposites and putting them in a room together. I love anything with Cartman and Butters at the same time, it's great.
+- If you ever go to Temple Square in Salt Lake City, if you stay there long enough, you'll see a homeless person standing in the middle of their nice, beautiful square, holding out a cup for change. And the Mormons don't ever ask him to leave.
+- Even from the very beginning, I didn't put any money in the stock market.
+- When someone goes, 'Oh, this group is really pissed off at what you said,' there's not a piece of my body that goes, 'Sweet!' That means I did it wrong. I'm just trying to make people laugh.
+- The story of Jesus makes no sense to me. God sent his only son. Why could God only have one son and why would he have to die? It's just bad writing, really. And it's really terrible in about the second act.
+- It's funny because I think a lot of it is simply... We've never considered ourselves satirists, but because we're on Comedy Central and because we're South Park on Comedy Central, we can do any topic we want.
+- I don't want to say never, but I hope I don't become that 'take me seriously now' guy.
+- I think you could take any Bruckheimer movie and do it with puppets, and it would be screamingly funny.
+- No, writing musicals is the hardest thing in the world. And it was really funny, because I remember when the South Park movie came out, there were some critics that said, 'Well it's obvious that in order to get it to be 90 minutes they filled some time with music.'
+- There is nothing we can't do. So it's just the fact that we're doing topics like that that other people, especially network TV, won't touch, that we're satirists.
+- When you were a teenager in Colorado, the way to be a punk rocker was to rip on Reagan and Bush and what they were doing and talk about how everyone in Colorado's a redneck with a gun and all this stuff.
+- How many times have you been watching an episode of 'South Park' and thought, 'I'd like to be able to watch this on my television while hooked into my mobile device, which is being controlled by my tablet device which is hooked into my oven, all while sitting in the refrigerator?'
+- We made this really dumb decision to put on the cover nothing from South Park but just a real life photo of a piece of pooh dressed up like Mr. Hankey, and a lot of people didn't, they didn't even know what it was.
+- If somebody actually came to me and said, 'O.K., this is it: write your last 'South Park' episodes,' I'd be like, 'No, no, no.'
+- I hate puppets so much.
+- I've started confiding in people, other artists mostly, that I hate making 'South Park,' and I always have. It's super stressful. I'm always miserable.
+- Me and Matt love to argue, but in general our sense of humor is pretty much alike.
+- Even if you're not Christian, just from being in our culture you know Jesus and resurrection and redemption.
+- We're the guys who, if someone says you really shouldn't do an episode making fun of Scientologists, we say, 'Whatever.' Someone says, 'They might come try to burn your house down,' we say, 'We'll just get another one.'
+- Any job is a job. If you have to be doing something, then you're probably not enjoying it.
+- I see Santa Claus and Joseph Smith and Luke Skywalker as the same person.
+- So much of what you see now in Hollywood is written and directed by committee, and you can see it.

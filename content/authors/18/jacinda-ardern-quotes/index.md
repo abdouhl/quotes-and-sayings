@@ -1,0 +1,77 @@
++++
+author = "Jacinda Ardern"
+title = "Jacinda Ardern Quotes"
+quotes_len = "71"
+description = "the best 71 Jacinda Ardern Quotes"
++++
+- I never, ever grew up as a young woman believing that my gender would stand in the way of doing anything I wanted.
+- I want to be a good leader, not a good lady leader. I don't want to be known simply as the woman who gave birth.
+- One of the things I'm so determined to preserve and restore is the fact that you can be the kid who was born in Dinsdale and find yourself working for the British government in the U.K., to being prime minister.
+- Things like promoting healthy behaviours, including nutrition and activity, and beginning that at school is so critical. We used to have a healthy eating, healthy action plan, elements of which really were dumped by the last government, so we're trying to rebuild a bit of a program of action in that space.
+- The teacher crisis is something we are really worried about during the byelection in Mount Albert. I counted, across a month, seven teachers I identified just in my area who were all leaving - not the profession but Auckland.
+- All of the things that people said that I would experience - that idea that you suddenly have this new person in your life that you could love so much and that time will go incredibly quickly, but that the nights will seem incredibly long - all of that has been true, but it has been wonderful.
+- I have a collection of ukuleles. I meant to graduate to the guitar, but I never did.
+- I have a partner who can be there alongside me, who's taking up a huge part of that joint responsibility, because he's a parent, too - he's not a babysitter.
+- Taking on a leadership role doesn't mean that you only have to be personally ambitious.
+- It becomes tricky if you ever try to partition off what might be seen as sexist criticism. To be honest, I just don't engage. The best way I can rebel against those notions is being competent, good at my job.
+- Never feel like you have to tick all of the boxes on everything to be able to feel like you can do a job. I have heard it said many times before, and it is so true.
+- The most difficult thing for us to do is to mitigate and offset our agricultural emissions. If we find a way to do that, then we're showing other countries how to do it, too.
+- From a personal perspective, I am so looking forward to my new role as a parent. But I am equally focused on my job and responsibilities as prime minister.
+- If you sit and wait to feel like you are the most confident person in the room, you are probably going to be left by yourself.
+- As soon as I came in as leader, we had seven weeks to an election, so we had to be entirely focused on the job we had in front of us.
+- I don't think that the next generation should fear just being who they are rather than confirming to an expectation of what they are meant to be.
+- Lots of people juggle a lot of things in their personal and private lives, and I'm not unusual in that. Plenty of women have multitasked before me, and I want to acknowledge that.
+- I definitely try not to get too caught up in putting too much of a gender or age assessment on everything - I've just got to get on with it.
+- I thought, how do I reflect the generosity, particularly of all the iwi who gifted us names - and Te Aroha seemed to be a way.
+- I refuse to be held up as some kind of superwoman because, in my mind, the superwomen are the ones who do it on their own. I have my partner, who will be a stay-at-home father. I will do as much as I can, but I will have a village around me, and there's lots of people who don't have that.
+- I am a thinker, and I do muse over things a lot and am constantly assessing whether I am doing enough or what I should be doing more of to make sure I am not letting anyone down.
+- Getting stopped in the middle of the lingerie section, when you're trying to stock up on a few things, by an older man who wants a selfie is a little bit awkward... but I don't let that get in the way of me trying to do normal things, because that is when I get to interact with people as well. Preferably not amongst the underwear, though.
+- Everyone knows that I have just accepted, with short notice, the worst job in politics.
+- Probably being in politics is the worst place for me to be.
+- Everything I've ever thought about doing has been, in some sense, about helping people.
+- I'm constantly anxious about making mistakes.
+- I am not the first woman to multi-task. I am not the first woman to work and have a baby - there are many women who have done this before.
+- I hate the idea of anyone thinking that I don't put a lot of thought about the cost to taxpayers. I make our ministers travel to events in vans to pool together.
+- I was there when Gordon Brown basically was taking over - so right in the middle of that transition. It was fantastic; I learnt a lot.
+- I think that has to do with our perception of politics. There are nice politicians. There is something about this job that does take an extra bit of motivation to get out of bed in the morning.
+- We aspire to be a government for all New Zealanders and one that will seize the opportunity to build a fairer, better New Zealand.
+- We know we've got a problem attracting to certain areas because of the cost of living, so we're thinking about things from how do we ensure key workers have accessible and affordable housing; also, how do we attract people into teaching as well.
+- There's probably a tendency to view power... to be either based on size or the size and power of your economy. I think New Zealand's strength has always been using our voice on the issues that matter, and we've been consistent on it. There is power in that.
+- This stardust won't settle, because none of us should settle.
+- We've had a debate about immigration in New Zealand for some time. Now what we're trying to champion in that conversation is a recognition that New Zealand has been built off immigration. I myself am a third-generation New Zealander.
+- I am sure having a baby around a working environment changes the tone a little bit.
+- I really rebel against this idea that politics has to be a place full of ego and where you're constantly focused on scoring hits against each one another. Yes, we need a robust democracy, but you can be strong, and you can be kind.
+- A lot of women in New Zealand feel like they have to make a choice between having babies and having a career or continuing their career. So is that a decision you feel you have to make or that you feel you've already made?
+- My grandma was a very traditional woman but, at the same time, would want me to have kids.
+- The wonderful police officers who spend time with me I don't think appreciate that, but I do still drive. I do still cook: not often, but just last week, I really felt like making one of my mum's old recipes - so I did. I do still go to our local department store to buy things like maternity jeans that no one else can really do for me.
+- Even going out to get milk becomes a little bit challenging, just because there is a whole entourage that then travels with me for this simple thing. So I tend to try and find ways not to inconvenience a whole raft of other people, so it changes my mindset a little bit.
+- The challenging thing from a work perspective is just the range of things on any given day that you're dealing with and making sure you have the head space to really be giving them the thought and consideration you'd like, too.
+- I'll be prime minister and a mum, and Clarke will be 'first man of fishing' and stay-at-home dad. I think it's fair to say that this will be a wee one that a village will raise, but we couldn't be more excited.
+- We're looking to ways to build in the responsibility we have on climate change and the way that we approach, potentially, climate change refuges in the future amongst our neighbors.
+- We spent the election campaign really canvassing where we were as a nation, deciding who had the mandate to change that up going forward. But I think the challenge for us will be, as with any government, your actions demonstrate your legacy.
+- I would absolutely classify as being incredibly progressive the fact that I am the third female prime minister.
+- I hope for little girls and boys that there is a future where they can make choices about how they raise their family and what sort of career they have, which is based on what they want and what makes them happy.
+- When you're a bit of an anxious person, and you constantly worry about things, there comes a point where certain jobs are just really bad for you.
+- If we want to make workplaces more open, we need to acknowledge logistical challenges... by being more open, it might create a path for other women.
+- I'd say it was always in me - it's just what's required of you is very different in the moment that you become leader. When you're part of a team, you defer, and you're there to support your leader.
+- We will work hard to ensure New Zealand is once again a world leader, a country we can all be proud of. We said we could do this; we will do this.
+- I didn't think I would be prime minister, because I didn't consider it. But that's the power of saying yes, because there will be a moment when someone asks you to do something beyond your comfort zone. I am not unique.
+- Yes, we believe in globalization and trade, but we also believe in you being able to benefit from that more. For too long, we progressives have seemed like part of the system. We need to start thinking about whether or not it's delivering for us now.
+- How great it would be for us all to have the pride of knowing that we, as a country, are one of the best countries to be a child.
+- I have already been a big believer in a model of nurse/family partnerships: the idea of having - for those mums that might benefit from a bit of extra support - having those visits scaled up a bit. I believed in it before; I absolutely believe in it now. So that is probably one of the things that affirmed something I already supported.
+- At a personal level, it's just the day-to-day: I'm a mum that needs to meet all of the responsibilities that come with being a mum, making sure that Neve has the basics, that she's fed, that she's loved, that she sleeps as much as we're able to get her to sleep, and we will do that together. That's a practical reality of my new role.
+- I'm the one who's put myself into politics, so I'm the one that really should be wearing that front-facing role.
+- Ultimately, I do want us to be a transformative government. I want, when we've left, for people to say we're not just clean-green anymore: we're carbon neutral, or we're striving to be.
+- You can't ask other people to believe you and vote for you if you don't back yourself.
+- Te Aroha was something we settled on quite early. It was our way of reflecting the amount of love this baby's been shown before she even arrived.
+- It is a woman's decision about when they choose to have children, and it should not predetermine whether or not they are given a job or have job opportunities.
+- When I came into politics, I remember reading these scorecards of my performance, and I would routinely have these comments about not being assertive enough.
+- I credit the women who came before me and credit New Zealanders for welcoming me having a child... positivity outweighed negativity. I'm proud of the nation.
+- Back in the early days of my political career, I was called Socialist Cindy. I just hate the nickname Cindy.
+- One of the criticisms I've faced over the years is that I'm not aggressive enough or assertive enough, or maybe somehow, because I'm empathetic, it means I'm weak. I totally rebel against that. I refuse to believe that you cannot be both compassionate and strong.
+- I do find it slightly offensive that everyone thinks that every New Zealander starred in either 'Lord of the Rings' or 'The Hobbit.'
+- The fact I'm the third female Prime Minister, I never grew up believing my gender would stand in the way of doing anything I wanted.
+- I worked as long in a fish and chip shop as I did in Parliament. I've had particular experiences in politics, but they're not my only ones, and they're not the ones that defined me.
+- I might be at the odd press conference with a little bit of spill on me because I'm not going to hide the imperfections of parenting. I don't think anyone needs that.
+- The thing that drives people more often than not is they genuinely feel that they can make a difference. So that means there are nice people in politics.
+- Issues like obesity do, as you well know, have a knock-on effect to diabetes. So we all are better off if we invest early in prevention.

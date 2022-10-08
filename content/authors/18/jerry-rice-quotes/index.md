@@ -1,0 +1,33 @@
++++
+author = "Jerry Rice"
+title = "Jerry Rice Quotes"
+quotes_len = "27"
+description = "the best 27 Jerry Rice Quotes"
++++
+- This is how I started playing: I was playing hooky one day, and the coach and the principal walked up behind me. They scared me, and I ran, and they noticed I could run really fast. They wanted me to come out for the football team.
+- If I should get selected into the Hall of Fame, I'd be able to say 'thank you' to all the legends that are in the Hall of Fame. And also say thank you to my teammates, and also to all the fans. It's going to be like a dream come true.
+- I just want the same thing Joe Montana got when he was MVP. He got respect. He got commercials. He got everything.
+- People would look at me weird. You know, like, 'Why is this guy's hands always in his pockets?' But I was embarrassed by the size of my hands.
+- The things that are happening to me are unbelievable. I'm actually busier right now than when I played football. This is almost like I'm coming back out of retirement. It will be fun to see myself in the game.
+- During the offseason, I didn't take any time off. And I played this game for over 20 years. So right after the season, I would go right back into my regimen.
+- You know, I never looked down the road and said, 'Hey look, one day, the Hall of Fame.' It's always about playing each and every game 100 percent and I thank my teammates for getting me into the Hall because football is a team sport, not an individual sport.
+- Montana and I had a chemistry that was unbelievable. When I first came into the league he told me I added five years to his career, and I just think we complimented each other very well and were able to do some amazing things out on the football field.
+- I went out there to play my game for the fun of it and never based my career around records.
+- I think I'm more muscular now than when I played football. I'm working hard on it. So many athletes just let themselves go after they stop competing. That was something I didn't want to do.
+- My agent said, 'Jerry, Dancing With the Stars - they want you on there.' I said, 'Ain't no way. I'm not going to do that.' Then he came back to me again, and he kept putting pressure on me. I said, 'All right, I'll give it a try.'
+- There is still a lot of football in me and I enjoy watching the players go out there and be the best players they can possibly be.
+- I think I just went into a system that was willing to utilize me and gave me opportunities and I felt fortunate to be able to go to Oakland and put the silver and black on. I wanted to prove to everybody that I could still play.
+- To me it was never about what I accomplished on the football field, it was about the way I played the game.
+- I'm really looking forward to the Hall of Fame ceremonies. It's going to be unbelievable - just crazy. I'm looking forward to thanking all the fans for inspiring me to go out there and play my best football each and every game.
+- I think it was fantastic being in the 49ers Hall of Fame.
+- Like I said, repetition in practice and hard work.
+- Monday Night Football. That was everything to me because you get a chance to show everybody what you're capable of. It's only two teams on that Monday night.
+- I don't diet. I'll eat fish; I'll eat baked chicken, pasta, beans. When the body is telling you, 'You need to indulge in something,' you need to give the body what it wants.
+- I think what people might not really know about me is that I'm really a shy individual.
+- I was just a small boy from Mississippi, and now little kids are going to identify with me through this game.
+- My work ethic came from my parents and my fear of failure. I came from a small, predominantly black school and I didn't want to let them down.
+- I'm used to performing under pressure, but that's playing football.
+- There are a lot of young players here right now, and these guys are going to eventually learn as they go. Next year we can't use that as an excuse that we had so many young players on the team.
+- Defensive backs are the best players on the field. But when you get an exceptional player like a Deion Sanders or a Darrell Green - these guys are fast and they have very good technique. You have to work a little harder.
+- I've grown over the years and I know how to adapt to situations, where I can go into a situation where there's a crowd of people and just take over. But pretty much I'm off to myself. And I'm totally committed to the game of football. That's why I've had so much success.
+- I think the thing about that was I was always willing to work; I was not the fastest or biggest player but I was determined to be the best football player I could be on the football field and I think I was able to accomplish that through hard work.

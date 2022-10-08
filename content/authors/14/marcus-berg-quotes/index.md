@@ -1,0 +1,28 @@
++++
+author = "Marcus Berg"
+title = "Marcus Berg Quotes"
+quotes_len = "22"
+description = "the best 22 Marcus Berg Quotes"
++++
+- Money has an important role the older you become. To get this chance at nearly 31, to go from the Greek league to a big team in Asia and earn well, it feels very nice. The money will be security for me and my family.
+- There has been a lot of emotion back and forth around moving from Panathinaikos. Most people know what I feel about that club.
+- I have to stay in front to try and create chances and be in the right place in the box.
+- That is the way it is in football: once a scorer, always a scorer.
+- It's always important to be on the scoresheet and also to make assists.
+- Of course, in the beginning it's always difficult. It's a new country, new teammates, so you need to find the relationship with all the players. Obviously it takes time.
+- But I'm professional: if I need to do extra training I do extra training.
+- Al Ain are among the absolute best in Asia. When explaining their place in football in this part of the world, they are compared with Barcelona or Real Madrid.
+- Those who know me know I'm not a person who has a flashy lifestyle.
+- But also outside of football, with the family, the most important is to settle down, to have everything good outside with school, etc.
+- I believe everything you experience in life and football can make you better.
+- I have definitely learned a lot from playing in different countries and in different styles of football, and I feel very happy now with Al Ain.
+- In the games I feel good, I can keep the ball well, I help the team there.
+- I like to be in the box where it happens, to score goals or give assists.
+- Me and a lot of my team-mates still think and speak about the World Cup in 1994, when Sweden finished third.
+- It's important to be professional and do a good job for Al Ain, because I have had a good time in the club. And once the season ends I will make a decision.
+- With IFK, them as with all other clubs that are talking to my agent, I will listen to all kinds of offers that I receive, compare them and see what's best for me and my family.
+- When you play well, when you perform, you have to show every game that you are that good.
+- I'm 32 this year so I'm experienced, I know how it is: sometimes you do very easy things and sometimes you can do crazy things that you don't understand. It's just to be focused on the hard work. For me, that's always the No 1 thing.
+- I won't stay in Al Ain. I'm looking and listening for other options.
+- But talking about goals and scoring and assists, you can never predict anything. I will just do my best to work hard and hopefully that helps the team to win the games. That's the only thing I'm focused on.
+- I don't have any secrets. I know my style of football and sometimes it's pretty simple.

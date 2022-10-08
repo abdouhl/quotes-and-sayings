@@ -1,0 +1,24 @@
++++
+author = "Alcee Hastings"
+title = "Alcee Hastings Quotes"
+quotes_len = "18"
+description = "the best 18 Alcee Hastings Quotes"
++++
+- I am pleased to see that many of the world's leaders have publicly recognized that the crisis in the Middle East was deliberately incited by terrorist organizations.
+- Nearly 60 years ago, the international community made a commitment to put an end to the crime of genocide by ratifying the United Nations Convention on the Prevention and Punishment of the Crime of Genocide.
+- Unprovoked attacks on Israel's borders, murdering Israeli soldiers, taking Israeli hostages and showering rockets targeting and killing Israeli civilians are not furthering any legitimate goal.
+- Given the fact that most religions share basic values, it is most unfortunate that religious people can be played off against each other so easily. One possible reason for this may be that people do not know enough about other people's beliefs.
+- The actions of the terrorist organizations, Hezbollah, in Lebanon, and Hamas, in Gaza, against Israel are unconscionable. Instead of working towards peace, these terrorist organizations have chosen to perpetuate the violence.
+- Today, the Federal minimum wage purchases less than it has at any point in the last 50 years. Let me repeat: The Federal minimum wage purchases less than it has at any point in the last 50 years.
+- Usually, it is not my habit to address religious issues on the floor. I strongly believe in a person's right to religious freedom, as well as the separation of church and state.
+- Moreover, I want us to urge political and religious leaders, and all peoples of the world, to move forward in a conciliatory spirit, to deal with religious matters in a responsible and balanced way, and to focus on their common grounds.
+- Yesterday in this country we had people die of hunger and malnutrition. In some parts of this country, the infant mortality rate rivals that of sub-Saharan Africa. We have a public education system that ranks below that of almost any other Western nation.
+- Today, barely 5 percent of all containers coming into the United States through our ports are scanned.
+- Mr. Speaker, I am deeply concerned that many regions of this world are suffering from the effects of armed conflicts with religious aspects. I believe that the differences of faith are not the real reason for these conflicts.
+- While few religious leaders and scholars would doubt the commonalities that exist among the various religious groups, the followers of these religions unfortunately struggle in their effort to peacefully coexist.
+- If Americans want to see results instead of rhetoric, if taxpayers would like solutions instead of sound bites, and hard work instead of horse trading, I suggest you take a short look, and it won't take much longer, at the accomplishments of this Congress.
+- The Middle East is literally going up in flames, as is California, and Katrina's problems haven't been solved, and Congress' response is to criticize Federal judges.
+- The world is better because of Coretta Scott King. She affected countless lives and her voice will be deeply missed, especially by those who carry on her incredible undertaking.
+- Not just Christians and Jews, but also Muslims, Buddhists, Hindus and the followers of many other religions believe in values like peace, respect, tolerance and dignity. These are values that bring people together and enable us to build responsible and solid communities.
+- If today is anything like the typical day of the past 3 years, three American soldiers will die in Iraq or Afghanistan, the Taliban will get a little stronger in Afghanistan and the civil war will continue to be enhanced in Iraq.
+- I find it difficult to believe that God would want us to strip the courts of their powers to interpret the laws of this land, albeit with the divergent opinions. I shudder that my colleagues do not understand the dynamics of the Federal judiciary.

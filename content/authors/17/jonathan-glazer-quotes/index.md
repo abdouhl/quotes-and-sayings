@@ -1,0 +1,17 @@
++++
+author = "Jonathan Glazer"
+title = "Jonathan Glazer Quotes"
+quotes_len = "11"
+description = "the best 11 Jonathan Glazer Quotes"
++++
+- I want to change things with everything I do, not for the sake of changing things, but for the sake of taking greater and greater risks, or how minimalist I might be able to be, or how I can involve elements or ingredients in music videos that are not musical, for instance.
+- I'm Jewish. Went to a Jewish school.
+- I don't feel, 'I've made a great film'; I feel I've made what I set out to make.
+- I don't feel as though I've graduated from commercials or music videos. In my mind, they aren't compartmentalised.
+- I'm really so singular, I am only able to work on one thing at a time. I really am.
+- I've always been better at informing the audience through images than through words, but I took on a script that was so dialogue-intensive, that the words had to do all the informing.
+- I don't put on my best clothes to make a film, my Sunday best.
+- When you're making the film, you don't really think the audience; it's only when you start editing that you really start to became aware of your audience because you're thinking of how you communicate these ideas, and how lucid can you be, and yet stay within the language you've established.
+- I'm not the kind of filmmaker who's going to go from one thing to the next. I often wish I was that filmmaker, but I'm just not.
+- I've never been happy doing stock work; I've never been happy thinking that I haven't changed something.
+- I don't think I'm the right man to adapt a book.

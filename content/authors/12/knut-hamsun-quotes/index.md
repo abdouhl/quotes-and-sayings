@@ -1,0 +1,21 @@
++++
+author = "Knut Hamsun"
+title = "Knut Hamsun Quotes"
+quotes_len = "15"
+description = "the best 15 Knut Hamsun Quotes"
++++
+- You are welcome to your intellectual pastimes and books and art and newspapers; welcome, too, to your bars and your whisky that only makes me ill. Here am I in the forest, quite content.
+- For I mean to roam and think and make great irons red-hot.
+- When good befalls a man he calls it Providence, when evil fate.
+- No worse fate can befall a young man or woman than becoming prematurely entrenched in prudence and negation.
+- There is nothing like being left alone again, to walk peacefully with oneself in the woods. To boil one's coffee and fill one's pipe, and to think idly and slowly as one does it.
+- I have gone to the forest.
+- In my solitude, many miles from men and houses, I am in a childishly happy and carefree state of mind, which you are incapable of understanding unless someone explains it to you.
+- In old age we are like a batch of letters that someone has sent. We are no longer in the past, we have arrived.
+- No, what I should really like to do right now, in the full blaze of lights, before this illustrious assembly, is to shower every one of you with gifts, with flowers, with offerings of poetry - to be young once more, to ride on the crest of the wave.
+- Were I more conversant with literature and its great names, I could go on quoting them ad infinitum and acknowledge my debt for the merit you have been generous enough to find in my work.
+- Heaven knows that there are plenty of opportunities in later life, too, for being carried away. What of it? We remain what we are and, no doubt, it is all very good for us!
+- It is as well perhaps that this is not the first time I have been swept off my feet. In the days of my blessed youth there were such occasions; in what young person's life do they not occur?
+- Today riches and honours have been lavished on me, but one gift has been lacking, the most important one of all, the only one that matters, the gift of youth.
+- However, I must not indulge in homespun wisdom here before so distinguished an assembly, especially as I am to be followed by a representative of science.
+- I have had much to learn from Sweden's poetry and, more especially, from her lyrics of the last generation.

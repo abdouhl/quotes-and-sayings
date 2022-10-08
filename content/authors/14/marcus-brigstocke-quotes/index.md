@@ -1,0 +1,44 @@
++++
+author = "Marcus Brigstocke"
+title = "Marcus Brigstocke Quotes"
+quotes_len = "38"
+description = "the best 38 Marcus Brigstocke Quotes"
++++
+- I have a very good memory for scripts. I can watch a show I like once, then remember about 90% of the script. But ask me who was in it, and I wouldn't have a clue.
+- Guilt is feeling bad about what you have done; shame is feeling bad about who you are - all it is, is muddling up things you have done with who you are.
+- I rarely fly, for environmental reasons more than anything else.
+- Offence is important; that's how you know you care about things. Imagine a life where you're not offended. So dull.
+- My purist comedy friends accuse me of being a Jack of all trades and master of none.
+- I have learnt that I am incapable of packing the right amount of clothing, probably because I start 10 minutes before I'm supposed to leave, and that I truly hate airports.
+- The basic function of a comic is stand-up because it's so straightforward and simple. If the audience don't laugh, you didn't do your job. I've had some audiences where I didn't care if they laughed or not because they were either too drunk or stupid.
+- I find it hard to get enthusiastic about hotels because, as a touring comic, I spend a lot of time in them.
+- If you go on stage with an agenda, you have to accept not everyone's going to agree with it.
+- I'm best known as a stand-up comedian, but I'm a good actor in the right role.
+- Catholicism has the clerical equivalent to a nut allergy - even a small exposure to change, and the whole thing will go into anaphylactic shock.
+- I stumbled on a joke idea and style that worked, the audience went with it and, from that moment on, I was hooked. It's an amazing feeling.
+- I'm more pompous and self-assured and determined that if - you know - if the truth can be told so as to be understood, it will be believed.
+- I think Ross Noble is the only person that I've seen really storm a stand-up slot at a festival, and that was when he led 3,000 people on a conga out of the tent and across the entire site to a vegetarian food truck.
+- Jim Henson was an absolute genius.
+- Eventually, somewhere - be it on the Internet or somewhere else - I will host some version of 'The Daily Show.'
+- I realised that to compare your insides with other people's outsides leads to unhappiness.
+- The most successful comics are always the hardest-working ones.
+- If you want something Scottish, go get yourself a kilt.
+- All my shows are therapy, trying to navigate interesting subjects so I can work them out and to be honest and say some things are beyond the wit of this man.
+- Never Google yourself. Seriously, don't!
+- I went to China for a brief working visit, and I thought that Shanghai was interesting, but Beijing totally grabbed me.
+- I have an addictive personality. Boarding school merely sent me more quickly on the downward spiral that dominated my childhood.
+- I failed to get into drama school, and my best friend told me I should do stand-up instead. I was always doing gags and voices, so he booked a gig for me without telling me. I only had four days to write it. I did a seven-minute set; the first four minutes were terrible, but the last two were amazing.
+- I've spent a lot of very happy times in Edinburgh as a result of playing virtually every festival since 1996. It's also a beautiful city in its own right, is walkable, within sight of the sea and mountains - and was too far north for the Luftwaffe to have done any damage, hence the spectacularly beautiful architecture.
+- I became hugely overweight and then hated myself because it was a form of self-abuse, something over which I had no control. I think the thing compulsive over-eaters want to achieve is that stuffed-full Christmas afternoon feeling.
+- I'd lie in bed in my dormitory and grab at bits of my body, wanting to tear them off... I was so large by then that, in the heat, my thighs chafed together and bled. I was very unhappy, and yet no one ever asked me how I felt.
+- Britain is obsessed with political correctness.
+- I am not racked with self-loathing. Some issues of guilt and shame, but I'm a pretty good guy.
+- There are a lot of comics at the top end making staggering amounts of money and selling out stadiums. I think stand-up is a more intimate thing than that. Maybe because of the kind of comedy I do. It's like a discussion, but I'm the one with the microphone.
+- And much as I enjoy writing and creating stuff, I don't enjoy it so much that I am willing to give up any time that could otherwise be spent performing.
+- I'd rather be happy than right.
+- Political correctness is as exploitable as any other progressive ideal, but its aim is to stifle the incessant noise of those who flap their careless lips without a thought about those they might offend and why that might be important.
+- I don't mind not being cool; I wear a cardigan.
+- I think it's important never to look yourself up on Wikipedia. I think the temptation to correct any interesting factual errors would be too much.
+- I find myself by default an atheist but fairly unhappily so. It would be bloody marvelous if there was a god.
+- I spend my jollity on stage, so there is less in my own life.
+- No one wants life to end. It was bad enough when my last tour came to an end.

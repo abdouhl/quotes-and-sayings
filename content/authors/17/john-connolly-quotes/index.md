@@ -1,0 +1,18 @@
++++
+author = "John Connolly"
+title = "John Connolly Quotes"
+quotes_len = "12"
+description = "the best 12 John Connolly Quotes"
++++
+- If you work at home, you're always on call in a way.
+- The only person who needs to know about failure is yourself.
+- Anyone who wants bookstores to survive is portrayed as a Luddite who goes around smashing up Kindles.
+- I find that I take a great deal of pleasure knowing I get up people's noses to some degree.
+- As I get older I tend to rail against the world more and more.
+- There is sometimes a feeling in crime fiction that good writing gets in the way of story. I have never felt that way. All you have is language. Why write beneath yourself? It's an act of respect for the reader as much as yourself.
+- I feel that I'll be buried in Ireland and don't think I'll ever live in the U.S. I'm not comfortable with many aspects of U.S. society - especially the justice system.
+- I think people are confusing the right to write with the right to be published.
+- There is a very conservative element of crime writers that don't recognise what I do is crime fiction.
+- I've been fascinated by the idea that evil is the absence of empathy.
+- Writers are magpies by nature, always collecting shiny things, storing them away and looking for connections of things.
+- What is good for you creatively is usually bad commercially. You thrive financially by sticking to a series and not fiddling about too much. You do yourself harm by moving away from the series and the genre. By trying things not based in that particular mode of writing, you will just lose readers.

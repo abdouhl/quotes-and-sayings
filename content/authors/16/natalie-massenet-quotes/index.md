@@ -1,0 +1,101 @@
++++
+author = "Natalie Massenet"
+title = "Natalie Massenet Quotes"
+quotes_len = "95"
+description = "the best 95 Natalie Massenet Quotes"
++++
+- For Net-A-Porter and its customers, luxury means exceptional service, 24-7 - wherever they are, whenever they have time.
+- It is a changing world with changing opportunities.
+- The British Fashion Awards gives us the chance to commend not only the winners but celebrate all of the individuals that contribute to the incredible achievements that make London the best fashion destination in the world.
+- Anna Wintour has guided me.
+- I think I'm a better mother because of work, because I'm happy. If I wasn't working, I would just be waiting for the kids to come home every day, and living vicariously through their lives.
+- I am honoured and excited to be taking on the role of chairman of the British Fashion Council.
+- As an entrepreneur, what drives you has to be the good news; otherwise, you just don't get out of bed.
+- Dear London, British fashion is a serious business. The British fashion industry is worth £21bn to the U.K. economy and employs 819,000 people across the country. With your help, we would like to see these numbers rise for the good of our industry, our talented designers, and our reputation worldwide.
+- 100% of Net-a-porter customers have a man in their lives in some capacity, and 59% are married or living with a partner.
+- I'm an accidental entrepreneur.
+- I borrowed a creaky laptop from my husband, went into the web, and never came back.
+- You can get a slouchy woman's tunic at different price points. But if you want a great pair of trousers or a dress with delicate pleating, you're going to have to spend a little more.
+- When I started Net-a-Porter, I knew nothing. And I was pregnant. Starting a new venture and being pregnant for the first time are pretty similar in many ways. If you knew what was going to happen to you, you wouldn't venture down that road.
+- My dad taught me never to be afraid of what's on the other side of the mountain.
+- Audrey Hepburn has influenced me.
+- I cry at anything remotely touching - smile at me warmly and I'm off... television also does it, everything from 'X-Factor' to cereal commercials. I cry when I am tired. I also cry when I laugh.
+- Once you start a business, you have to grow it and grow with it - starting a business is not just for Christmas.
+- Women just love to shop.
+- I realised at a certain point that if I was going to have the kind of life that I fantasised about, I needed to get my act together.
+- I believe that all brands will become storytellers, editors and publishers, all stores will become magazines, and all media companies will become stores. There will be too many of all of them. The strongest ones, the ones who offer the best customer experience, will survive.
+- As much as I love to shop online, I also love walking the streets on a beautiful day and seeing what finds I can discover in a small shop or vintage store.
+- Positivity is like a muscle: keep exercising it, and it becomes a habit.
+- The interesting thing about London is that there are always stylish surprises around every corner.
+- One of my goals is that, at a dinner party some time in the future, someone will say, 'Oh, my nephew is starting a ready-to-wear brand', and 20 people will turn around and say, 'Is he? Can we invest?' in the same way that, now, if you were to say, 'My nephew is starting a mobile app,' everyone would say, 'Oh, smashing! Can I invest?'
+- Net-a-porter is an environment where a woman can really indulge, browsing through more than 160 brands in our fashion playground.
+- The only time I can't sleep is on a plane, when I am literally keeping it in the air with my brain.
+- Always go into meetings or negotiations with a positive attitude. Tell yourself you're going to make this the best deal for all parties.
+- My personal ambition remains the same - to be creative, to be modern, to stay one step ahead, to enjoy life.
+- I always thought I looked kind of like Keith Richards, and sometimes I think I look like Michael Jackson in his mug shot. But as I think Keith Richards is pretty great-looking, I'm embracing that part of me.
+- As a woman, I feel it's important to support causes that are important to my core customer, who is also a woman, as well as causes that resonate with me personally.
+- I believe all positive things and negative things are valuable because they shape you.
+- I'm supporting the School for Creative Startups because the project's ambition - to boost innovation and the culture of entrepreneurship - is something I feel strongly about.
+- I think fashion is actually very good training for being in the tech world, because it's all about moving on to the next thing, looking for the next thing, not getting stuck in the past.
+- I think there will be an increasing convergence between content and commerce, that it will be about following consumers instead of making consumers come to you, and I am especially excited about the various platforms that will allow more and more access to customers.
+- I love contemporary culture. Even the stuff I don't like.
+- Pre-Internet, maybe it took six months for a fashion message to get across to a customer base. Fashion messages are now being sent out overnight, simultaneously, to every market in the world.
+- You can still wear trousers and show off your ankles - which are a nice body part on everyone.
+- I see ghosts.
+- I don't work out but generally I am fit, which is why I don't work out.
+- I thrive on competition.
+- I just wear what I like, and lots of it is British.
+- Net-a-Porter offers catwalk fashion and trend-driven shopping, but for Mr Porter, while fashion is still important, style is key.
+- I envision a day when a businesswoman will be having lunch, and then her phone will ring. When she opens it up, she will see an image of the latest Marc Jacobs coat that just arrived in stock. With a click of a button, she can purchase it and then find it waiting for her when she gets back to her office.
+- The fashion cycle is outdated.
+- Every year I go to the Google Zeitgeist conference, which is invite-only, and I'm one of about 20 women and five fashion people out of the 400 there.
+- When you love something, it doesn't feel like work.
+- A tendency to focus on art over business has meant that too many designers have failed to make the most of their critical acclaim.
+- Britain has the most creative, dynamic and nimble fashion industry in the world.
+- I graduated from the University of California, Los Angeles, with an English literature degree and travelled for a year before going to work.
+- When I was a teenager, a psychic told me, 'Your biggest challenge will be life-work balance.' That's certainly turned out to be true!
+- I attended private Catholic schools in Paris and Los Angeles through high school.
+- The Internet is a gift to fashion.
+- Contrary to popular belief, I'm not always trying to stand out.
+- People always say to me, 'You've really strived to redefine retail.' But the reality is, I wanted to redefine magazines.
+- I have donated money to campaigns. And I have been known to take to the street in protest. But I am more committed to my immediate politics than general politics.
+- I don't get manicures, pedicures. I don't get my hair done as often as I should.
+- I don't have a mentor in the strict definition. I take as much advice and inspiration as I can from the people I am close to.
+- In 13 years of doing my day job, I've learned a few things about motivating people. It's about setting a vision and, as long as everyone knows why they're doing what they're doing, you achieve that vision.
+- Customers want new things, and the way that they get them isn't written in stone.
+- Never forget that you only have one opportunity to make a first impression - with investors, with customers, with PR, and with marketing.
+- Bling is good.
+- Moving to L.A. when I was 11 was when my entrepreneurialism started because it's the land of the American dream.
+- Success begins at that magical moment when you declare to yourself, your friends, and the universe that you believe you can do something different.
+- To be a designer today is to be an entrepreneur. Whether you're a two-man operation in Shoreditch or a 3,000-person, vertically integrated brand, you need to have the wherewithal to run your business through investment, considering everything from start-up funds to your exit plan or what it takes to go public.
+- Ambition is important. Of course you can't get anywhere without talent, but there are a lot of talented people. To succeed, you have to be the most ambitious talented person.
+- You cannot underestimate the impact the Internet has had on British fashion.
+- Pregnancy is a very creative phase for me.
+- It's interesting to see how some of the womenswear designers that we have long worked with at Net-A-Porter are developing menswear collections - Christopher Kane, Jonathan Saunders and Richard Nicoll.
+- When I'm working, I have a hard time switching off, and when I'm not working, I have a hard time thinking of ever wanting to work again.
+- Work means independence. It allowed me to shape my life on so many levels.
+- Even without an economic downturn, women sometimes want to keep their shopping habits to themselves.
+- Don't let the American accent fool you. I am British.
+- If you want success, be unique.
+- People always ask is it hard being an entrepreneur and a mum, and the answer is 'yes.'
+- My father always had people around the house who were famous psychics.
+- My experience is in merging extraordinary creative content with innovative global commerce.
+- I've taken the love of fashion from my mother, and journalism from my father.
+- Having the positive belief that it will all be O.K. just means that you hustle and make it work because failure is not even an option in your own mind.
+- It's a false assumption that people with a lot of money have a lot of free time to shop.
+- I'm the laziest person I know.
+- If you're a teenager in Palo Alto launching an app, you know from the outset how you plan to finance your business.
+- We haven't even begun to see just how many transactions are going to take place online.
+- Grown-up clothes are more appealing because customers need to be able to project themselves into them.
+- You can no longer just have a magazine that shows you this glossy impervious image of women - in the studio, artificial, wearing a push-up bra.
+- I love that I love my job, and from what I'm told, that others who I work with do, too.
+- We're seeing a crazy appetite for people to acquire and invest in British businesses.
+- Brands will increasingly handle their own e-commerce and rely less and less on local distribution partners. Why should they give away their profit margins?
+- People ask if I walk around and pinch myself. Yes, I do.
+- Twice I let people talk me out of good ideas.
+- The United Kingdom has traditionally been a very small market, and even though you had such a creative group of designers, they represented a risk to department stores.
+- What seems like a crazy idea today eventually grows. It's a 'with hindsight' thing. One day, someone will turn around and say, 'That was genius.'
+- Even if I am predisposed to shop online, I see bricks and mortar as part of marketing.
+- When I was at U.C.L.A., I decided I was going to go to Japan and learn Japanese.
+- I attend Internet conferences all the time, and they literally make the hairs on the back of my neck stand up.
+- Print is at the very, very top in the fashion business - of course it is.

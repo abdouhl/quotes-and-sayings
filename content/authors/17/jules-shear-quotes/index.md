@@ -1,0 +1,33 @@
++++
+author = "Jules Shear"
+title = "Jules Shear Quotes"
+quotes_len = "27"
+description = "the best 27 Jules Shear Quotes"
++++
+- Why do it, just because I can? That's kind of crazy.
+- I guess any time you believe in God you've got to be considered a spiritual person. That would make me a spiritual person. But I don't really know what that means.
+- If you're asking me to compare myself to other people, I don't really know what other people are like.
+- Doing this James Brown thing for the last couple of days has been ideal. But it's a different kind of fun.
+- Every one of the songs was based around picking an acoustic guitar. That was part of the concept from the beginning, that the tempos were going to go from slow to almost mid-tempo.
+- You could put this record on and not get jarred half-way through. I wanted it to be all cut from one cloth, and that was the way we took it through the whole production process.
+- Shouldn't the low strings be at the bottom?
+- Rewriting to me means, if I work on it for three days, I've rewritten it.
+- People don't come to Asheville very often, and they don't know I'm there. I enjoy it. I like it.
+- It took a bit of talking through administrative people, but only once did an attorney try and get in the way of the process and say their artist couldn't do it.
+- I love to get people to sing and play together.
+- I taught myself how to play when I was about 13. I'm a lefty.
+- Things kind of happen organically with me.
+- I had 25 or 30 songs. Sequencing the record, I left that to the producer. I'm not into doing that stuff.
+- Some gigs will go great. I figure you do a gig, and as many as can get there will get there.
+- A person like Carole King could make up something, change it, and actually improve it.
+- I'm going to play as much as they want me to, as long as I can put up with what they book me.
+- Some people just come in, do it and they know it's right. It turns out better than you imagined it was going to sound. When that happens, you take it as a gift.
+- The same people who never did their homework in high school are still doing that to this very day out in the real world.
+- I'm not really getting too involved. My position is, Here's the record. I'm at your disposal.
+- I saw Krishnamurti speak one time. And I thought, I'm not going to live here.
+- I made this record without a record label.
+- I don't know too many people because I stay at my house, I write songs, I go to the store.
+- I was living in Woodstock for a long time, and I thought, I got to get out of here, man.
+- I tend to think of all the songs the same - I give them all kind of equal rights.
+- The bottom string is tuned to an open G.
+- I just sat down and thought, I'm going to write a song today, I'm going to give it a try. So I just stuck it on a tape like everything else. That was just another song.

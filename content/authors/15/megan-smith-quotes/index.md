@@ -1,0 +1,57 @@
++++
+author = "Megan Smith"
+title = "Megan Smith Quotes"
+quotes_len = "51"
+description = "the best 51 Megan Smith Quotes"
++++
+- The American government will be whatever we all make of it.
+- I actually think that working in the federal government, or state or local, is one of the most significant things that a technical person can do.
+- Talent is everywhere. Not all talent has access.
+- The things you're passionate about and interested in, get experience with them by going deep on projects. I would encourage science projects, plays. Pursue science, math, writing, history - the 21st century demands a lot of cross-disciplinary thinking.
+- I like to work at the beginning of projects. Once they get stable, I'll hand them off.
+- Innovation comes out of great human ingenuity and very personal passions.
+- I have a good eye for great projects, talent, and entrepreneurs.
+- Take everything you know. Take your whole selves. Be inclusive. Be open. Make history in the infinite ways that your heart takes you.
+- Malala Yousafzai is all of our daughter, like Iqbal Masih who was all of our son.
+- Second graders learn to read: that's a perfect time to make them code.
+- The more people we can attract to science and technology - men, women, everybody - the more economic opportunity we have as a nation.
+- Americans really expect to interact with our government digitally.
+- The most important thing is, we really want to make sure the American people are able to get to any Web site they'd like to get to.
+- Flipping our classrooms into active learning spaces really is important and having these convenient spaces where people feel comfortable.
+- It's much easier to fail when you're in the pilot, early stage, when it's less expensive and you're exploring than when you're way out the door and you've spent all this money. Industry is smart: structured to have skunkworks and pilot phases.
+- We very much use a prototyping model, play with ideas, and then get stuff started that way, which is how the greatest projects get started.
+- The mandate for the CTO's office is to unleash the power of technology, data, and innovation on behalf of the nation. The CTO's office is really trying to bring best practices, possibilities, pilots, and policy advising.
+- It's very difficult to solve a lot of problems from the top down.
+- Science class is traditionally taught as science history class - you learn all these facts that someone else discovered, which you need to know, but that's not really an inspiring way to learn science.
+- We need to have making, including computer science, shop, etc. as part of the core curriculum from the beginning, not just an optional afterschool thing. Things like First Robotics and all of those great programs need to become mainstream.
+- I think it's so important in preschool and in kindergarten and elementary school that we're not biasing ourselves.
+- You've got Americans who are making Amazon and Facebook and Twitter. That level of American needs to run future government.
+- We have two boys, and one of our kids is much more interested in history and stories, so if you want him to do some calculations about lenses, you would start talking to him about Galileo... Then he would be into the lenses, but if you just start talking to him about lenses, he might not stay with you.
+- Across our great nation, we've begun to see an acceleration of the power of data to deliver value.
+- We are the only country with an operating rover on Mars. We are an amazing country on tech.
+- There are several places in Vietnam where they're teaching computer science from second grade in class, so they don't have a gender divide because everybody is expected to program.
+- We culturally decided, as the personal computer came in, that it was for the boys.
+- Code is just a list of instructions. There are countries that are teaching it as part of the core curriculum. Having some experience in those early years is very important.
+- Thinking through how to make sure we're bringing incredible toys and experiences and that to our girls and our boys at some point is really important for this country for the world in general.
+- Net neutrality is such an important principle for the Web and for the Internet. It's how the Internet's operated for all this time.
+- If we're the country that makes Amazon and Facebook and Twitter, why can't the federal government have websites and digital services that are awesome?
+- It's so interesting that when somebody's pregnant, we are obsessed with knowing the gender of the child so we can figure out what we need to buy that child, what the present would be. Like we're pre-programming the kid before they were born.
+- Each kid is unique in what captures their attention and their passion.
+- There are hundreds of historic and current examples of women and minorities doing groundbreaking work in technology, but so many of these stories are not well known, and in some cases, the stories have been all but lost.
+- I've been working on the lost history of technical women.
+- We know that diversity can sometimes be more uncomfortable because things are less familiar - but it gets the best results.
+- It's an incredibly important thing to make sure we preserve net neutrality.
+- I have been able to attend many technology conferences around the world over the years, including some of the largest, like Google I/O, Microsoft's Developer Conference, Apple's WorldWide Developers Conference, Oracle World, Le Web, and more.
+- Founded in 1994 by the Anita Borg Institute and growing every year, the Grace Hopper Celebration is bringing needed network connections, skill building, and visibility for women computer scientists who work at all levels of our industry.
+- I'm on the MIT board, and a lot of our buildings now have daycare centers; it's becoming a standard.
+- To me, there's so much talent in the world that's locked out for the wrong reasons, whether it's innovators at the highest end where we need to change the regulation systems, or whether it's the talented people who work here who the bureaucracy's holding back, or the amazing American people.
+- There's this fabulous innovation ship called Unreasonable at Sea, where I'm a mentor. One of the companies there was called Protei, and they're an open hardware ocean exploration and monitoring idea.
+- There are 2 to 3 million women programmers in the world. We need to see them more.
+- What was so special about the Mac, we all know, was the graphical computer interface.
+- People can get into very bad habits of arguing ideas and shutting them down.
+- For those of you who are underrepresented in technology, know that you've always been here. Look in photos and see yourself reflecting back.
+- In the early IBM team, that was a racially diverse team, a gender-diverse team.
+- I love to use technology to help people have better lives and to reduce our impact on the planet.
+- I was lucky that science fair was mandatory at my high school in inner-city Buffalo.
+- I think open source is an evolutionary idea for humanity, this idea of transparency. It played out for us in the technology world, but it also played out with the idea of a truth and reconciliation commission and Wikipedia.
+- I went to an inner-city school in Buffalo. We had no money. But our teachers believed in hands-on active learning - there was a mandatory science fair, which was critical.

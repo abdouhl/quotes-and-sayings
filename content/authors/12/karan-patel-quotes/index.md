@@ -1,0 +1,68 @@
++++
+author = "Karan Patel"
+title = "Karan Patel Quotes"
+quotes_len = "62"
+description = "the best 62 Karan Patel Quotes"
++++
+- People will bring up all kinds of masala, but all that matters to me are my fans. They are my strength. I am overwhelmed by their support and love. It just pays off for all the hard work you put in.
+- We don't get offered roles because of who we are but because of what we delivered in the past.
+- It's just sad that one's attitude is always speculated, even if you've not done something.
+- My role model has been Shah Rukh Khan. There is something or the other for one to learn from his career.
+- My mom has always been beside me, always telling me what's right and what's not, guiding me through it all, keeping me away from bad company and from bad habits.
+- My trainer ensures I eat right and balance out in between my hectic shoot schedule.
+- My ideal woman would be someone with both beauty and intelligence. Someone who can hold her own in a conversation, gets along with my family and respects elders, loves children, and have a sense of humour as whacky as mine.
+- I don't like people lying; I like honesty.
+- People might be surprised because I settled for an arranged marriage, but that's what's chosen for us.
+- My fans have always been supportive during my highs and lows. They have been the best set of fans, ever.
+- Giving a break to yourself and the audience, once in a while, is good.
+- My life is an open book. You're welcome to speculate.
+- I always try to balance life by thinking failure of any kind, be it relationship or any project, should not affect me as an individual.
+- There have been times when I have goofed up, and like every adolescent, I sometimes did get led the wrong way. I would come back home really scared to face my mom's wrath and anger, but surprisingly, I never got to face one. She would always tell me in a very nice manner that what I did was wrong and that I should correct myself.
+- I am an actor, and that's the most important thing to me. I cannot imagine a life where I would be anything else but an actor, so putting all my energy into a shot comes naturally to me.
+- I am blessed with a funny gene that makes me enjoy life.
+- Off-screen, I am the most outgoing and friendly person.
+- Once in a while I do put up a video or a thank you tweet for my fans. I think our interaction cements our bond. Getting so much love from them makes me feel blessed.
+- I have had my share of choices and temptations, too; I would not lie about that. And I would also like to confess that had it not been for my mother, I would probably have never been able to make the right decisions during those formative years of my life.
+- My fitness instructor helped me with strength training, muscle building, and toning.
+- I don't belong to the slums, but to play Naru in 'City Of Gold,' I had to live for months in a real chawl before we shot the film.
+- If I was constantly on TV, people would get bored of me.
+- I used to think I was a big star. And I used to think that the TV industry, Balaji, and my show will not survive without me. But then I realised that you cannot be bigger than your work.
+- Adopting this lifestyle and opting to exercise has helped me a lot in life.
+- You cannot go far alone. You enjoy your journey better if you have people by your side.
+- I understand that people have aspirations, and everyone wants to play the lead role. But, I do believe that one must climb the ladder from the first step.
+- Success is a collective job, and one can't claim the credit for themselves.
+- I was a kid when I did the hit show 'Kasturi' in 2007. Maybe stardom went to my head and I thought I was bigger than I actually was. I took everything for granted.
+- I don't think I am a very big star on TV.
+- There is something like destiny. I don't really care if people doubt or express shock over whether our marriage will work.
+- When I will be with the perfect girl at the perfect place, that would be a perfect date for me.
+- I've always loved the media and will continue to do so, but I do feel with due respect to all concerned that surrounding us and giving us no space to move becomes difficult when you're out with family.
+- I do a lot of weight training, and my workouts are intense, which include cardios, core body workouts, and functional training.
+- Any common man can relate to the story that 'Ye Hai Mohabbatein' has.
+- For any actor, it's very important to make your co-star comfortable.
+- I am a different person in front of the camera; it comes as easy to me as breathing does.
+- There was a time when I had no work, and I had to sit at home for 4 years.
+- Atmosphere on the sets of 'YHM' is absolutely brilliant. It's kind of picnic always, and we have a gala time shooting together.
+- At the end of the day, you entertain for few hours, but people remember a good human being for a longer time.
+- If you want to be loved, keep your head on your shoulders and feet on the ground. There is nothing wrong in that. I do the same, and others should also follow this motto.
+- I am quite a fitness freak. I may not have the time to sleep, but a workout is a must. I have even set up a small personal gym on the sets.
+- My diet is high on protein, which keeps me energised and fresh.
+- London has always been my favourite city. I visit it almost every other year.
+- I think one needs a companion at some point in life.
+- I always wanted to be an actor, so I began to prepare myself for a career in acting. I did a course at Kishore Namit Kapoor's acting school. I was with Shiamak Davar's dance school and also did theatre with Nadira Babbar.
+- Ankita is the best wife and the best companion I could ever get.
+- My mother has always kept the entire family together - my dad, due to his business, has always been travelling, and hence, she at times had to play the role of a father and a mother as well.
+- For me, stardom means when people know your name when you appear on screen.
+- My job is to act, so I just focus on that.
+- Shah Rukh Khan started his career with television, and now he is a superstar. You can't generalise and say that TV actors can't make it to films.
+- It is a proud moment for any male actor to have thousands of females chasing you.
+- The funniest memory that I can recall about my school days has to be one incident that involved unfinished homework for numerous days. I didn't do any of my homework for days and days at a stretch, and kept stalling my teacher that I was extremely unwell and was under heavy medication.
+- I express myself the way I want. Sometimes, I know, I do put up posts that might be insensitive, but I am not someone who deletes a post. If my posts end up hurting people, I don't have any qualms apologising, and I have done that in the past.
+- I am from Mumbai. I studied at the Utpal Sanghvi School at Juhu and then went to the Mithibai College. I come from a business family, and I am the only son.
+- I am a celebrity, and it feels good to be famous.
+- I don't go by or change my attitude based on what people say. At the end of the day, they, too, are judging me from their perspective. I would rather be myself and let people accept me for what I am than be somebody who I am not, just because I want people's approval.
+- Just because I am a celebrity doesn't mean I can't say, 'Sorry.'
+- People are sensible enough to know who's dragging my name in dirt for publicity.
+- The audiences know their actors. Didn't Shah Rukh Khan have a romantic image despite playing a dad in 'Kuch Kuch Hota Hai?'
+- I have always been misunderstood.
+- I am known to wear my heart on my sleeves.
+- I respect people's feelings when they say they love me, but it is completely their choice of expression, and I am alien to it. People have a right to express, but that's it.

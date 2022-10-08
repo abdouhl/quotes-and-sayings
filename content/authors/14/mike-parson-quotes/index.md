@@ -1,0 +1,106 @@
++++
+author = "Mike Parson"
+title = "Mike Parson Quotes"
+quotes_len = "100"
+description = "the best 100 Mike Parson Quotes"
++++
+- Alzheimer's is a devastating disease that affects many of our loved ones.
+- One of my top priorities as lieutenant governor has been promoting Missouri businesses through the Buy Missouri program, highlighting the numerous products from dog food to windows that are produced in communities across our state.
+- I've always held myself to a higher standard, whether I was in law enforcement, whether I was in the military.
+- Expanding broadband is essential to our state's infrastructure.
+- In order for Missouri to be a strong and healthy state, we must deliver essential services and support the needs of our working families, especially during COVID-19.
+- As public servants, we constantly strive to be the best for the people of Missouri.
+- Missouri will continue to be a strong and willing partner with the military.
+- Missouri has a rich history and diverse heritage that deserves a proper celebration.
+- The jobs of tomorrow are high tech and high skill.
+- I hope people feel safe to go out and vote, but if they don't, you know the number one thing is their safety should be number one. So if they don't, then don't go out and vote.
+- I am incredibly proud of the hard work of our law enforcement officers and their commitment to protecting our communities.
+- To serve our citizens better and deliver the results they deserve, we must continue to build a strong workforce.
+- As Governor and a former law enforcement officer for more than 22 years, protecting the people of our state is of utmost importance to my administration.
+- Leadership is critical for any organization to succeed.
+- The American dream will never be lost.
+- Access to quality child care is critical for working families, and attending college is often a full-time job.
+- Christmas trees are a wholesome reminder of holiday memories for many Missouri families.
+- National Small Business Week is an opportunity to celebrate our small businesses across the state and recognize the important impact they have on Missouri's economy.
+- Protecting the health and well-being of Missourians is a key component of our Show Me Strong Recovery Plan.
+- COVID-19 has had far reaching impacts on our state, including higher education.
+- We are committed to doing everything we can at the state level to fight violent crime, but we can't do it alone. The only way we can truly make a difference is by working together.
+- Missouri agriculture has a bright future, and you can see that in action through our FFA members.
+- I want to encourage all Missourians to make wise decisions, love your neighbors and support each other in every way you can.
+- It is important that we continue to follow through on key investments in workforce development and infrastructure.
+- State of Missouri employees work tirelessly each and every day, committed to making the lives of Missourians better.
+- In all my years in state government, it has been an honor to witness the devoted, loyal service of state employees.
+- We must see to it that the workforce of tomorrow starts off on the right foot, and that means better support for Missouri children and their families.
+- I appreciate President Trump's commitment and invitation to play a role in strengthening State and Federal government partnerships. It's important that we discuss best practices to tackle shared challenges and priorities.
+- Although 2020 has brought many challenges, we remained committed to serving the people of this state and moving Missouri forward.
+- The Chiefs have played an important role not just in Kansas City and Missouri but throughout the history of football.
+- Missouri farm and ranch families are the backbone of this state.
+- One of the biggest responsibilities the legislature holds every year is allocating our taxpayers' hard-earned money responsibly and efficiently.
+- Optimism leads to investment, and anything that our government can do to reinforce optimism in our economy is good.
+- Our success marketing goods to consumers outside of our borders has played a big role in allowing Missouri's agricultural industry to grow and thrive.
+- We're extremely appreciative of all the crime lab and other civilian personnel who help solve crimes and make Missouri safer.
+- We fully support the right of citizens to peacefully protest and are committed to protecting that right.
+- Our schools play an important role in preparing our students to enter the workforce.
+- Breast cancer takes the lives of many of our loved ones, and often far too soon.
+- We always want to do what's best for our citizens, and we remain committed to finding solutions that will save Missouri taxpayers' hard earned dollars.
+- Any shortage of drinking water is a serious issue.
+- I have never wavered in my support for the Second Amendment.
+- As Governor, it is my responsibility to give students every opportunity to be fully equipped with the skills needed to enter Missouri's workforce. It is also important that, when needed, Missourians receive the proper treatment services necessary to gain employment or further their education.
+- The economic importance of maintaining strong trade relations with our two closest neighbors cannot be overstated. Any decision negatively affecting the free flow of trade from Missouri to Canada and Mexico would have undesirable economic consequences. Thousands of jobs and billions of dollars are at stake.
+- The economic impact of new development spreads throughout a community. New facilities bring new jobs, providing good, family-supporting salaries.
+- Government budgets are no different than our own at home. We must operate within our means, make fiscally responsible decisions, and invest wisely to ensure our next generation is given the same opportunities to succeed.
+- The State of Missouri is committed to protecting the data of the public.
+- As a farmer, I understand firsthand the challenging circumstances the COVID-19 pandemic has created within our agriculture community.
+- COVID-19 has had a major impact on our most vulnerable citizens and their families.
+- Every Missourian should be confident in the legitimacy of their vote and take pride in the strength and security of our elections here in Missouri.
+- We applaud President Trump for taking action to address our nation's workforce needs.
+- Missouri businesses, manufacturers, health care providers, schools, churches, and many other entities across the state did not hesitate to step up and help their communities in the fight against COVID-19.
+- We are grateful for the tireless and selfless efforts of our health care providers and first responders who risk their own safety to protect the health and well-being of Missourians.
+- Most Missourians can't imagine growing up and spending their adult life without their family.
+- As a veteran myself, I care a great deal about the quality of life of our Missouri veterans, and no veteran should ever be without a home.
+- We must support our law enforcement officers, and we must start prioritizing the prevention of violent crime.
+- Unprecedented' is the term I've heard most commonly to describe the COVID-19 pandemic. As for me, I would describe it as a storm at sea. Lengthy and ferocious. Uncontrollable. Frightening. All-pervading.
+- When we try to make everything a priority, the fact is nothing is truly a priority.
+- As governor, I am not interested in building more prisons.
+- The welfare of our children must always be a top priority.
+- The Supreme Court should interpret the law, not make the law.
+- Because of free trade, producers across Missouri can compete at a global level, and - due to the quality and variety of goods our state produces - we have become very successful at exporting.
+- Immigrants have and will continue to have an important role in Missouri and the United States. However, we must work together to help control the amount of illegal activity that passes through this country while giving legal immigrants a chance to succeed in this country.
+- My years in law enforcement taught me that those who wear the badge are often called to the profession because of their desire to protect others and improve their communities.
+- Missouri is dear to my heart, and by working together, we can protect and build a Missouri that is successful for the next generation.
+- We are thankful for the sacrifices of the brave emergency responders who risk their own lives to protect the lives and property of their fellow citizens.
+- Missouri's public safety officers and first responders courageously and selflessly take on tremendous risks each time they answer a call. Each time they respond, they are quietly reaffirming their solemn commitment to risk their own lives to protect others. For this, they deserve our thanks, and continued prayers and support.
+- Every day that goes by when we can save innocent and unborn lives and protect the health and safety of women is a win.
+- This will always be a nation of immigrants. It is the one common trait we all share.
+- Missouri families deserve the best early childhood system our state can provide. This is also a critical area of workforce development for our state.
+- Every child deserves a family of their own to provide the love, support, and strong foundation they need.
+- Our roads, bridges, airports, railways, and river ports are our outlets to expand Missouri business, generate future growth, and expand to new emerging markets across the globe.
+- Police officers know that each time they put on their uniform, they are taking on risks to protect others.
+- We owe it to our students to provide the best, high quality public education in Missouri.
+- Well, I've been a legislator, and I'm the governor now. When you get in these positions, you've got to be held to a pretty high standard.
+- Public universities play a major role in their local communities, serving a variety of needs in addition to their traditional academic roles.
+- Missouri nonprofits have been a lifeline for many Missourians throughout the COVID-19 crisis.
+- The citizens of Missouri expect their government to perform well for them every day.
+- The ratification of the 19th Amendment giving women the right to vote marked a major turning point for America.
+- As a veteran myself, I care a great deal about the quality of care our veterans receive at the Veterans Homes in our state and have raised an alarm bell more than once when I felt we as a state weren't meeting the standard of care I believe they are owed.
+- As Governor and a veteran myself, it is always a privilege to thank the many veterans I meet while traveling across the state.
+- I want to be clear that violent crime isn't just a St. Louis or Kansas City problem.
+- The COVID-19 crisis has highlighted the importance of shopping and buying local.
+- We need to continue to make the Missouri tax code simple and fair.
+- The Missouri Justice Reinvestment Executive Oversight Council plays an important role in meeting justice reinvestment goals and advising the Governor's Office on implementation of the Missouri Justice Reinvestment Act.
+- The COVID-19 crisis has severely impacted Missouri businesses. However, this challenge has not stopped them from stepping up and finding new ways to serve Missourians.
+- It is important to take time out every year to honor state employees.
+- We need healthy people to have a flourishing community, economy and way of living.
+- In the midst of choppy waters, Missourians are fearless.
+- Investing in our emerging leaders through the Missouri Leadership Academy is important to improving state government.
+- There must be serious consequences for criminal behavior, but when individuals demonstrate a changed lifestyle and a commitment to abandoning the ways of their past, they should be able to redeem themselves in the eyes of the law.
+- By patrolling our borders, we can take a proactive stand against human trafficking, violence, terrorism, and illegal immigration from spiraling out of control.
+- With more money to spend, workers can take their families to local restaurants, buy cars at local auto dealers and shop at local stores. That causes growth in these businesses, which can result in the creation of more jobs.
+- Misclassifying workers creates an unnecessary cost to Missouri taxpayers and puts Missouri businesses at an unfair disadvantage.
+- If we are to change violent criminal acts across our state, we must work together.
+- Fighting crime and bringing criminals to justice takes more than law enforcement officers alone.
+- Missourians know all too well the destruction tornadoes can bring to schools and communities.
+- America owes a debt of gratitude to all service members who have fought to preserve the freedoms we all know and cherish today.
+- The citizens of Missouri have high expectations for their state government. And, they should. They expect us to move our state, its economy, and its infrastructure forward, while fulfilling our most important duty - ensuring the safety of all Missourians.
+- Having today's technology available to our students is crucial in preparing our future workforce.
+- Our children are our most precious resource, and we must work to help ensure their safety against every type of risk, including severe weather while they're in school.

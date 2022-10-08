@@ -1,0 +1,17 @@
++++
+author = "Andriy Shevchenko"
+title = "Andriy Shevchenko Quotes"
+quotes_len = "11"
+description = "the best 11 Andriy Shevchenko Quotes"
++++
+- In England everyone puts a lot of pressure on you when you have cost a lot of money.
+- I would like to thank everyone who supported me to be fit for the Euros. I had some fitness problems before the tournament, but I am here now!
+- When I was a child, it was my dream to be a professional footballer. When I was 14 I visited Milan's San Siro stadium and remember thinking how unbelievable it was. From then onwards I vowed that one day I would be playing there - and I am very proud that I achieved this and also for everything else I have managed to achieve in football.
+- My fitness is good. I hope to improve it even further during training.
+- Each game we approach like a final. Today it was the opening game at home, we won and showed outstanding football qualities. We will be preparing for the next game the same way.
+- There is a great responsibility on the team to perform well, because our supporters and the whole of the country are expecting us to do just that.
+- I still follow Chelsea's fortunes.
+- I feel less adrenaline in my body now, but more in my head. I tried to be at my best, and I succeeded.
+- I had a hard time at Chelsea mainly because I was injured much of the time. Every time I recovered from one injury I seemed to get a new one and it set me back again.
+- We are playing at home, with full stadiums and passionate fans. It will be very special moment for me.
+- It will be hard for us and it will be an achievement just to get out of the group stages and through to the quarterfinals, but I am personally dreaming of reaching the final!

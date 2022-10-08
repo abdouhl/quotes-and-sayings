@@ -1,0 +1,106 @@
++++
+author = "Mark Fisher"
+title = "Mark Fisher Quotes"
+quotes_len = "100"
+description = "the best 100 Mark Fisher Quotes"
++++
+- The paradoxical War on Terror is based on a kind of willed stupidity; the willed stupidity of wishful thinking. Only the logic of dreamwork can suture 'War' with 'Terror' in this way, since terrorists were, by classical definition, those without 'legitimate authority' to wage war.
+- Although it was published in 1977, "A Scanner Darkly's" mood is already postpunk.
+- What many students most want from college, although they would never admit it, is an authority structure. There is a demand for an authority which they can then reject; they want to be told what to do, so they can disobey. It is a textbook case of bad faith, a flight from freedom.
+- To be able to function in late capitalism without being a psychological wreck, it is necessary to accept the insane as standard.
+- The World Cup is like the Overlook Hotel: the identities of individual meat puppets might change, but the structure continues endlessly.
+- Affective exploitation is crucial to late capitalism.
+- Under neoliberal governance, workers have seen their wages stagnate and their working conditions and job security become more precarious.
+- Sinatra's melancholy was the melancholy of mass (old) media technology - the 'extimacy' of the records facilitated by the phonograph and the microphone, and expressing a peculiarly cosmopolitan and urban sadness.
+- The neoliberal policies implemented first by the Thatcher governments in the 1980s and continued by New Labour and the current coalition have resulted in a privatisation of stress.
+- While the emphasis on effects became a catastrophe for science fiction, it was a relief for the capitalist culture of which 'Star Wars' became a symbol. Late capitalism can't produce many new ideas any more, but it can reliably deliver technological upgrades. But 'Star Wars' didn't really belong to the science fiction genre any way.
+- The tiniest event can tear a hole in the grey curtain of reaction which has marked the horizons of possibility under capitalist realism. From a situation in which nothing can happen, suddenly anything is possible again.
+- The 21st century is oppressed by a crushing sense of finitude and exhaustion.
+- It goes without saying that all mental illnesses are neurologically instantiated. But this says nothing about their causation.
+- Now that we are used to globalisation it's hard to imagine a time when the countries behind the iron curtain were largely obscured from the western gaze. The Soviet bloc was a genuine mystery. Such was the dehumanisation of the Soviets that Sting could wonder in song if 'the Russians love their children too.'
+- Picnic at Hanging Rock' is the exemplary study of disapparition in cinema - I know of no other major film which deals with unexplained disappearance.
+- If, as is certainly the case, capitalism cannot do without nationality, that is precisely why accelerating and intensifying the deterritorializing, de-ethnicizing and anti-national impulses within (but inhibited by) capitalism constitutes an anti-capitalist strategy.
+- Capitalism is a set of rituals.
+- There is no need to subject people in capitalism to additional suffering; the point is to get them to recognize that the suffering they are already undergoing is caused by capitalism.
+- Little Axe's records are wracked with collective grief. Spectral harmonicas resemble howling wolves; echoes linger like wounds that will never heal; the voices of the living harmonise with the voices of the dead in songs thick with reproach, recrimination and the hunger for redemption.
+- Neoliberalism emerged by defining itself against what it labelled as an unrealistic and unsustainable programme of social welfare and public spending.
+- The discussion of 'V for Vendetta' - on Pinocchio Theory in particular - has been far more interesting than the film deserved. Yes, there is a certain frission in seeing a major Hollywood movie refusing to unequivocally condemn terrorism, but the political analysis in the film (as in the original comic) is really rather threadbare.
+- Most psychiatrists assume that mental illnesses such as depression are caused by chemical imbalances in the brain, which can be treated by drugs. But most psychotherapy doesn't address the social causation of mental illness either.
+- Postmodernism is, of course, the dead end from which hauntology starts - but one of its role is to denaturalise what postmodernism has taken for granted, to conceive of postmodernism as a condition in the sense of a sickness.
+- Just because something is current doesn't mean it is new.
+- Basic Instinct 2' is camp, not because it takes itself too seriously, nor because it sends itself up, but because we are not sure quite how seriously it wants us to take it.
+- When The Fall pummeled their way into my nervous system, circa 1983, it was as if a world that was familiar - and which I had thought too familiar, too quotidian to feature in rock - had returned, expressionistically transfigured, permanently altered.
+- Downloading and Web 2.0 have famously led to new ways of accessing culture. But these have tended to be parasitic on old media. The law of Web 2.0 is that everything comes back, whether it be adverts, public information films or long-forgotten TV serials: history happens first as tragedy, then as YouTube.
+- Christopher Nolan's 'The Prestige' is an enthralling study of doubles, doubling and duplicity. Its twinned themes are obsession and the Secret: the Secret as objet-a, that which inspires, but which can never satisfy, obsession.
+- Is it possible to reproduce, later in life, the impact that books, records, and films have between the ages of fourteen and seventeen? The periods of my adult life that have been most miserable have been those in which I lost fidelity to what I discovered then.
+- I'm not sure that Liberation Theology has ever satisfactorily resolved the tensions between Marxism's 'social naturalism' (the claim that all beliefs have their origins in social practice) and religion's supernaturalism (the claims that its beliefs are underwritten by divine will).
+- In 'A Scanner Darkly,' as in 'The Spy Who Came in from the Cold,' all intersubjective relations devolve into webs of suspicion and betrayal.
+- The first 'Red Dawn' was made at a time when Hollywood didn't stint in its use of Russian stereotypes. Cold war capitalist ideology construed the Soviets as different for two reasons - not only did they belong to another political-economic system, they didn't seem to possess the same emotions that 'we' do.
+- Some of the Junior Boys' textures may be borrowed from synthpop but, formally, their songs would be impossible without twenty years of the rave discontinuum. And where synthpop was self-consciously European, the Junior Boys have pioneered an electronic Pop that speaks in a Canadian accent.
+- The fact that the 1984 cold war film 'Red Dawn' has been remade is more than just another sign of Hollywood declining into pastiche and repetition. It shows that, in a moment of deep capitalist crisis, the Red Peril is back.
+- If it is true, for instance, that depression is constituted by low serotonin levels, what still needs to be explained is why particular individuals have low levels of serotonin. This requires a social and political explanation.
+- Much of reality TV has been like the worst nightmares of Theodor Adorno and Jean Baudrillard come true, its seductive allure turning us into gossips in the global village.
+- In a world of niches, we are enchained by our own consumer preferences.
+- I have taught Philosophy, Religious Studies, English Literature, Cultural Studies, Writing and Publishing Studies, Critical Thinking.
+- I'm the world's greatest apologist for Brian De Palma but his version of Ellroy's 'The Black Dahlia' is a disaster.
+- If people dying as a consequence of the implementation of measures cannot count as evidence that the legislation has detrimental effects, what would?
+- Reality TV is flat with the anti-cultural imperatives of business: cheap to make, it does ideological work even when it is not giving guru status to dull business people. It fits in with capitalism's anti-mythic myth: the idea that we have liberated ourselves from the dangerous illusions allegedly propagated by art and politics.
+- There is no right to not be offended, nor should there be.
+- I loathe my name because it is mine and also because it is not mine; it is at once too intimate and seems to have no connection with me. Perhaps because the name is quite common, it never seems to fit me, or fit me alone. Nevertheless, when I see the name, I always feel a peculiar sense of shame.
+- Abduction was what it felt like on first listening to Public Enemy. Like the post-punks, Public Enemy implicitly accepted the idea that a politics which came reassuringly dressed in established forms would be self-defeating.
+- Sometimes a disappearance can be more haunting than an apparition.
+- Some IMDB viewers complain that 'Beloved' should have been reclassifed as Horror... well, so should American history.
+- When pop can no longer muster a nihilation of the World, a nihilation of the Possible, then it will only be the ghosts that are worthy of our time.
+- What if the counterculture was only a stumbling beginning, rather than the best that could be hoped for?
+- The story of Basinski's 'Disintegration Loops' - tapes that destroyed themselves in the transfer to digital - is a parable (again almost too perfect) for the switch from the fragility of analogue to the infinite replicability of digital.
+- On the Junior Boys' 'When No-one Cares' beats are abandoned altogether, the track's 'endless night' lit only by the dying-star flares and stalactite-by-flashlight pulse of reverbed electronics.
+- Footballers' 'lack of loyalty,' for instance, is not an indication of players' moral delinquency. Instead, the capacity to move on quickly without forming lasting attachments is a skill that the contemporary capitalist world inculcates and relies upon.
+- Jetsetting is now not the privilege of the elite so much as a veritiginous mundanity for a permanently dispossessed global workforce.
+- Star Wars' was a sell-out from the start, and that is just about the only remarkable thing about this depressingly mediocre franchise.
+- De Palma's great theme, obsessively reiterated, is betrayal.
+- The most powerful love songs always turn on the discrepancy between the act of declaring love and the knowledge that the ostensible addressee is no longer there, was never there, and could never be there.
+- What Public Enemy and Underground Resistance had in common was a rejection of the idea of music as entertainment.
+- Play a jungle record from 1993 to someone in 1989 and it would have sounded like something so new that it would have challenged them to rethink what music was, or could be.
+- Pele featured in the Brazilophile imaginary as the a figure of non-utile excess, a carefree artist in the Nietzschean sense, indifferent to the narrow teleology of winning matches... check the way that most of the endlessly replayed footage we see of Pele is not of him scoring goals, but audaciously missing chances contrived by force of wit.
+- Noir' has been talked about a great deal in the discussion of 'The Black Dahlia,' but De Palma's palllete couldn't be less monochrome; it's the very definition of garish.
+- There is no opposition between efficiency and justice; on the contrary, an institution run by those who actually do the work is likely to be more effective than one run by interchangeable exploiters who often lack any specific expertise in what they are supposedly managing.
+- Identity politics is not politics at all, since it precisely negates the political as such by re-construing political positions in ethnic terms, subsuming 'ought' under 'is.'
+- In hip-hop, as in neoliberalism, economics bullied politics out of the picture.
+- No ideology better understands the need for enemies than neoconservatism, and when the cold war dramatically and unexpectedly ended, the way was prepared for the 'Arab threat' to emerge. 'True Lies,' the 1994 James Cameron comedy thriller starring Arnold Schwarzenegger, duly served up the Arab villain Salim Abu Aziz.
+- Like all of Moore's work, 'V for Vendetta' is considerably less than the sum of its parts.
+- The reality of nostalgia is nowhere better invoked than at the end of Tarkovsky's 'Solaris.' When the camera pans away from Kelvin embracing his father on the rain-soaked steps of his dacha, we realise that the scene is yet another of the simulations produced by the inscrutable planet.
+- Identitarianism assumes that people are condemned to identify with the positive (ethnic/ gender/ nationalistic) predicates they possess, as if their subjectivity were exhausted by those properties. Exactly the opposite is the case: the authentic dimension of subjectivity consists not in any positive identity but in that which makes identifications.
+- In terms of the film itself, there was nothing much very new about 'Star Wars.' 'Star Wars' was a trailblazer for the kind of monumentalist pastiche which has become standard in a homogeneous Hollywood blockbuster culture that, perhaps more than any other film, 'Star Wars' played a role in inventing.
+- Capitalism does not require us to hold a particular set of cognitive beliefs; it only requires that we act as if certain beliefs (about money, commodities etc) are true. The rituals are the beliefs, beliefs which, at the level of subjective self-description, may well be disavowed.
+- The arrival of 'Star Wars' signalled the full absorption of the former counterculture into a new mainstream.
+- The vast numbers of people who suffer some kind of mental illness under capitalism can either think, 'there is some failing with me, if only I could fit into this system better, if only I were working harder, if only I could enjoy these empty pleasures more, then things would be OK' or 'the problem is with the system that is making me ill.'
+- In the classic 70s episodes, Columbo is rarely seen on his own. We typically do not see Columbo 'for himself,' only for the criminal, leaving the possibility that the entire Columbo persona - his shambling manner, his absent mindedness, even his references to his wife - may all be a performance designed to disarm the murderer.
+- Anti-capitalism is nothing new in Hollywood. From 'Wall-E' to 'Avatar,' corporations are routinely depicted as evil. The contradiction of corporate-funded films denouncing corporations is an irony capitalism cannot just absorb, but thrive on. Yet this anti-capitalism is only allowed within limits.
+- Basic Instinct 2' is an uneasy experience because, although it is hyper-reflexive to the point where it is hard to think of one character, one scene, one plot twist that isn't a reference or an echo, there is nothing knowing about it. No matter how absurd the film gets, it refuses to raise its eyebrows.
+- We all know that the 'reality' of reality TV is an artful construction, an effect not only of editing but of a Lorenzian rat-in-a-mirrored-labyrinth artificial environment which attenuates psychology into a series of territorial twitches.
+- Crucially, Marxist atheism is only achieved once the theological critique of capitalism is completed. This is what separates Marxist atheism from the gliberal platitudes of the likes of Nick Cohen, who proclaim secularism while remaining attached to the theology of capital (liberal commonsense).
+- We're invited to believe that the worst effects of Stalinism arose from its 'dogmatic' intransigence; but it is precisely because so much was left open to interpretation that its Terror was so pervasive.
+- Children of Men' reinforces what few would doubt, but which British cinema would seldom lead you to suspect: the British landscape bristles with cinematic potential.
+- There's always been a nasty strain of class prejudice ingrained in the condemnation of football's 'undeserving rich,' as if the working class is uniquely susceptible to being corrupted by money, and as if they deserve their wealth less than those born to it.
+- Capitalism can never pursue deterritorialization to the absolute. What deterritorialization there is within capitalism is always balanced by a compensatory lockdown onto nation, culture, and race. Hence the 'Steampunk' quality of capitalism, where the most ancient traditions can co-exist with the ultramodern.
+- It will come as no surprise that I would count Nietzsche the perspectivist - he who questioned not only the possibility but the value of Truth - as the enemy. There will be even fewer surprises that I would reject the Dionysian Nietzsche, the celebrant of transgressive desire.
+- What is remarkable about Joy Division is the way they are bereft of two of the mainstays of most other rock and pop: longing and supplication.
+- The 1890s was perhaps the most Gothic decade ever: 'Dracula,' 'The Picture of Dorian Gray' and 'The Time Machine,' not to mention 'Heart of Darkness' and 'The Interpretation of Dreams,' were all written between 1890 and 1899.
+- I make no special effort to conceal my surname online; the reason I do not use it is more because I dislike, even loathe it, than because I want to keep it a secret.
+- Capitalism is what is left when beliefs have collapsed at the level of ritual or symbolic elaboration, and all that is left is the consumer-spectator, trudging through the ruins and the relics.
+- Roxy Music' and 'For Your Pleasure,' those exercises in learning and unlearning of accent and manners, are Pop's equivalent of 'The Talented Mr Ripley.' The clothes , the bearing and the voice are faked, but not yet perfectly.
+- Columbo's deliberately irritating questioning technique - 'just one more thing' - is designed to produce discomfort rather than to elicit information.
+- What better example than the World Cup is there of the fact that individual people are irrelevant while impersonal structures are invariant?
+- What needs to be kept in mind is both that capitalism is a hyper-abstract impersonal structure and that it would be nothing without our co-operation.
+- The ruling ideology prefers to talk about individual ethics rather than the capitalist system.
+- A Scanner Darkly' is one of Dick's bleakest novels, and almost certainly his saddest.
+- While football embarrassingly exposes the excesses of capitalism, the Olympic sports have been used to propagate the neoliberal mantra that success is simply a matter of hard work.
+- OK, so we all know that 'Borat' is humiliatingly, career-endingly unfunny (one trick too many for one-trick pony Sacha Double-Barelled) - but can anyone explain why the 'character' isn't roundly condemned for being as unacceptably racist as the one-dimensional stereotypes from 70s sitcoms such as 'Mind Your Language?'
+- Structurally, as is evident, the role of the 'Islamic Terror' is to fill the gap left by the disintegration of Stalinism. That is why Saddam's quasi-Stalinist Baathist regime was the perfect transitional object for the U.S. in the immediate years after the Cold War ended. Saddam was no more a Muslim than Stalin was a Christian.
+- The moment that most fascinated me in Ursula Le Guin's 'The Lathe of Heaven' was its descriptions of times of transition from one reality to another.
+- We once turned to popular culture because it produced fantasy objects; now, we are asked to 'identify with' the fantasising subject itself.
+- The sustaining fantasy of Nolan's Batman films - which does chime uncomfortably with Romney -is that the excesses of finance capital can be curbed by a combination of philanthropy, off-the-books violence and symbolism.
+- You can be debased without relinquishing your identity, just as you can relinquish your identity without being debased.
+- Nietzsche should not be taken seriously as a political theorist, at least not at the level of his positive prescriptions. But the Nietzsche who denounces the insipidity and mediocrity that result from democracy's levelling impulses could not be more acute.
+- The point is always made that capitalism is efficient, people say 'You might not like it, but it works.' But Britain is not efficient.
+- In particularly acute cases of depression, it is recognized that no verbal or therapeutic intervention will reach the patient. The only effective remedy is to do things, even though the patient will, at that time, believe that any act is pointless and meaningless.

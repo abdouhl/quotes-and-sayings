@@ -1,0 +1,70 @@
++++
+author = "Novak Djokovic"
+title = "Novak Djokovic Quotes"
+quotes_len = "64"
+description = "the best 64 Novak Djokovic Quotes"
++++
+- Mostly the problems when I was down were caused by myself. There were times when I was not responsible enough or decisive enough.
+- Those born into poverty or on the margins of society require our extra support to realize their dreams.
+- Nobody actually played tennis in my family.
+- I'm a happy man, because I am successful in what I do, of course; but what makes me most happy is I have people around me that I love and who love me back. This, for me, is the most important thing. Nobody likes to be alone.
+- I had to know at least two languages.
+- The confidence is there, the game is there, but physically you can't fight nature sometimes. You can't do much about it.
+- I cannot guarantee anything.
+- Serbian history tells that the family is the most important thing and you have to stick with the family.
+- Well, I do feel that I carry the responsibility of representing my country wherever I am, and this responsibility came with the success that I had in last couple of years, not just myself but the whole group of tennis players that comes from Serbia. And athletes in general are, in this moment, the biggest ambassadors that our country has.
+- I like my groundstrokes, I can say. I like it. That's my game - I'm a groundstroke player and I play pretty aggressive.
+- Joking around is part of my personality, just who I am.
+- I always try to adjust to the situation.
+- I had to listen to the classical music because it calms me down, calms my nerves down.
+- Tennis players we're always playing in center courts that feel like arenas. And when we get on the court and the crowd cheers your name or salutes you - it's like you're a gladiator in the arena. And everyone is cheering - and you're fighting, you're screaming, during your strokes - it feels like you're an animal, fighting for your life.
+- The history of our country is cruel. We have to face those issues or, should I say, we had to. Not anymore I hope, because we are going in the right direction, and we are ready to forgive, ready to move on.
+- Even though now I'm pretty popular in my country and tennis is the No. 1 sport, and I'm very flattered that the people recognise me and come up and give me compliments, I'm more a person who likes to have privacy and peace.
+- I always try to have something that keeps my mind relaxed, keeps my mind a little bit off tennis.
+- I am fast and very powerful on the court, so this is what matters.
+- You have to consistently be successful to be one of the top players in the world, and everything is possible in life.
+- It gives me goose bumps and little butterflies in the stomach when I start thinking about the 'golden slam.'
+- People look up to me as somebody who is able to switch the image of our country from negative to positive.
+- And when I was saying I want to become number one of the world and I was 7, 8 years old, most of the people were laughing to me. Because you know, it seemed like I have one percent chances to do that. And I've done it.
+- Tennis is a mental game. Everyone is fit, everyone hits great forehands and backhands.
+- I am very skinny.
+- I'm trying not to pay too much attention to the rankings because calculations can distract you.
+- My father never talked about the sacrifices that the family made for me.
+- I feel the pressure.
+- I stopped thinking too much about what could happen and relied on my physical and mental strength to play the right shots at the right time.
+- In order to stay where I am - and I want to do that - I have to stay dedicated as well as I have been before I became No. 1.
+- I love football and it's the sport I would really like to play. I've said on national television here that I would really love to play for one of our football clubs when I finished my tennis career.
+- All children have rights and those rights must be protected.
+- I don't think there has been enough communication between the players and the tournaments. In one sense it's just as much the players' fault. Players talk between each other and in the locker room about things that can be improved and then when the time comes to talk and really do something about it they stop.
+- We have a harder way to succeed in life as Serbs because of the past that we had and because of the history we had.
+- Honestly, I'm not a big fan of baseball.
+- I have been through two wars in my 24 years, and I know what it's like to be without anything, to see the bombs flying above your head.
+- I think luck falls on not just the brave but also the ones who believe they belong there.
+- Building a solid foundation in the early years of a child's life will not only help him or her reach their reach their full potential but will also result in better societies as a whole.
+- As a kid I was creative.
+- I want the same thing I've wanted since I was 7 years old. I want to be No. 1.
+- I love being around people who care about me, and I care about them.
+- The tradition in Serbia has always been team sports - football, basketball, handball, volleyball and water polo, individual sports are not supported.
+- I embraced, I think, the process of becoming No. 1 of the world, which was long and difficult, but it's sweeter in the end.
+- I haven't been in tennis for that long, but what I can say is that we have a lot of young guys at the top who are willing to do a lot of good things for tennis in general.
+- My mother is a special story. She went through so much to bring us up, four men at home, especially when our country was going through really difficult times.
+- Imagine a part of the U.S.A., from which the U.S.A. started - where is the cradle of your history? This is Kosovo for Serbia.
+- What I learned as a young child continues to have a tremendous impact on my life today.
+- In my case, I can sincerely say that nothing is impossible... When I was saying I want to be No. 1 of the world, and I was seven or eight years old, most of the people were laughing at me because it seems like I have one percent of chances to do that, and I've done it.
+- I've had my ups and downs in my private life.
+- My grandfather went through a lot in his life.
+- Tennis is my life, obviously; I need to focus, I need to win. But it's not the only thing. I'm not going to play forever.
+- It's interesting that I had such a close relationship with my grandfather. Because your parents always judge you: they say, 'You shouldn't do this, you shouldn't do that.' But with your grandparents you have a feeling that you can say anything or you can do anything, and they will support you. That's why you have this kind of connection.
+- My father had never watched tennis, never liked tennis too much. He said, 'OK, we buy a racket, we watch together,' because we didn't know anything. It was a process of learning together that made it more interesting.
+- I'm happy, my family's happy, everything is going well.
+- It was very unusual for a boy to play tennis in my country.
+- I always tried to win. I was as competitive as I am today.
+- I'm trying to enjoy my lie as much as I can and I know that tennis hopefully is going to be my life the next 10, 15 years.
+- In terms of playing ability there is nothing to choose between number one and 100. Instead, it's a question of who believes and who wants it more? Which player is mentally stronger? Which player is going to fight the hardest in the big points? These are the things that determine who is the champion.
+- I had a unique privilege to have a good start in life and a chance to develop my talents.
+- But, it's because we have a harder way to succeed in life as Serbs because of the past that we had and because of the history that we had. We have to dig deeper and we have to do much more in order to be seen and to be spotted.
+- It's always easier if you have the support of your family, if you're not alone. I came from a country that has been through a lot of troubles in the last 20 to 30 years, but we have been through them together.
+- Not everybody can like what I do, and if you feel that somebody is coming up closer to you and starting the rivalry and everything, you maybe change your position to him.
+- I never wanted to change countries; it's something that is part of me.
+- I want to help children in Serbia and around the world so they can realize their dreams.
+- My nutritionist has done a great job in changing my diet after we established I am allergic to things like gluten - I can't eat pizza, pasta and bread. I have lost some weight, but my movement is sharper and I feel great.

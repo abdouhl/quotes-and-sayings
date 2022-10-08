@@ -1,0 +1,85 @@
++++
+author = "Nicole Kidman"
+title = "Nicole Kidman Quotes"
+quotes_len = "79"
+description = "the best 79 Nicole Kidman Quotes"
++++
+- I'm trying to find a man to share my life with, but it's not been easy. I'm a 35-year-old woman with two small children.
+- When you relinquish the desire to control your future, you can have more happiness.
+- I think actors are getting so much more power these days, but I'm not. I stay very much away from the decisions, the way in which things are orchestrated, what's been changed. I just try to stay completely in the role as the actor and as the character.
+- People can tell you what to do, but ultimately, we're all going to die, so how do you want to live?
+- I want to go home at night and feel discomfort.
+- I'm a person that carries everything that happened to me in my past, with me into the future. I refuse to let it make me bitter. I still completely believe in love and I remain open to anything that will happen to me.
+- It's very easy to fall in love when things are great, but the way to really fall in love is when things aren't great.
+- I just want to be nominated; beggars can't be choosers.
+- I have a different approach. I don't file lawsuits because I really don't care.
+- I'll put it out there: I love getting hugs.
+- My parents thought it was nice to develop my imagination, but they never seriously thought that anything would ever come of it. They said that I couldn't be an actress because I would be taller than all my leading men, so I thought I would be a writer instead.
+- To be honest, I am completely natural. I have nothing in my face or anything. I wear sunscreen, and I don't smoke. I take care of myself and I'm very proud to say that.
+- I don't really celebrate fame because I get enough attention.
+- I'd like to be wise. You have to go through a lot to get there, but I'm willing to go through a lot.
+- I want to be in places I've never been before.
+- It was very natural for me to want to disappear into dark theater, I am really very shy. That is something that people never seem to fully grasp because, when you are an actor, you are meant to be an exhibitionist.
+- Honestly, people have said everything under the sun. I just want to do my work, raise my kids, and hopefully find somebody who I can share my life with again.
+- You can ask me pretty much anything. There'll be things I'll go, 'That feels a little too personal.' But most things I don't have a fear of being asked about.
+- I think that the most difficult thing is allowing yourself to be loved, so receiving the love and feeling like you deserve it is a pretty big struggle. I suppose that's what I've learnt recently, to allow myself to be loved.
+- I wouldn't want to be married to me, but luckily Tom Cruise does.
+- I never read reviews at all. I'm proud of the work I did.
+- I would rather be tough on myself than have other people be tough on me.
+- I was fair-skinned in a country that's about the outdoors.
+- I don't believe in having body doubles for a film.
+- There's no drugs, no Tom in a dress, no psychiatrists.
+- I have a boy's body. I would prefer to have more curves because I think that's more beautiful. I would much rather have J. Lo's body than mine.
+- Even from a very early age, I knew I didn't want to miss out on anything life had to offer just because it might be considered dangerous.
+- LIfe has got all those twists and turns. You've got to hold on tight and off you go.
+- Once I start putting all my little insecurities in my mind, I'm not actually acting. Then it's about me - and it should never be about me. It should be about the character.
+- Yippee! I can't believe I made it. It feels like a long haul to get here. I'm so fine with it. People want you to have some sort of breakdown, but I'm relieved to be 40 years old, and I've lived a life.
+- I think each role takes a little from you and circles around you for the rest of your life. I don't think you ever abandon any of them.
+- My life collapsed. People ran from me because suddenly it was 'Oh my God! It's over for her now!'
+- It's a very brave thing to fall in love. You have to be willing to trust somebody else with your whole being, and that's very difficult, really difficult and very brave.
+- Not to be too detailed, but I've had an ectopic pregnancy, miscarriages and I've had fertility treatments. I've done all the stuff you can possibly do to try get pregnant.
+- I like the privacy of my life and I protect it quite vigilantly.
+- What's the point of doing something good if nobody's watching.
+- The loss of a child is the most terrifying place for me to go.
+- If you're going to be with someone, you're with them, you're committed to them. I'm not sort of flitting around.
+- You can still fight when someone can't talk.
+- I was walking around legally blind. Now I have 20-20 vision. I can't believe I spent so many years blurry, but I think that coincides with how I was feeling. Now I notice if people are watching me, but I also smile right back if someone waves, which helps.
+- I don't mind being naked.
+- My choices in films are spontaneous.
+- I think at some stage, I would love to have another child. I would love to settle into a relationship that was really important to me. I actually am not good at the balance at that.
+- Even as a child I had a strong relationship with yearning and desire. And loss. Those things spoke to me.
+- I think I would be very sad if I wasn't able to have a baby.
+- I never knew I'd be in a musical, let alone win an award for one.
+- I got married really fast and really young.
+- I find standing and posing for photos very awkward.
+- Having your work be the basis of fame, that's a far more stable feeling.
+- Every day there is a compromise. Living with somebody requires a lot of understanding. But I love being married. I really love it.
+- I think having my life be as private and quiet as possible is a way in which then I can go and play characters.
+- Stay out of the sun, because it is the worst thing in terms of aging. I'm very medical. I come from a medical family.
+- Part of the reason of being an actor is you like playing other people's lives and exploring all the psychologies in that and the emotions.
+- I think when you're in a relationship where you really care for the other person, when they achieve their dreams it's better than when you do yourself.
+- You're not anyone in America unless you're on TV.
+- I love acting, but it's much more fun taking the kids to the zoo.
+- I have a little bit of a belly, a tiny bit of pooch. It's the one thing I don't want to lose. I just like having some softness. If I lose that, then Tom might leave me.
+- I auditioned for the role of an angel in the Nativity play at school. I didn't get it. I auditioned for Mary; didn't get it. So I made up the character of the sheep who sat next to Baby Jesus.
+- I don't really make decisions, I go with the flow.
+- I think it's important that we don't all have to hold our heads high all the time saying everything's fine.
+- I'm drawn to the psychology of really interesting, flawed people.
+- I believe that as much as you take, you have to give back. It's important not to focus on yourself too much.
+- I'm a woman, a mother, a daughter, a sister. I'm a real person operating in the world. For me to discuss the most private thing feels wrong. It feels like I'm betraying myself and my children.
+- Cinema is a director's medium, so you're saying, 'What do you want?' Being an actor is about adapting - physically and emotionally. If that means you have to look great for it and they can make you look great, then thank you. And if you have to have everything washed away, then I'm willing to do that too.
+- I love acting but I don't like all of the other stuff associated with it. The interest in celebrities, the press, the Internet, when your identity becomes mixed up in the way people are preceving you.
+- You don't have to be naked to be sexy.
+- If I were a strategically minded person, I think I would have a far different career.
+- It's so bizarre, I'm not scared of snakes or spiders. But I'm scared of butterflies. There is something eerie about them. Something weird!
+- Salary stories are intrusive. Do you ask your neighbour what they earn for their job?
+- They've said I'm gay, they've said everyone is gay. I personally don't believe in doing huge lawsuits about that stuff. Tom does. That's what he wants to do, that's what he's going to do. You do not tell Tom what to do. He is a force to be reckoned with.
+- You've just got to have a sense of respect for the person you have children with. Anger doesn't help anybody. Ultimately you have to say forgiveness is important, and honoring what you had together is important. But it's easy to say and harder to do.
+- I refuse to let what happened to me make me bitter.
+- I'm not sure what the future holds but I do know that I'm going to be positive and not wake up feeling desperate. As my dad said 'Nic, it is what it is, it's not what it should have been, not what it could have been, it is what it is.'
+- I always wanted to get married with just candles! I think candlelight is the most beautiful light there is and there's something very spiritual about it.
+- I love working with people who are inspired and obsessive.
+- Since I have fair skin, I have to stay out of the sun. I can't stand the sun. I dyed my hair red for a while during the 1990s but I'm actually a natural blonde.
+- That goes against what I believe morally. That's adultery, and if I'm accused of that, no, that's not right. I have two kids who see that and remember that and judge me. It didn't happen, and it's not to be reported that way.
+- I never wore glasses except when I had to read a teleprompter at an awards show or drive, so I didn't notice much. I could exist in my head. It was kind of my escape from the world and my protection.
+- I would describe myself as emotional and highly strung. If something upsets me, it really upsets me. If something makes me angry, I get really angry. But it's all very upfront. I can't hide it. I'm also loyal and I hope I'm fun.

@@ -1,0 +1,61 @@
++++
+author = "Michael Buffer"
+title = "Michael Buffer Quotes"
+quotes_len = "55"
+description = "the best 55 Michael Buffer Quotes"
++++
+- A lot of times you go to a fight and the crowd will be for a certain fighter who is the favourite but if the underdog shows he has a chance they sometimes even swing to side of the underdog.
+- It's one thing to practise in front of a mirror at home, but another to do it in front of 800 people or on live TV.
+- I was very surprised to learn how many cancer survivors are out there and how they instantly rallied to my support.
+- I have nothing to complain about financially.
+- I hear my voice and I cringe, I kind of hear Philadelphia in there, my hometown.
+- It's not that I get nervous but when it's a really hot button crowd where they are really energetic I get anxious.
+- I have done a lot of NFL games, a season-opening home games, playoff games, championship games, and of course Stanley Cup games, World Series, NBA championship games. But I have never done a Superbowl. It's probably the only major sporting event I've never done and I would like to.
+- I was watching fights on TV one day with my oldest son and we watched a ring announcer announce a split decision where he gave the winning scores first, so he took away the drama. So my son said: 'Dad you could do that,' and the light went off in my head and I decided to contact promoters and got my foot in the door.
+- One of the things I really love about my job is enthusiasm.
+- You know, there's a lot of luck involved in anybody's success.
+- I looked at motor racing in America where at the Indy 500 the drivers are told 'gentlemen start your engines' and the crowd go wild because they know the race is about to start. I needed a hook and came up with 'let's get ready to rumble.'
+- One of my favourite fighters to watch ever, and of course before I was a ring announcer, was Muhammad Ali.
+- Anytime I get a chance to work with the guys from the WWE, it's a chance I jump at if I can.
+- The heavyweight division is the division that historically always drives boxing. It's the flagship. That's because even if a guy is a big underdog, one punch turns everything around.
+- You see, the power of television cannot be underestimated.
+- I'm supposed to be neutral when I do my job. But I'm a fan and I have my favorites.
+- I actually gave Mike Tyson his 'Iron Mike' nickname.
+- I was pretty dreadful on my first night as an announcer as back in those days the scorecards were written in a very strange way so that didn't help and some of the fighter's names were unpronounceable.
+- Mike Tyson as a kid was a mark, he loved wrestling. So that was something he loved to do when he had the opportunity to participate.
+- One of the great moments for me was Riddick Bowe defeating Evander Holyfield to win the world heavyweight title. That was a night when you thought, 'Woah, this guy is special.' But then after that Riddick never really fulfilled his potential.
+- I never pick a side when I am announcing a big boxing match but there's always a part of you rooting for the underdog I guess.
+- One time, a hedge fund gentleman in Connecticut brought in a bunch of professional wrestlers and myself at a very hefty price for his son's 11th birthday.
+- I'm actually a survivor of throat cancer so I'm very, very careful with my voice.
+- One of my careers just before ring announcing was that I worked as a model.
+- I think it would be great to start a Super Bowl off with, 'The players are ready, the field is ready, let's get ready to rumble.'
+- I always loved Evander Holyfield because people think of him as a small heavyweight, but of course from the waist up he was a pretty good-sized guy, but he just had these little skinny legs and no booty and it made him look like he was small.
+- The night of Floyd Mayweather vs Manny Pacquiao. I woke up that morning with a very, very bad case of laryngitis and couldn't speak at all. I had no voice. And I was able, just by having chicken soup and barley and salt water, to have just enough for that one fight.
+- I know this: Jerry Jones is unique, he's as cool as James Bond and he has a command of his business. He can step into any arena and succeed.
+- I've done quite a few gigs for the military. Some of them had to be kept under the wire. I'm a three year Army veteran myself, and I'm always available to do stuff like that. I've even done some things for the British military, too.
+- Some guys' names I love announcing.
+- A lot of people assumed for all those years that I was the official announcer for HBO because I had done almost all their fights. I worked on all of them independently.
+- A throat-coating tea with some honey is very soothing for my throat, so I always travel with that.
+- I'm not a business person.
+- I used to watch old clips of Muhammad Ali, where he'd be talking the jive during interviews, you know, 'Float like a butterfly, sting like a bee, rumble, man, rumble.'
+- As a kid and avid sports fan, one of the most exciting things always was the introductions. To be that guy who makes the presentations and do my best for both the person being introduced and for the fans, is still very exciting for me.
+- I always think of myself of being lucky, maybe blessed is the word.
+- I have the power to control the crowd's emotions.
+- Every day I wake up I am thankful and every night I am very thankful that I've made a career out of the phrase 'Let's get ready to rumble!'
+- The only vocal training I had was playing with a tape recorder as a kid, and you know, doing the beginning of the 'Lone Ranger' show, with a hearty hi-o silver, and just having fun, never really thinking I would be an announcer.
+- I remember a show in New Jersey several years ago when a big fight broke out in the crowd. I took the microphone and introduced Frank Sinatra. He wasn't there, but even the guys creating the disturbance stopped to look.
+- I've met kids right out of the Olympics who tell me they can't wait to be introduced by me. After a fight, fighters say, 'Being introduced by you, what a thrill.' That's probably the best compliment I can get.
+- Most times, I'm playing myself in films, like 'Rocky' or 'Creed.'
+- Before boxing I was a car salesman but I was horrible at it and had to make a living elsewhere.
+- I've been blessed with doing something I love and then at the same time, do introductions at World Series, Stanley Cup championships, NFL playoff games and a lot of commercials. No regrets at all.
+- After making my notes in the afternoon, I usually visit the fighters in their dressing rooms before they go out. I check what colour trunks they'll be wearing and sometimes the pronunciation of their names, particularly if they're from eastern Europe or Thailand, Vietnam, Indonesia. I'll make sure I write those out phonetically.
+- I do a lot of fights in the U.K., and the fans there, I have to admit probably, are the best in the world because they support their fighters.
+- When I was starting out the announcers would name everyone from the boxing board at ringside and by the time they got to the fighters they were almost an afterthought.
+- It's hard to put a price on a life's work.
+- I didn't see conflict during the Vietnam War, but I did lose close friends.
+- If you were to make a commercial, or do a magazine ad that says 'let's get ready to rumble' to draw attention to your product, you've stolen my property.
+- You can't believe everything you hear on the Internet.
+- There's a lot of luck involved in getting married to the right woman.
+- There's nothing like a event at The Garden.
+- The great Muhammad Ali used to have that phrase where he would say: 'Rumble young man, rumble' and 'I'm so pretty I'm ready to rumble.' I kind of just fine tuned it to 'Let's get ready to rumble.'
+- To me, all business is the same it's just the product that's different and you can have a diamond in your hand, but if you don't market it correctly, it just becomes another piece of coal.

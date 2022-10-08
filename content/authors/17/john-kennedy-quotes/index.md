@@ -1,0 +1,106 @@
++++
+author = "John Kennedy"
+title = "John Kennedy Quotes"
+quotes_len = "100"
+description = "the best 100 John Kennedy Quotes"
++++
+- Some of my colleagues argue that by further curtailing our Second Amendment rights, they can enhance public safety. Fine, the burden of proof is on them.
+- The problem with EMMA is that it is cost prohibitive for the small investors who were supposed to benefit from the new transparency.
+- Taxpayers have long memories, especially when it comes to how their hard-earned money is spent.
+- I don't think anybody in America ought to be scared.
+- Wall Street apparently takes and then forgets, and then comes after the guns of law-abiding American citizens and small businesses.
+- I don't know a country in the world that doesn't have borders and doesn't want to know who is coming into their country.
+- We also cannot allow Wall Street banks to rewrite the Second Amendment just because they're too big to fail.
+- What I think we need to do is pass a bill that says number one, you own your data. Number two, you can license it to Facebook but the licensing has to be knowing, it has to be willful.
+- Life is precious.
+- Due process should matter.
+- Sometimes I'll jot a clever turn of phrase down. Sometimes I'll just remember it.
+- As a member of the Senate Judiciary Committee, I'm concerned about the recklessness of public policy that endangers people's lives, especially in minority communities, where crime often is such a scourge.
+- Do FBI Agents and FBI directors have political beliefs? Sure they do. But they're not supposed to act on them.
+- I like policy - call me a nerd.
+- I read a lot. I enjoy reading a lot.
+- I don't like traffic cameras. In fact, I hate them. But that doesn't mean I can break the speed limit and run red lights to get to a New Orleans Saints game.
+- If you believe that tax policy has nothing to do with the economy, then you're pretty much like a rock, only dumber.
+- Well, I have great respect for Senator Hirono.
+- Jurisdictions across the U.S. are snapping up algorithms as tools to help judges make bail and bond decisions. They're being sold as race- and gender-neutral assessments that allow judges to use science in determining whether someone will behave if released from jail pending trial.
+- I think, under President Obama, who was a really bright guy - I didn't agree with a lot of his politics - but we got to the point internationally where our friends didn't trust us. They were confused. And our enemies didn't quite respect us.
+- Our rights are not absolute. Our rights can be curtailed in the interest of public safety.
+- Our country was founded by geniuses, but it's being run by idiots.
+- As a country, we can't teach kids how to read and write when we got 18 years to do it. And that's - that's a disgrace.
+- I bet taxpayers remember providing more than $812 billion to Citigroup and Bank of America, two Wall Street banks, in 2009 to bail them out during the 2008 financial crisis. Taxpayers remember that generosity; big banks evidently don't.
+- I don't want to impugn the motives of my colleagues, but my attitude is, speaking just for me, you either believe in border security or you don't.
+- The FBI should not be a political body.
+- A good lawyer is going to try to protect her client.
+- It's been my experience in politics that you can try and plan it out: 'I'm going to hit the three ball which will hit the eight ball.' You've just got to go run and try to do everything right. And then have a little luck.
+- The Second Amendment is just as important as all the other Amendments.
+- Just because you've seen 'My Cousin Vinny' doesn't qualify you to be a federal judge.
+- I don't think we need more gun control laws.
+- Obamacare sucks, it can't be fixed.
+- I happen to believe there is evil in the world.
+- Anyone who's looked into a newborn's innocent eyes should realize how incredible it is to be blessed with a new life.
+- You know people talk about federal money as if it falls from heaven. You know we thank heaven for it, but it came out of people's pockets - and I've driven all over Washington, D.C., I cannot find the money tree.
+- I have a reputation for taking on governors a lot more powerful than me.
+- I do not believe we will have a war with Iran.
+- When you meet with someone and you try to assess whether they're telling you the truth or not, there's several things you can do. You judge demeanor and credibility. You look at corroboration.
+- People see things differently and remember things differently. It's why if somebody robs a liquor store and there are four witnesses they'll often disagree.
+- The Bill of Rights is not an a la carte menu.
+- The Democratic position seems to be everything is going to be free. Free education. Free health care. Free housing. Free love. Free kittens, I don't know.
+- The truth of the matter is that Iran is a cancer.
+- Everybody who makes any kind of policy needs to substitute teach. But you've got to be a real teacher. You can't just go to a couple of classes with the regular teacher there. It is an incredibly hard job.
+- When you look at how much we spend on social programs in our country, it separates us from a lot of countries. In our country, if you're hungry, we'll feed you. If you're homeless, we'll house you. If you're too poor to be sick, we'll pay for your doctor. But all of that comes at a cost.
+- Most of us believe, or should believe, that every child can learn, given the opportunity, but try substitute teaching just once and you will see firsthand the socioeconomic issues that distract our kids from taking advantage of that opportunity.
+- I've always appreciated a turn of phrase.
+- I believe that the primary role of the government is to protect people and not run their lives. You used to be able to believe that in the Democratic Party.
+- I try to speak in a way that people can understand.
+- Treat your children like the blessings they are or don't have them at all.
+- Teachers are expected to be teachers, psychiatrists, nurses, sociologists, psychologists, surrogate moms or dads, as the case may be.
+- The federal election statutes are primarily meant to be civil. That doesn't mean that you can't have a criminal violation of the FEC provisions, but that's just my personal opinion.
+- I like policy. It's why I decided to enter government. The other thing I like about government - you have good days, you have bad days, but you never have a boring day, and that's important to me.
+- There is a group of people that I think in good faith honestly believe that further curtailing our Second Amendment rights will enhance public safety. But there's another group that just hates the Second Amendment.
+- I filed the MSRB Reform Act, along with Sens. Elizabeth Warren and Doug Jones, because the board that oversees the muni-bond market is too secretive and too incestuous. Its membership shares the same DNA. That means the rulebook for municipal bonds is in the hands of a board that resembles a revolving door of longtime industry confederates.
+- Beto's copy of the Bill of Rights goes from one to three. Mine includes the Second Amendment. But there are a whole host of people here in Washington... they would be happy to confiscate America's guns. And if you don't believe that, then you probably also still believe in Bigfoot.
+- I would remind you the lesser of two socialists is still a socialist.
+- I would rather drink weedkiller than support Obamacare.
+- This is America. You're entitled to believe what you want.
+- The NICS database has holes big enough to drive a Mack truck through.
+- Look, the American people are smart.
+- My Democratic friends just can't accept the fact that the American people chose Donald Trump to be president - it's called democracy. My advice to them, and I say this gently: Fill out a 'Hurt Feelings Report' and let's move on.
+- I'm interested in two things. I'm interested in truth and I'm interested in fairness.
+- Transparency at the MSRB is dubious with data downloads too costly for all but the Vanguards of the world.
+- I think the FBI is the premier law enforcement agency in all of human history.
+- Power does not change you, it unmasks you.
+- The Iranians have shot down drones. They tried to destroy the Saudi oil fields. They tried to storm our embassy. So, when my Democratic friends say we need appeasement, well appeasement hasn't worked. And I think that we've learned, with respect to Iran, that weakness invites the wolves.
+- I supported Donald Trump.
+- In theory, the MSRB is supposed to protect the public interest, investors, and state and local governments. In practice, the MSRB membership structure is more shaded toward protecting the financial professionals who broker the deals.
+- I'm not interested in more political or cultural combat.
+- Sometimes the majority just means all the fools are on the same side.
+- I don't think President Trump is a racist.
+- I trust Russia and China and Iran and North Korea like I trust a Jussie Smollett police report.
+- Nobody's indispensable.
+- Here's what I believe, I think the FBI is the premier law enforcement agency in the history of the world but i think there was some bad apples over there.
+- You're morally tainted if you don't treat both the accuser and the accused with fairness and with respect, and with due process.
+- Too many people treat parenting like it's the 20th item on their to-do list.
+- With all due respect, I am against dumb.
+- I think we need more idiot control.
+- I just think you ought to talk straight with your people.
+- My mind doesn't work, my memories don't work like a computer file where I can just retrieve them and, boy, there it is. My mind is selective in terms of memories. When I try to think back to college or high school, there are gaps. I try to fill them in. But I can't tell you it's always the truth.
+- American taxpayers have been generous to Louisiana in the aftermath of Hurricanes Katrina and Rita.
+- Algorithms diminish public safety in this country. They ask us to pretend that lengthy arrest records and violent crimes don't matter. They ask police to scoop up the bad guys only for the courts to immediately release them. They turn us into a bad joke.
+- I don't like to be bored.
+- All impeachments, I guess, are political.
+- The highest grade I've taught is the 11th grade, and the youngest I've taught is the 4th grade.
+- There are some members of the House leadership whose only mission in life is to demonize the president.
+- If people lose faith in their government, the result is the same whether or not the loss of confidence is justified.
+- I love being in the United States Senate.
+- One way to stop illegal immigration is a border wall.
+- I looked the people of Louisiana in the eye and told them exactly what I thought in terms that normal people use.
+- I think the American people, with some justification, think that most politicians live in la-la land.
+- There's some jerks. There's some big egos. There are a few that think they're one of the Founding Fathers... in both parties.
+- I try to speak plainly so that my constituents who don't follow the nuances of government like I do, because they're too busy earning a real living, can understand the issues before me. None of this stuff is brain surgery.
+- Louisiana's spicy, colorful politics have saddled our state with a reputation for tolerating lax ethical standards in government.
+- I mean Facebook is no longer a company, it's a country. 2 billion users. It can influence what we think, what we believe, how we vote, what we buy, even how we feel.
+- Part of the problem is there are people in Washington, D.C. in positions of power to whom the border is just a nuisance, and I think some of them believe that illegal immigration is a moral good. It is not. It undermines legal immigration.
+- Perception often lags behind reality, and I can say from experience that the vast majority of public officials in Louisiana are much better than our reputation holds us to be.
+- Let me state the obvious. Illegal immigration is illegal, duh.
+- You're innocent until proven guilty.
+- Ninety-nine percent of the men and women of the FBI... are just professionals. I don't want Americans, if an FBI agent knocks on their door, to have to be worried about well, is he a Democrat or a Republican? He's an FBI agent.

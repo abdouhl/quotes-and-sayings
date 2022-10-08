@@ -1,0 +1,104 @@
++++
+author = "Michelle Alexander"
+title = "Michelle Alexander Quotes"
+quotes_len = "98"
+description = "the best 98 Michelle Alexander Quotes"
++++
+- I believe it is possible to bring an end to mass incarceration and birth a new moral consensus about how we ought to be responding to poor folks of color and a consensus in support of basic human rights for all. But it is going to take some work.
+- It is no longer socially permissible to use race, explicitly, as a justification for discrimination, exclusion, and social contempt. So we don't. Rather than rely on race, we use our criminal justice system to label people of color 'criminals' and then engage in all the practices we supposedly left behind.
+- Activists take the risks, while advocates are professional tinkerers with the system. What's necessary is for those who are advocates to support those who are activists and to envision themselves as activists.
+- Martin Luther King Jr. could have argued that separate water fountains were too expensive, a waste of money. He would have been right about that. But cost was beside the point.
+- The very rights that we supposedly won for African Americans in the civil rights movement no longer exist for those labeled felons. That's why I say we have not ended racial caste in America; we've merely redesigned it.
+- Our criminal-justice system has for decades been infected with a mindset that views black boys and men in particular as a problem to be dealt with, managed, and controlled.
+- Top-quality public education, universal health care, and free child care are among the many benefits provided by the state in Norway, reflecting its long-standing egalitarian culture and spirit of communitarianism - a spirit that extends to its prisons.
+- The greatest myth about mass incarceration is that it has been driven by crime and crime rates. It's just not true.
+- As described in 'The New Jim Crow: Mass Incarceration in the Age of Colorblindness,' the cyclical rebirth of caste in America is a recurring racial nightmare.
+- I think most people have a general sense that when you're released from prison, life is hard, but, you know, if you work hard and apply self-discipline and stay out of trouble, you can make it. But that's true only for a relative few.
+- Mass incarceration is a massive system of racial and social control.
+- The clock has been turned back on racial progress in America, though scarcely anyone seems to notice. All eyes are fixed on people like Barack Obama and Oprah Winfrey who have defied the odds and achieved great power, wealth, and fame.
+- When we pull back the curtain and take a look at what our 'colorblind' society creates without affirmative action, we see a familiar social, political, and economic structure - the structure of racial caste. The entrance into this new caste system can be found at the prison gate.
+- It's not crime that makes us more punitive in the United States. It's the way we respond to crime and how we view those people who have been labeled criminals.
+- Now that private prison companies have found that they can make a killing on mass incarceration, these private prison companies are now in the business of building detention centers for suspected illegal immigrants.
+- What we're dealing with is institutional, and unless systems are put into place that will ensure accountability, we can expect racially biased police practices to continue.
+- I believe this system of mass incarceration would have Dr. King turning in his grave. There's no doubt in my mind that Dr. King would be doing everything in his power to build a movement to end mass incarceration in the United States; a movement for education, not incarceration.
+- People are swept into the criminal justice system - particularly in poor communities of color - at very early ages... typically for fairly minor, nonviolent crimes.
+- When people have been hurt over and over, and rather than compassion or understanding you're given lectures about how it's really all your fault and that no one needs to make amends, you can lose your mind.
+- I have spent years representing victims of racial profiling and police brutality and investigating patterns of drug law enforcement in poor communities of color - and attempting to help people who have been released from prison attempting to 're-enter' into a society that never seemed to have much use to them in the first place.
+- In this era of mass incarceration, the police shouldn't be trusted any more than any other witness, perhaps less so.
+- Susan Burton's life story - filled with trauma, struggle, and true heroism - is precisely the kind of story that has the potential to change the way we view our world.
+- Public housing is off-limits to you if you have been convicted of a felony. For a minimum of five years, you are deemed ineligible for public housing once you've been branded a felon. Discrimination in private housing market's perfectly legal.
+- Mandatory minimum sentences give no discretion to judges about the amount of time that the person should receive once a guilty verdict is rendered.
+- Globalization and deindustrialization affected workers of all colors but hit African Americans particularly hard.
+- We need transformational change of our criminal justice system - not just, you know, a handful of consent decrees or policy reforms.
+- I believe that Trayvon Martin's life might well have been spared if many of us who care about racial justice had raised our voices much, much sooner and much, much more loudly about the routine stereotyping and profiling of young black men and boys.
+- Once labeled a felon, you are ushered into a parallel social universe. You can be denied the right to vote, automatically excluded from juries, and legally discriminated against in employment, housing, access to education and public benefits - forms of discrimination that we supposedly left behind.
+- In my view, the most important lesson we can learn from Dr. King is not what he said at the March on Washington but what he said and did after the march. In the years following the march, he did not play politics to see what crumbs a fundamentally corrupt system might toss to the beggars for justice.
+- Our nation has slashed budgets for education, job training, economic development, and drug treatment while investing billions in prisons and militarized police. A penal system unprecedented in world history has been born. Millions have been arrested and stripped of basic civil and human rights.
+- Bill Clinton presided over the largest increase in federal and state prison inmates of any president in American history.
+- More than 90 percent of criminal cases are never tried before a jury. Most people charged with crimes forfeit their constitutional rights and plead guilty.
+- Almost no one refuses the police when confronted on the street or in a train or plane or train station. When you're confronted by the police, very few - either the foolish or the very brave - will refuse consent when confronted by the police.
+- Some of our system of mass incarceration really has to be traced back to the law-and-order movement that began in the 1950s, in the 1960s.
+- If everyone charged with crimes suddenly exercised his constitutional rights, there would not be enough judges, lawyers, or prison cells to deal with the ensuing tsunami of litigation.
+- Prisoners do matter when analyzing the severity of racial inequality in the U.S. Yet because they are out of sight and out of mind, it is easy to imagine that we are making far more racial progress than we actually are.
+- Surely, we've got a way that we can tinker with this system that shuttles our children from decrepit, underfunded schools to brand-new high-tech prisons.
+- Because standard unemployment reports continue to exclude prisoners, we have been treated to a highly misleading picture of black unemployment.
+- All the old forms of discrimination, the forms of discrimination we supposedly left behind, are now perfectly legal once you've been labeled a felon.
+- Private landlords as well as public landlords are free to discriminate against people with criminal records for the rest of their lives. You come out of prison, and where are you expected to go?
+- Public housing officials are free to discriminate against you on the basis of criminal records, including arrest records. And so, you know, what you find is that even for these extremely minor offenses, people find themselves trapped in a permanent second-class status and struggling to survive.
+- The success of the few does not excuse the caste-like system that exists for many. In fact, black exceptionalism - the high-profile, highly visible examples of the black success - actually serves to justify and rationalize mass incarceration.
+- People return home from prison and face legal discrimination in virtually all areas of social and economic and political life. They are legally discriminated against employment, barred from public housing, and denied other public benefits.
+- I don't think I understood the full extent of the trauma experienced by people who churn through America's prisons until I began taking the time to listen to their stories.
+- In 2004, there were more black men disenfranchised than in 1870 - the year the 15th Amendment was ratified, prohibiting laws that deny the right to vote exclusively on the basis of race.
+- Exposing police lying is difficult largely because it is rare for the police to admit their own lies or to acknowledge the lies of other officers. This reluctance derives partly from the code of silence that governs police practice and from the ways in which the system of mass incarceration is structured to reward dishonesty.
+- After the end of slavery, African-American men were arrested in mass, and they were arrested for extremely minor crimes like loitering, standing around, vagrancy, or the equivalent of jaywalking - arrested and then sent to prison and then leased to plantations.
+- My experience and research has led me to the regrettable conclusion that our system of mass incarceration functions more like a caste system than a system of crime prevention or control.
+- People have a false understanding of what our legal system is like - how it works/operates - from shows like 'Law and Order,' which suggest that lawyers appear on demand and do a tremendous amount of investigation and background research.
+- Perhaps there should be a box on the census form that says, 'I'm a criminal.' Everyone who has ever committed a crime would be required to check it. If everyone were forced to acknowledge their own criminality, maybe we, as a nation, would second-guess our apparent zeal for denying full citizenship to those branded felons.
+- The love affair between black folks and the Clintons has been going on for a long time. It began back in 1992, when Bill Clinton was running for president. He threw on some shades and played the saxophone on 'The Arsenio Hall Show.' It seems silly in retrospect, but many of us fell for that.
+- Prosecutors frequently overcharge, load up charges on individual defendants, knowing that three strikes laws and harsh mandatory minimum sentences will force people to plea bargain and essentially convict themselves because they're terrified of doing a life sentence for a relatively minor crime.
+- In a sense, mass incarceration has emerged as a far more extreme form of physical and residential segregation than Jim Crow segregation. Rather than merely shunting people of color to the other side of town, people are locked in literal cages - en masse.
+- The sprinkling of people of color through elite institutions in the United States, due to affirmative action policies and the limited progress of middle-class and upper-middle-class African Americans, creates the illusion of great progress.
+- If there is any hope that we in America might one day overcome our own history of genocide, slavery, discrimination, and oppression and create a justice system that is truly a source of international pride rather than shame, I suspect Rwanda may have as much to teach us about what is required as any tour of a Norwegian prison.
+- There is a system of racial and social control in communities of color across America.
+- The extraordinary nature of individual black achievement in formerly white domain certainly does suggest that the old Jim Crow is dead, but it doesn't necessarily mean the end of racial caste - if history is any guide, it may have just taken a different form.
+- The cyclical rebirth of caste in America is a recurring racial nightmare.
+- Many of the old forms of discrimination that we supposedly left behind during the Jim Crow era are suddenly legal again, once you've been branded a felon.
+- Our entire political system is financed by wealthy private interests buying politicians and making sure the rules are written in their favor.
+- The Supreme Court has made it nearly impossible to prove race discrimination in the criminal justice system.
+- 'Slavery by Another Name' is an important book that I think all Americans should read, about how, following the end of slavery, a new system of racial and social control was born, known as 'convict leasing.'
+- The uncomfortable reality we must face is that California, like the nation as a whole, has treated generations of African Americans and Latinos as largely disposable.
+- I am a criminal. Coming to terms with this aspect of my identity has helped me to see more clearly - with blinders off - the ways in which I have been encouraged not to feel any connection to 'them,' those labeled criminals. I see now that 'they' are me, and I am them.
+- The fact that our legal system has become so tolerant of police lying indicates how corrupted our criminal justice system has become by declarations of war, 'get tough' mantras, and a seemingly insatiable appetite for locking up and locking out the poorest and darkest among us.
+- I think we've become blind in this country to the ways in which we've managed to reinvent a caste-like system here in the United States, one that functions in a manner that is as oppressive, in many respects, as the one that existed in South Africa under apartheid and that existed under Jim Crow here in the United States.
+- The system of mass incarceration depends almost entirely on the cooperation of those it seeks to control.
+- Although our rules and laws are now officially colorblind, they operate to discriminate in a grossly disproportionate fashion.
+- Thousands of people plead guilty to crimes every year in the United States because they know that the odds of a jury's believing their word over a police officer's are slim to none.
+- I believe that we need to think very seriously, particularly as folks of color and progressives, about building either a new party or a new movement that can hold the Democratic Party accountable or provide a meaningful alternative.
+- Some might argue that it's unfair to judge Hillary Clinton for the policies her husband championed years ago. But Hillary wasn't picking out china while she was first lady. She bravely broke the mold and redefined that job in ways no woman ever had before.
+- Discrimination in virtually every aspect of political, economic, and social life is now perfectly legal if you've been labeled a felon.
+- On any given day, there's always something I'd rather be doing than facing the ugly, racist underbelly of America.
+- Bill Clinton championed discriminatory laws against formerly incarcerated people that have kept millions of Americans locked in a cycle of poverty and desperation.
+- Those labeled felons may be denied the right to vote, are automatically excluded from juries, and may be legally discriminated against in employment, housing, access to education, public benefits, much like their grandparents or great grandparents may have been discriminated against during the Jim Crow era.
+- I am inclined to believe that it would be easier to build a new party than to save the Democratic Party from itself.
+- Black men with criminal records are the most severely disadvantaged group in the labor market.
+- The same kinds of stereotypes and hunches that George Zimmerman used when deciding that, you know, Trayvon Martin seemed like a threat in his neighborhood, law enforcement officers employ all the time.
+- Most new prison construction has occurred in predominately white, rural communities, and thus a new and bizarre form of segregation has emerged in recent years. Ghetto youth are transferred from their decrepit, underfunded, racially segregated schools to brand-new high-tech prisons located in white rural counties.
+- In this country, we force millions of people - who are largely black and brown - into a permanent second-class status simply because they once committed a crime.
+- I no longer believe that we can 'fix' the police, as though the police are anything other than a mirror reflecting back to us the true nature of our democracy.
+- We have to stop thinking of criminals as 'them' and admit to ourselves, 'There but for the grace of God go I.'
+- We cannot 'fix' the police without a revolution of values and radical change to the basic structure of our society.
+- Felons are typically stripped of the very rights supposedly won in the civil rights movement, including the right to vote, the right to serve on juries, and the right to be free of legal discrimination in employment, housing, access to education, and public benefits. They're relegated to a permanent undercaste.
+- The great gift of 'Incarceration Nations' is that, by introducing a wide range of approaches to crime, punishment, and questions of justice in diverse countries - Rwanda, South Africa, Brazil, Jamaica, Uganda, Singapore, Australia and Norway - it forces us to face the reality that American-style punishment has been chosen.
+- Some prison officials are determined to keep the people they lock in cages as ignorant as possible about the racial, social, and political forces that have made the United States the most punitive nation on earth. Perhaps they worry the truth might actually set the captives free.
+- There has been an outpouring of anger and concern because of the actions of George Zimmerman, a private citizen who profiled a young boy and pursued him and tried to confront him, perhaps. But what George Zimmerman did is no different than what police officers do every day as a matter of standard operating procedure.
+- Incarceration rates, especially black incarceration rates, have soared regardless of whether crime is going up or down in any given community or the nation as a whole.
+- It doesn't matter if that felony happened three weeks ago or thirty-five years ago - for the rest of your life, you've got to check that box, knowing full well the odds are sky-high your application is going straight to the trash.
+- After years as a civil rights lawyer, I rarely find myself speechless.
+- In the 'era of colorblindness,' there's a nearly fanatical desire to cling to the myth that we, as a nation, have 'moved beyond' race.
+- I am still committed to building a movement to end mass incarceration, but I will not do it with blinders on. If all we do is end mass incarceration, this movement will not have gone nearly far enough.
+- Once you've acquired a criminal record, you can be discriminated against legally in employment, housing, and access to education and public benefits. You're relegated to a permanent second-class status, forever a 'criminal.' Inflicting this amount of unnecessary pain and suffering is not cheap.
+- I believe the U.S. Supreme Court, as well as a very large swath of the American population, really wants to imagine that race and racial inequality is something we don't have to think about anymore, don't have to worry about anymore.
+- Thousands of people go to jail, go to prison, every year without even meeting with an attorney.
+- If you take into account prisoners, a large majority of African American men in some urban areas, like Chicago, have been labeled felons for life. These men are part of a growing undercaste - not class, caste - a group of people who are permanently relegated, by law, to an inferior second-class status.
+- During the Jim Crow era, poll taxes and literacy tests kept the African-Americans from polls. But today, felon disenfranchisement laws accomplished what poll taxes and literacy tests ultimately could not, because those laws were struck down. But felony disenfranchisement laws had been allowed to stand.
+- The U.S. Supreme Court has eviscerated Fourth Amendment protections against unreasonable searches and seizures, giving the police license to sweep communities, to conduct 'stop and frisk' operations.

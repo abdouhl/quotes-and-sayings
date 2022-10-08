@@ -1,0 +1,39 @@
++++
+author = "Mohnish Pabrai"
+title = "Mohnish Pabrai Quotes"
+quotes_len = "33"
+description = "the best 33 Mohnish Pabrai Quotes"
++++
+- I own a company called Rain Industries.
+- We have to do what I would call anomalies: we have to look for strange things that show up once in a while. They don't show up all the time. We have to be scanning the horizon, and doing that, once in a while something will show up that makes a lot of sense, and then you act on it.
+- It is the performance of the business that matters. It is hard enough to figure out the future of the business. Do not try to figure out the future of the country or the world; focus on the business.
+- I have a hard time getting past the day without the nap, so the nap is a must.
+- People see poverty all around them in India, but they are desensitized or immune to it. I came to the conclusion that poverty is driven by lack of education.
+- The government has to be flexible in Air India sale price, structure, and employee management plan.
+- A subset of CEOs is that of entrepreneurs. And the classical definition of an entrepreneur is an individual who pursues opportunity without regard to the resources currently controlled. That sounds like a very different person than one might expect an analytical investment manager to be.
+- The stock knows that I bought it, and it decides, 'Mohnish is done. Now let's go down.'
+- Basically if you study entrepreneurs, there is a misnomer: People think that entrepreneurs take risk, and they get rewarded because they take risk. In reality entrepreneurs do everything they can to minimize risk. They are not interested in taking risk. They want free lunches and they go after free lunches.
+- I think a lot of people are getting more serious about how to do the most good, but there is no road map. I'm hoping I can offer an example.
+- The single biggest advantage a value investor has is not IQ. It's patience and waiting. Waiting for the right pitch, and waiting for many years for the right pitch.
+- What is John Arriaga's circle of competence? Is it real estate? No! Is it U.S. real estate? No! Is it California real estate? No! Northern California real estate? No! Only real estate around Stanford. His circle of competence is this small.
+- When I ran a small IT services business in the 1990s, it had strong recurring revenues - yet I couldn't accurately forecast cash flow for even the next few quarters. Small changes in the customer base or losing/hiring a few key employees could create massive swings in cash flow.
+- There is no such thing as a value trap. There are investing mistakes.
+- You know, my degrees are in computer engineering. I spent a lot of time in the tech industry. And I like to say that I don't invest in tech because I spent time in it. And I saw firsthand that the durability of technology moats is many times an oxymoron.
+- I think investors ought to focus on making sure that the stock is within their circle of competence, that it's worth a lot more than it's valued at - and once you have those two things, a stop-loss makes no sense.
+- You don't make money when you buy stocks. And you don't make money when you sell stocks. You make money by waiting.
+- Before starting my own investment funds, the only models I was aware of were those of Warren Buffett and Charlie Munger. Their models made a lot of sense to me, so I cloned them.
+- I used to not talk much to anyone about my investments.
+- The good news in investing is there are no HR problems. If there are no humans, there are no problems!
+- The good thing about getting wealthy is we don't need to understand a lot of things!
+- The problem most nonprofits have is that they are run by romantics who are great to hang out with, but they have no clue.
+- Mistakes are the best teachers. One does not learn from success. It is desirable to learn vicariously from other people's failures, but it gets much more firmly seared in when they are your own.
+- Talking to people is beneficial if you can identify the right people to share ideas and discuss decisions because everyone has blind spots, and others can sometimes catch yours. I think an investment team is a bad idea, but it is a good idea to talk to trustworthy individuals who do not have biases or interests.
+- The essence of a good investment manager is one who studies a given business and extrapolates the future cash flows that the business is likely to generate over the next several years. Based on the cash flow and asset assessment, they can then arrive at their expected rate of return if they bought a fraction of that business at a given price.
+- One of the reasons why we can make a lot of money in equity markets is because they're auction-driven, and auction-driven markets are very different from almost any other kind of market.
+- One of the first things I tell people is, if you want to learn about investing, you want to open an account and make real investments because that's when it becomes real.
+- Entrepreneurs are great at dealing with uncertainty and also very good at minimizing risk. That's the classic great entrepreneur.
+- One might think of investment managers as astronomers and CEOs as astronauts. The two roles are radically different with distinct personality traits. Like astronomers, investment managers tend to be introverted, skeptical, and very analytical. CEOs, like astronauts, are the exact opposite, typically being extroverts, optimists, and, well, leaders.
+- Industries with rapid change are the enemy of the investor. Tech businesses, particularly biotech, is a problem from that point of view. All industries work with change, but you should ideally be investing in businesses with a low rate of change, not a high rate of change.
+- We Americans love original ideas. But truly, there are already plenty of good ones out there, ours for the taking. If I were too proud to copy the ideas of others, I likely wouldn't have even a fraction of my current success.
+- The only way one should buy stocks is if you understand the underlying business. You stay within the circle of competence. You buy businesses you understand.
+- To the extent societal rules or the wiring of your brains make it easy to acquire a lot of assets, then to the extent you can, you should try to improve the world.

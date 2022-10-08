@@ -1,0 +1,29 @@
++++
+author = "Marcus Ericsson"
+title = "Marcus Ericsson Quotes"
+quotes_len = "23"
+description = "the best 23 Marcus Ericsson Quotes"
++++
+- It's a big step coming from Caterham into the Sauber team.
+- I think always in F1 the team mate is the first one you get compared to - which is normal.
+- The debut season in F1 is obviously very tough but it's been OK. The aim for me is to stay in Formula One for many years and that's what we're working at doing at the moment.
+- I think F1 have always had smaller teams and that's been fighting it out and being there and like you say, its been a perfect place for young drivers who come into F1 to gain experience.
+- You cannot look too much at the result, you need to also look at yourself and what you've done, how you have maximised the machinery that you have.
+- The ovals have been the big learning curve. You have to build up to it in a different way.
+- As you get to F1 as a rookie, you want to prove what you can do and show your potential and I couldn't really do that for different reasons, and it was mentally really, really tough.
+- I think what I've found is that in IndyCar, the balance is a bit more all over the place compared with Formula 1! You have to get used to that and work around it. Again, as a driver, you can help the situation by the way you brake and apply the throttle to make the balance better.
+- When I'm doing longer runs I can be very consistent on the lap times because I know what the car is doing all the time.
+- I will give my very best to develop both as a driver, and to be part of the challenge to put the Sauber F1 Team back closer to the front where it belongs.
+- It's been 23 years since the last Swede in Formula One, so for me to be the next F1 driver at all these races around the world has been amazing.
+- I've enjoyed my year with Caterham, I get on really well with the people so I think we keep all options open but 100% focus is to stay in F1.
+- I still believe that Mercedes and Ferrari are the two strongest power units but then Honda is a lot stronger than they get credit for I think.
+- I think Formula One is extremely difficult, obviously, and it's the best drivers in the world so it's not easy to jump in and be on your top level immediately.
+- In Formula 1 it's easier to dial out the balance issues and perfect it, whereas in IndyCar it's more difficult to dial out those characteristics with mechanical changes in the pits. Instead you have to drive around it.
+- Every lap I'm learning more about an IndyCar, because it's not an easy car to learn. It's tough to get your head around it and know how to use it in the best possible way.
+- I was extremely underprepared for F1. So compared with that, I feel fine with IndyCar, quite honestly.
+- Winning a race is the goal for sure; it has to be.
+- I think when I got to Sauber you can really feel the difference in personal experience in the team. They've been around for a long time and also the construction team is a lot stronger.
+- The Sauber F1 Team has put its trust in me for 2015, and it makes me proud, as Sauber is known to be one of the best teams in developing young drivers. It will be a great challenge.
+- In Formula 1 there is so much grip, you can attack the corner so hard and be so aggressive in corner entries, and that doesn't really work in IndyCar. You have to bring that back a bit and be more precise in the mid-corner to exit.
+- Qualifying has been one of my strongest points all my career.
+- I need to find a way to improve my qualifying performances because then I think my races will be even better.

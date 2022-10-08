@@ -1,0 +1,48 @@
++++
+author = "Amiri Baraka"
+title = "Amiri Baraka Quotes"
+quotes_len = "42"
+description = "the best 42 Amiri Baraka Quotes"
++++
+- My family came to Newark in the '20s. We've been there a long, long time. My father's name was LeRoi, the French-ified aspect of it, because his first name was Coyette, you see. They come from South Carolina.
+- Jimmy Baldwin was not only a writer, an international literary figure: he was a man, spirit, voice - old and black and terrible as that first ancestor.
+- This is said to us, even as this counterfeit president has legalized the Confederate Flag in Mississippi.
+- 'Griot' is a French word which means, you know, really, literally, 'cry.' You know, like the town crier. You know, they come in and say, you know, 'It's nine o'clock; everything is cool.' You know, 'President Bush is a fool.' I mean, stuff like that just to tell you. But for the kind of, the African thing is called djali.
+- I was Everett LeRoi Jones. My grandfather's name was Everett.
+- The artist's role is to raise the consciousness of the people. To make them understand life, the world and themselves more completely. That's how I see it. Otherwise, I don't know why you do it.
+- I always liked jazz. And my people liked the old blues, race records and the doo-wop and all that.
+- You have to get an individual who's willing to actually struggle with the system to change it. As long as you have people who - to make substantive changes, to make infrastructure changes.
+- The major poets of New Jersey have all suffered, whether it's Whitman, who lost his job for 'Leaves of Grass,' or William Carlos Williams, who was called a communist, or Ginsberg, whose 'Howl' was prosecuted, or myself. If you practise poetry the way I think it needs to be done, you're going to put yourself in jeopardy.
+- A man is either free or he is not. There cannot be any apprenticeship for freedom.
+- My own thinking has evolved. You find Africanisms in American speech. You find an African influence on United States culture. There are all kinds of Africanisms in America, as you would expect, if you really thought about it... That whole thing is much broader; the influence is much broader than I first understood.
+- God has been replaced, as he has all over the West, with respectability and air conditioning.
+- Jimmy Baldwin was the creator of contemporary American speech even before Americans could dig that. He created it so we could speak to each other at unimaginable intensities of feeling, so we could make sense to each other at yet higher and higher tempos.
+- A rich man told me recently that a liberal is a man who tells other people what to do with their money.
+- You have to start with slavery because those abuses have never been eradicated. You know, people are not living in slums because they voted to. You know, their children are not in jail because they wanted them to. You know, these are the results of a people who have been oppressed and suffer national oppression, you know.
+- There will be, and should be, reams and reams of analysis, even praise, for our friend but also even larger measures of non-analysis and, certainly, condemnation for James Baldwin, the Negro writer.
+- Thought is more important than art. To revere art and have no understanding of the process that forces it into existence, is finally not even to understand what art is.
+- The poet is someone, I think, who's interested in registering experience immediately or giving you the sense of immediacy and directness.
+- It seems natural to me that as a writer, you should have some kind of, you know, there should be some kind of projection that you actually have influenced people who are closest to you.
+- I'm trying to make the poems as musical as I can - from the inception. So that whether they're read on the page, or people read them aloud, or I read them aloud, the musicality will be kind of a given.
+- My bohemianism consisted of not wanting to get involved with the stupid stuff that I thought people wanted you to get involved with... namely America... Dwight Eisenhower, McCarthyism and all those great things.
+- I guess I was the most unbohemian of all bohemians. My bohemianism consisted of not wanting to get involved with the stupid stuff that I thought people wanted you to get involved with - ... namely America... Dwight Eisenhower, McCarthyism and all those great things.
+- We should understand the impact that Malcolm had on the whole of American society.
+- America is as much a black country as a white one. The lives and destinies of the white American are bound up inextricably with those of the black American.
+- Alas, we have not yet the power to render completely sterile or make impossible the errors and lies which will merely be America being itself rather than its unconvincing promise.
+- Mao Zedong was a revolutionary. He made a revolution.
+- The black artist's role in America is to aid in the destruction of America as he knows it.
+- I had a little portable typewriter. I call it my Harlem Literary Fellowship.
+- Howard University shocked me into realizing how desperately sick the Negro could be, how he could be led into self-destruction, and how he would not realize that it was the society that had forced him into a great sickness.
+- I changed my name when we became aware of the African revolution and the whole question of our African roots.
+- You can't be an American without being related to other Americans.
+- I had just been in some repressive situations - the black middle-class college scene and the crazy United States Air Force - and so I just felt like getting out of that. I thought, now, that I wanted to be a writer. I had something that I wanted to do, that I was interested in doing, so I wanted to pursue that.
+- I met Malcolm the month before he was killed. He deeply changed my mind about America.
+- When I was saying, 'White people go to hell,' I never had trouble finding a publisher. But when I say, 'Black and white unite and fight, destroy capitalism,' then you suddenly become unreasonable.
+- To name something is to wait for it in the place you think it will pass.
+- Spike Lee is part of a retrograde movement in this country.
+- As a political artist, I think you have to learn how to create art, no matter what your ideology is.
+- There is other disturbing facts surround the hideous 911 attacks, which my family and I could see from the third floor bathroom window of our homes!
+- If the flag of an armed enemy of the U.S. is allowed to fly over government buildings, then it implies that slavery, or at least the threat of slavery, is sanctioned by that government and can still legally exist.
+- The man who buried Malcolm X - my Muslim imam, priest - he, after I got beat up by police... came to me, and he said, 'You don't need this American name.' And I was susceptible to it at the time because, God knows, I had just gotten whipped near to death. So he gave me an Arab name; he gave me the name Amir Barakat.
+- I'm fully conscious all the time that I'm an American Negro, because it's part of my life. But I also know that if I want to say, 'I see a bus full of people,' I don't have to say, 'I am a Negro seeing a bus full of people.'
+- I came to my Marxist view as a result of having struggled as a nationalist and found certain dead ends theoretically and ideologically, as far as nationalism was concerned, and had to reach out for a communist ideology.

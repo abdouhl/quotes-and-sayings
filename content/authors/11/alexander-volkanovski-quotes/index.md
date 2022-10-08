@@ -1,0 +1,106 @@
++++
+author = "Alexander Volkanovski"
+title = "Alexander Volkanovski Quotes"
+quotes_len = "100"
+description = "the best 100 Alexander Volkanovski Quotes"
++++
+- I was never planning on just making the UFC, I was always planning to be champion.
+- I'm going to stay champion for a long time.
+- One of my biggest fan bases is probably Macedonians, they always get behind me. They're always hitting me up on Facebook speaking Macedonian to me which I don't understand, so I get my dad to translate it for me.
+- Anyone that's watched my career knows that I finish fights and that I'm one scary dude to be in the cage with.
+- I'm actually comfortable a little bit out of range as well. I like to pick my times when to come in. I'm very comfortable in the pocket as well.
+- No one is really playing the good guy, but if they want to play the bad guy, I'm ready to play the super hero and take these guys out.
+- I played rugby league, I probably played for about 10 years I think, and I wrestled before then. I did about a year of wrestling, and I think I got a bit tired of the tights, so I started to play football with the mates. I used to be a front rower, the big guys up front. I used to be 97 kilograms, which is like 210 pounds, or something like that.
+- I'm the type of person, I'll fight whoever.
+- I just want to work my game and I believe I can do that.
+- This is a crazy sport.
+- I literally cringe every time I see someone trying to trash talk. Some people just don't have it and they try, and I find that funny.
+- You see what I can use in my range, even with tall people, imagine what I could do to someone half my size.
+- When it comes to strength, I reckon pound for pound I'm one of the strongest in the whole UFC.
+- I've obviously got the brains. I've got the cardio.
+- Styles make fights.
+- I've always been a respectful kind of guy.
+- I know I can go for days. I've proved this time and time again, against grinders.
+- It's always an unreal feeling to get the win, but to get it in the UFC - especially on my debut - it was amazing.
+- I had bad back injuries; two bulging discs and a broken fragment off a disc, all in my sciatic nerve.
+- I'm a freak when it comes to holding on the ground; it's just almost impossible holding me on the ground.
+- Nothing but respect to all the fighters that are in the UFC, but every single one of us wants to prove something. And you know, eventually, I want to prove myself in that lightweight division too.
+- As I get better competition, I guarantee that more finishes are gonna come, because I'll really get to use more of my skill, rather than me knowing that I'm so much better than the guy.
+- I ain't no easy fight for anyone.
+- I want to take on fighters like Jeremy Stephens, Andre Fili... get ourselves into the Octagon and see if these guys can bully me.
+- A lot of times we're being portrayed as thugs, but anyone who really knows us understand that we work hard, we diet hard, the commitment is full on. But alot of people don't see that. Some of the nicest and most respectful people I've ever met are in this sport. I truly believe that, and there's a lot of fighters that live by that.
+- I said as soon as I got the belt, I want number one contenders.
+- Ground and pound is my thing, everyone knows that.
+- One thing in this game is you've gotta stay positive.
+- This sport can be very unforgiving.
+- You know, people are always asking, 'What's your brand?' and, 'What are you all about?' Then you get other people saying, 'You need to do what Connor McGregor does.' But that's not me. That's not who I am. I'm not going to talk trash and build off the bad boy image.
+- I could be sparring mates and you're meant to hit 'em, but we'll be sparring and usually I try and stop at the face, or I don't really try and follow through, but sometimes they walk into them and I say 'oh sorry mate.' They get angry and say 'we're sparring get into it,' but I dunno, I think I'm so used to saying sorry.
+- I've always loved UFC. I watched it back since the days it wasn't big in Australia at all, and you had to watch a Blockbuster videos. They would always come like a year late, but I tried as many of the live ones I could or wait for the videos to come out. So, I've loved the sport for that long. I've always been into martial arts.
+- My surname Volkanovski comes from my father's side, so I have many Macedonian supporters and I really appreciate it.
+- I'm used to big boys. I train with big boys all the time.
+- I've pictured myself fighting a whole bunch of people. Not only the Max Holloway, but also Conor, Cejudo, Korean Zombie, even Khabib Nurmagomedov.
+- I'm going to be a great champion.
+- I'm always my hardest critic.
+- That's the thing, I've got so many ways to go, even striking there's so many ways to go. I proved that.
+- If I want to be the GOAT, I've got to take out No. 1 contenders.
+- People are going to give me the respect I deserve.
+- I won't say too much but Conor McGregor, he likes to set a lot of traps. But they're things I would never get caught up in. The guy isn't exactly known for his cardio either, so I'd crumble him. Make it look easy.
+- I just really like ground and pound. The way I do it, it looks like I'm just throwing bombs, but there's some technique to it too. I make sure I'm controlling the hips, palming his face to the ground, just little things like this that make sure that the ground and pound works and I'm not letting him tie me up to where I can't throw punches.
+- Actually, when I first started dropping weight to fight, my biggest worry was how my smaller body would look compared to the size of my massive head.
+- Khabib is one of the GOATs as well. Nothing but respect for the dude. But I'm very, very hard to hold down.
+- When I'm training; I'm prepared for anything.
+- Being in UFC is a great promotion for me because I have more fans from all over Australia.
+- Robert Whittaker has really opened eyes, look what he's doing.
+- I've had staph a few times myself and MRSA.
+- When it comes to power, we know I got power, and we know I can wrestle.
+- I like to stay active. I'm one of the champions chasing the contenders.
+- I know how to find my way into the takedown.
+- I've never been here to simply compete.
+- I wrestled before rugby league so I always had a pretty good wrestling background, a good base, and that helped with my football. It just meant my balance was always so good; a strong core, good hips and just things like that just really played a factor in how I ran the ball and tackled.
+- I'm an easy champion to understand.
+- When it comes to pace, we know that I don't have a problem.
+- I've been on magazines in Macedonia and all things like that.
+- Max is a true champion. I enjoy watching him fight but I want to get that fight. I want it.
+- If there's one thing I'd say to anyone out there, is that if you're in this game, it's a rollercoaster. There's a lot of ups and downs.
+- No beating around the bush. Give me the guys that are next in line, the guys that deserve it, and let's go.
+- Everyone knows my style - I jam my hips in, jam their head into the mat and punch their head through the canvas.
+- I train with whoever I can, all different sizes, shapes, and styles.
+- My father is from the village of Beranci, Macedonia, and my mother is from Greece.
+- My last year of football I started having a couple of MMA fights, and bringing the weight down. It started in the pre-season of football, just to keep fit, and I did really well.
+- I don't want to be known as a guy who's gonna get decisions.
+- I didn't think I could make the NRL, but I was confident in myself that I could make the UFC.
+- My right-hand hit is my favourite.
+- When it comes to cardio, we know I don't have a problem.
+- Sometimes there's just no room for apologies.
+- I believe I'm a similar style to Khabib when it comes to the ground and stuff, but I believe I've got a whole 'nother, higher level of striking.
+- It's one of the things that I tend to do, make the right decision, right time, and get the right reactions and capitalize on it.
+- My dad's Macedonian, mum Greek... so for as long as I can remember, my uncles have talked about our warrior blood.
+- I'm smart, I'm fast, and I hit hard.
+- I want these ranked opponents.
+- You know, martial arts is all about respect and discipline and it's always been about that. But again, people are starting to forget that, people are missing that, and this is where I believe I can help and it's good for our sport.
+- It's definitely tough when people don't believe in you. Actually, that's wrong. It's not that they don't believe in you. They just care. A lot.
+- Even just my basics are so effective against a guy like Max Holloway.
+- I pride myself on being a family man. I pride myself on being respectful and hardworking. That's just me.
+- I've always been a sort of goer.
+- I used to wrestle when I was younger. It was soccer, wrestling, rugby league and now MMA.
+- When Elkins came forward I was absolutely ecstatic. It's a massive fight. Realistically he doesn't need to take this fight, but he did - good on him. I've got a lot of respect for him, but I think this is a very dangerous fight for him. Again, he's a grinder, he wears people down, but I don't wear out, especially when I'm in good condition.
+- I always prepare for the worst.
+- With all my fights, my style is to pretty much put a beating on. I don't exactly like hurting people, but unfortunately that's what we need to do in this game to win.
+- You know I am all about the good guys, but sometimes we get put to the back of the line because we are too nice.
+- I used to play in the front row, I could eat whatever I want - but I got up to 97 kilograms. And let's remember I'm five foot bloody nothing!
+- I ain't scared of nobody.
+- I'll be honest when I tell you, Max Holloway is the hardest matchup out of everyone in our division. By far. And I was happy to take him back to back.
+- I'm like one of those little chihuahua's that thinks they're ten feet tall.
+- I've already took out the hardest guys in my division. Back to back we've got Chad Mendes, Aldo, and Max. Stylistically, they were the three hardest fights.
+- Fighters now, they think you have to trash talk to be marketable. Yet so much of what they're saying, it bores me.
+- I've got all the tools to make it hard for anyone, especially someone that's a division lower than me.
+- I'm chasing my contenders. I'm talking about that GOAT status.
+- I want to fight on home soil in Perth.
+- Some people fight and stuff outside the cage, but I never liked that sort of thing. I just always wanted to do martial arts and I finally did it at 22 years old, so later in life, but it's all good.
+- There are no excuses in fighting. You can be playing a team sport and have a good game, and you can lose. In fighting, it's all on me. If I go out there and lose, then it's my fault. I like that.
+- I made promises to myself and my family that I'd be in the UFC before my first daughter was born, that didn't happen. I was almost at breaking point a week before I got that contract, I was going to go back to concreting - that weekend I get my major sponsor, which was huge, and I end up getting my UFC contract the weekend after that.
+- My first four fights in amateur at middleweight, and the first four professional were at welterweight. And I just kind of went down from there.
+- I like to throw bombs.
+- I fought Chad Mendes to make sure I was in the top five.
+- Playing league, I was always a chunky ball. And my head, it was huge, too.
+- I think a knockout over Elkins will really put me on the radar internationally.

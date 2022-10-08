@@ -1,0 +1,25 @@
++++
+author = "Thia Megia"
+title = "Thia Megia Quotes"
+quotes_len = "19"
+description = "the best 19 Thia Megia Quotes"
++++
+- I feel most comfortable keeping versatile when it comes to music genres.
+- I would love to meet Kelly Clarkson and if I get the chance to I would tell her thank you so much for the inspiration.
+- In the future, I see me as being my own artist and definitely not a ballad singer!
+- Just knowing that through my music I actually inspire people is amazing for me and I find it very heartwarming.
+- If my life were a song it'd be called 'Here I Am' because here I am - I mean, I'm Thia and I'm here to me me, I'm here to express myself musically which I find is the best way to express myself.
+- I am very excited about the future.
+- I try to reach out to my idols.
+- Feeling emotionally connected to a song, and accumulating every bit of the moment's energy to sing out to the audience is what I believe makes a great performer.
+- Singing is my passion and I always wanted to travel the country.
+- The type of music that I love to sing would have to be more bluesy and jazzy and more soul-like 'cause I love to belt when it comes to singing, so I guess bigger songs are what I lean more towards.
+- I just like to think rather than talk. But I enjoy everyone's company.
+- When I found out I was in the top 13 I was freaking out and crying it was such a joyous moment for me.
+- I want to put my vibe and my feel of music into an album and have people from different places around the world feel that and hear that.
+- Once I'm on stage, the energy of the crowd wipes my nerves away.
+- The best thing about being on tour is meeting the fans.
+- I prefer to sing in the shower 'cause the acoustics are really, really good, I mean, when you're singing against the tile walls then you really hear yourself, hear your voice, you know, throwing itself back at you.
+- Describing the person I am would best be through music. When I'm up on stage and I'm singing my heart out, I am always reminded of life's best things.
+- I have many musical inspirations, but I would really love to just be me. My very own artist.
+- I get nervous every time, for every single performance, before getting up on that stage.

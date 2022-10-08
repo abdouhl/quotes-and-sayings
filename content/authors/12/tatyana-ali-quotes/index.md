@@ -1,0 +1,19 @@
++++
+author = "Tatyana Ali"
+title = "Tatyana Ali Quotes"
+quotes_len = "13"
+description = "the best 13 Tatyana Ali Quotes"
++++
+- I never set out to be a role model, but I guess parents like it because I am dedicated to school.
+- Combine that with the fact that we only had one week to get everything taken care of and to get to know one another, whereas most shows get two weeks. It looked like we would never have a chance.
+- I even lived on campus to get the college experience. I had five roommates and I still keep in touch with them while I'm on the road.
+- I'm doing a play, a musical. The musical follows the Mamma Mia concept. It's my first LA theater project.
+- Is America truly a democracy? Has America ever been a democracy with the institution of slavery?
+- I had short hair for a while, but I ended up loving it.
+- I was only 11 when we filmed the pilot. The idea of a rapper being a star on a sitcom just wasn't heard of.
+- I'm going to go to school. It doesn't matter what the outcome is as long as I did it. I can say I did it.
+- Before high school ended, I started applying to college. It really wasn't even a choice because of the brainwashing of my parents.
+- Will Smith said if I ever need some help, he was there for me.
+- Videos are more like photography. It's not as much about trying to tell a story as it is creating images.
+- Working with Bill Cosby was incredible. I was lucky to be a part of that.
+- Being on Disney, a lot of young people look up to me.

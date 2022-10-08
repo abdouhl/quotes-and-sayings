@@ -1,0 +1,19 @@
++++
+author = "Max Hastings"
+title = "Max Hastings Quotes"
+quotes_len = "13"
+description = "the best 13 Max Hastings Quotes"
++++
+- A Tory government with a decent mandate seems the only hope of tackling the fiscal catastrophe responsibly.
+- When I am fishing, I think quite a lot about the fish, but I also think about the book I'm writing.
+- I'm a passionate monarchist.
+- Lots of us when we're children believe 'oh well, if the world knew us as we really are, they'd know what wonderful, clever, brilliant, charming people we really are.'
+- I'm a wet liberal really, and always have been. But I'm sort of an aggressive wet liberal.
+- We're taking part in a divine comedy and we should realise that the play is always a comedy, in that we're all ultimately ridiculous.
+- I would be miserable if I went to bed without having written 1,000 words about something.
+- There was no doubt that in the early and mid-eighties that many of us in broadsheet newspapers felt that we still had a responsibility to try to protect the Royal Family or if you like protect the Monarchy from the assaults of the media.
+- I've always found women more loyal, more disciplined, less neurotic, more hardworking. I just think they're perfect colleagues. Whereas, God knows, I've dealt with plenty of neurotic men.
+- People who get on at school are the ones who play by the rules, and no one's going to get far in later life playing by the system.
+- I would have been a disastrous soldier.
+- It was always inevitable that if you get serious trouble in any family then everybody's inclined to look at the head of that family and see if they see any cause or reason to associate it with the head of the, head of the family, why it should be.
+- It's miraculous how much easier the computer has made my sort of work.

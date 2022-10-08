@@ -1,0 +1,110 @@
++++
+author = "Jennifer Coolidge"
+title = "Jennifer Coolidge Quotes"
+quotes_len = "104"
+description = "the best 104 Jennifer Coolidge Quotes"
++++
+- I do shows, stage shows all the time, and I'm so afraid that people are going to recognize themselves, and they never do. They never do. They're always like, 'Oh, that woman was ridiculous,' and yeah, they're talking about themselves.
+- I went out with seven actors in a row. There are problems with that. I've had the really good-looking dramatic actor, and that has its problems. And then I'll go out with the funny guy. It's almost like the funny guy has more to prove.
+- Short of spending $10,000, there is nothing you can do to your head to hide the fact that you're going bald.
+- I love Australia, and I especially love those rugby players.
+- When I go on 'The View,' or any of those talk shows, you really don't get to say what you want to say.
+- Gina Gershon was a year ahead of me in college.
+- Cate Blanchett and others, they get this broad range of all these cool people they can play. Some women really do get it all. For me, it is the same thing that happens over and over. I should change that and maybe write my own thing.
+- When it's going well, stand-up is the best thing in the world, but when it's not, it feels like all your toes are being pulled off one by one.
+- A man's ability to haggle is never a turn-on. The only thing less romantic than how much you paid is how much you saved. The last thing we want to hear is how you talked the jeweler down on our new earrings.
+- Werner Herzog, when I auditioned for 'Bad Lieutenant,' he had never seen any of my films. He thought I was this actress living in New Orleans and it was my first job.
+- I'm kind of harsher than most people.
+- There's something about me that suggests I don't have an intelligent atom in me at all. So people say things to me that they wouldn't say to other people. Insulting, condescending things. They don't think I notice. But, of course, I'm taking it all in.
+- I wasn't allowed to watch regular television when I was growing up, only PBS, so I watched 'Masterpiece Theatre' and a lot of Jane Austen. I loved stories where the girl is attracted to a man and it looks like it's not going to work out.
+- When I walk into a video arcade filled with 16- or 17-year-old boys, I may as well be Marilyn Monroe.
+- I think I get credit for my timing because most of the time, I really have no idea where I'm going with it.
+- I was like a waitress that got a job once in a while, and then Stifler's mom happened, and everything changed.
+- I always feel in movies, I don't know if it's because I'm jaded, but I always feel like we don't go far enough.
+- The standup thing has been really fun, really seeing the United States instead of reading about it.
+- I've been many people. I've been the skinny girl. I've been the fat girl. Because I've become a character actress, I sort of fell victim to 'Well, I don't have to look good anymore.'
+- I'm so lucky I got a career in my 30s because these young girls aren't allowed to have their 20s. It's all being documented.
+- The British boys really, really go nuts... to them, an older woman is sexy, and it's an incredible fantasy... I think the American fantasy is still about men wanting control. Maybe American men don't feel as in control of their lives.
+- I don't know what I am. I guess you can call me a character actor in the sense that I'll never be an ingenue. You know, that's over. My shot was missed. I take a normal person and make them more of a character. I don't know what that would be called.
+- When people slave over those scripts and pay hundreds of thousands of dollars for them, they don't usually want you to add farts.
+- I play so many weirdos in movies that it's nice to play an attractive woman.
+- I live in New Orleans part of the year, and it's a really fun eating town. I bought two homes there, one to live in and one as an investment. They love to eat, drink and dress up in costumes. There are so many reasons to dress up - Mardi Gras, Halloween, Southern Decadence.
+- I do love to gamble; I hate to admit it.
+- It's a great compliment when the beautiful ones laugh.
+- People have this view, 'Oh, you're in movies, your life is so glamorous' but it can really suck.
+- I love that topic, the whole relationship thing, and I think that's why I love all this stuff, the Jane Austen stuff.
+- I get the gold-digger part six times weekly. I can play those women into the ground, but I don't want someone telling me that's all I can do.
+- If you're playing a character that someone doesn't like, that's okay, but if you're voicing your own opinions, they actually don't like you!
+- I hate Spanx.
+- Younger guy are attracted to a strong quality.
+- Hugh Grant has that magic in real life, so when he's saying these lines, 'It's always been you,' it's just devastating.
+- Hair extensions and wigs are not the same thing. Wigs are for old ladies and drag queens. Extensions are for women who want longer hair. To be safe, never bring it up if you think a woman is wearing either. No good comes of it.
+- I was thinking, 'If I go bald, I might do something like Bret Michaels and have it all attached to a handkerchief.'
+- I read a script and I know immediately whether that role is for me or not.
+- I always get excited when I find out there's a sequel, because all the work is kind of done.
+- As a single woman, I reap the benefits of being Stifler's mom.
+- If I wasn't an actress and I wasn't Stifler's mom, my life would be so dull.
+- I've made a career of taking roles that other actresses didn't want.
+- When you're an actress, there are only a few times you can really get paid. One of them is doing a sequel. They can't fake you or hire another actor to play you.
+- I wasn't funny. My brother was the funny one in the family.
+- I was the cocktail waitress, and Sandra Bullock was the host, and this guy came in and persuaded me to try improv with Gotham City Improv.
+- I always date younger men. For some reason that's just the way it's gone, because younger guys have always asked me out and I accept.
+- As young, hot actors living in Hollywood, you get even more attractive.
+- I always like to get a role where I think, 'Ah, I know this is probably going to be played like this, but I'm going to do it like this.'
+- I wanted to be a dramatic actress. Life doesn't go the way you think it's going to go.
+- Stand-up is a weird animal. There are people who really want to know what you think about things, your opinion on life. But then there are people who think you're just that beautician in 'Legally Blonde,' who doesn't have opinions on anything. Or that I'm Stifler's mom and hot for it all the time.
+- I have a storage unit, as I moved out of a bigger house into a smaller house in L.A. I put all my stuff in a storage unit, where I have the most amazing collection of bad paintings, which took me 10 years to put together.
+- I'm so vain, all I could think was I should have stopped at 'American Pie.'
+- I know what I am capable of. I read a character, and if I can say to myself, 'I know this woman,' then I take the role.
+- I have the improv background, but stand-up is different.
+- Las Vegas honors women - Celine Dion, Bette Midler, Britney Spears. I love that Las Vegas celebrates women.
+- A lot of those good-looking girl parts aren't very fun.
+- I don't think men really fall in love with the outspoken girl.
+- Girls are supposed to be feminine and demure. Comedy isn't about that, so you just have to unlearn it. Certain women are so pretty, they can't go weird enough to be funny. You have to be willing to be ugly. I'm lucky my face can look so hideous.
+- I figured New York was the closest I'd get here in America to Scotland.
+- The minute I started doing comedy, the doors opened.
+- I'm not a prude.
+- I dated a guy who played bad guys in movies all the time, and I think he was just a bad guy.
+- There is something about a phony that creeps me out so much.
+- It seems almost impossible to me that the whole world doesn't know CPR.
+- The best thing about animated-feature people is that they are very laid-back people. You feel like you're showing up for a backyard barbecue.
+- Standup is just dirtier, a far more risque kind of thing.
+- Thank God for Stifler's mom. I don't know if life would be this fun if I didn't have that.
+- You get the older version of women that you've played before.
+- When you're on this major English estate, breathing in the English air, and it's untouched, you can feel its presence. It's a whole different feel. It really felt like we were there living it. It didn't feel modern, ever.
+- Usually, when you're an actress, you have to audition 20 times.
+- I don't actually go on the Internet that much.
+- All the guys that entered The Groundlings, like Will Ferrell, already had incredible confidence, but I watched shut down women that didn't even have a personality completely become different human beings because of the training.
+- With Christopher Guest films, we have a lot of say.
+- It was always the cliche of men leaving their wives for younger women. The playing field is sort of even now. Women make their own salaries. They can do the exact same thing and can have a younger man.
+- Some people are really nice about it. I get Saudi princes and famous people stopping me in L.A. and saying, 'You're Stifler's mom. Can I take a picture with you?' But then you get people like her putting their camera in your face without asking. They think they can do whatever they like.
+- The one thing that has helped sustain my career as an actress and a comedian is that people generally view me as fundamentally stupid.
+- Dating is... weird.
+- Meryl Streep was my hero. I wanted to be that type of actor more than anything.
+- Keri Russell is one of the prettiest girls I've ever seen in my life. She's one of those girls that doesn't have that thing when you walk into the trailer in the morning, and your face is all bashed in - like a lot of actors, even the beautiful and handsome ones.
+- When you leave L.A. and go to another city, guys are normal again. They like girls their own age.
+- I can't get the serious roles. People don't see me that way.
+- I have been able to sniff out a phony.
+- I always find the most depressing stuff most interesting.
+- I do have to say, there is this incredible benefit to being older. I never thought I'd say that. I've figured out that show business isn't the end-all. I thought I'd never be tired of Hollywood, of the experience, and I have to say there's some relief. As you get older, your taste changes.
+- I am allergic to a certain kind of glue. Most eyelash glues are terrible, the glue in acrylic nails. I get a rash up my arm and face.
+- Our secret desire as women is to have a guy who falls madly in love with us even though we're incredibly opinionated or we're not the sort of normal, polite, poised woman.
+- I wasn't very good in my serious acting class. Sometimes people took our class so seriously, so I used to, sort of, make fun of people after class. And so a friend of mine said, 'Why don't you do the comedy thing.' That's how it all worked out.
+- A boyfriend has so much to do with a woman blossoming.
+- It's really hard for me to meet someone. I don't want to date actors. Been there, done that. Only one actor per household, please.
+- Physically, no one would ever consider me for the serial-killer lady.
+- Unless you write your own movies... you can't really say what you want to say.
+- I think I'm comedy-attractive, but it's never gonna be me and Charlize Theron up there.
+- 'Best in Show' legitimized me, and it was a great experience in Vancouver for six weeks with all those dogs!
+- No one purposefully paints a bad painting. It's someone who's trying to do a good painting, but it's terrible. I have one with a matador, and the bull is going through the blanket. You can tell the painter didn't know how to paint it.
+- I don't think my career would be as good if I were a serious actress. Comedy is less age-conscious.
+- I would say 90 percent of the scripts that show up on my door are women who have had lots of plastic surgery that are married to rich men - sort of a trophy wife.
+- There are some people who make you feel less lonely.
+- I always fall for the guy that, like, has to blow me off because he needs to go do something with his dog. I love those kind of guys.
+- I've played a lot of weird women. I play crazy ladies, and I've played a lot of insane women and weird best friends that are not sexually desirable.
+- The odd things that people say to you are so much more hilarious than what you can come up with.
+- I kind of waited for opportunities to be handed to me. I think I was lazy, and when things didn't go right, I just said, 'Oh well.'
+- If things don't work out with one person, there's many other people to replace you with online.
+- I always remember this neighbor who would ask me to babysit for her. She looked like Jayne Mansfield, and I remember babysitting for, like, five hours and she would pay me 80 cents, with a phony smile. I used to go home fuming to my mum.
+- To be honest, sometimes I'm horrified because you don't really know what you look like. If I really knew what I was doing on-screen, I would try to stop doing it.
+- It ends up being a terrible movie if you try and please everyone.

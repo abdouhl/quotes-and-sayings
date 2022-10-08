@@ -1,0 +1,38 @@
++++
+author = "Method Man"
+title = "Method Man Quotes"
+quotes_len = "32"
+description = "the best 32 Method Man Quotes"
++++
+- I'm an entertainer, so in whatever form I entertain... The thing about being a rapper is that you have more control over your form, whereas with acting you have to compromise a lot.
+- After a while, you can't get any higher. It's like your head is in a wind tunnel - everything is vibrating.
+- I'm a rapper trying to be an actor.
+- I'm a peaceful dude.
+- When the ball dropped in 1999, I was holding dough and champagne in my hands and holding my kids.
+- Now we just showin' and provin' that there's a ghetto everywhere you go.
+- I'd have a sex scene with Whoopi Goldberg or Star Jones.
+- Regardless of how me or this man right here or anybody else in this business get, when we walk on an airplane in first-class looking like this, we're gonna get searched.
+- One girl who stands out was this Miami stripper. She still lives with her mother and father, and they know she strips. They call her by her stripper name, Freaky Red.
+- I'm in between homes right now, but my last house was dope.
+- There's probably a bunch of Power Stripe floating through the Def Jam offices right now.
+- We smoked a lot of cloves.
+- Yeah, the next Wu album should be out by late '95.
+- I still gotta reacquaint myself with the hip-hop audience.
+- So to make those checks better, I used to steal lollipops and sell them at school - but I got caught.
+- It's been so long since I was in a real fight.
+- We just wanna see where we stand at right now with our fans.
+- The most I've smoked in a day was over an ounce, in Germany.
+- How many gangsters you know, from Al Capone up to John Gotti, been gay?
+- People know when you're frontin'.
+- I want to do a documentary about strippers, 'cause it's a moneymaker.
+- I hate mean people. People who just pick at you and try to force you into a train wreck.
+- Since I was eight years old. I didn't have a TV, so comic books were definitely my television, my soap operas, and all that.
+- I wanna sit behind the scenes and see nothin' but the greens.
+- I don't think any gay dude is gangsta, period.
+- Rap is a gimmick, but I'm for the hip-hop, the culture.
+- I have 15,000 comics in a warehouse, all bagged individually.
+- I've got more creative control when I do music.
+- I'm serious; I don't, I don't rap. I flow; I'm a flow-er. You've got rappers, you got MCs, and then you got flow-ers, I'm a flow-er.
+- Somebody wrote a script around us, but Dustin Abraham came with the best one.
+- No matter where you from, there's ghettos all over the place.
+- Yeah I'm telling real stories, but if you pick up a documentary on strippers, you're going to want to see some stripping, so we definitely got that in there.

@@ -1,0 +1,35 @@
++++
+author = "Miguel Sapochnik"
+title = "Miguel Sapochnik Quotes"
+quotes_len = "29"
+description = "the best 29 Miguel Sapochnik Quotes"
++++
+- Sometimes you fixate on something so much that everything else fades away.
+- Each creative choice you make has 'x' many impacts on budgetary choices, which in turn have 'y' many impacts on your subsequent creative choices. They feed each other.
+- I had this total obsession that I would have my first movie at the Empire when I was 24, so it was a big disappointment that it didn't happen.
+- Once you have a blueprint down, you start talking to all the other heads of department to see if and how they can help to execute what you've imagined, and so things change and evolve. And then you have to make it work within the budget and time frame, so things change even more.
+- Sci-fi's great, but you don't have to hit people over the head with it when you're making a social comment. It just inherently exists within the fabric of the story.
+- Piano is unique in that way: it can be both percussive and haunting.
+- I think it's my job to fight. The studio makes you question your idea, and you have to prove it.
+- I think that being a Wildling is essentially about surviving the cold, and in that department, the extras on our shoot excelled and needed no help from us.
+- I really, really liked shooting and doing the scene with Emilia Clarke and Peter Dinklage at the end of 'Winds of Winter,' when she gives him the Hand of the Queen. Because we shot it very simply. We felt like we had managed to do something that was visual but really was a very intimate scene between two people.
+- Whatever project I sign up for, I try to familiarize myself with the material as much as possible before I start.
+- Making movies is all about compromise, negotiation, and sacrifice, but the process helps you distill what's really important to you, and once you have identified what those these things are for any particular sequence, you hold onto them and don't let them go.
+- Buenos Aires is an incredibly kind of fragrant city, a beautiful city to look at, and it has the old and the new.
+- I try to just focus on what feels right to me when I am conceiving it, conceptualizing, designing, etc. and then talk it through with the team and listen to what they have to say. This kind of thing is a team effort, and working with a great team is the most important part of filmmaking for me.
+- When I was coming onto 'Thrones,' I was looking for, 'What's the formula here?' There was a very David Lean kind of approach to it. It was traditional, in a way, and it was naturalistic in some respects, even though it was fantasy.
+- Sci-fi works for me as a way of getting across a social conceit couched as entertainment. Social realist movies lost their way because they are just not that entertaining.
+- One of my biggest fears as a director is that everything is taking too long on camera. The actor saying their lines, the silence between lines, the length of time it takes to walk from A to B. So you try it at different speeds and then see what sticks in the edit room.
+- While most episodes have a beginning, middle, and an ending, finales on 'Game of Thrones' are just one ending after another after another, as each of the storylines needs to wrapped up or at least attended to in some way.
+- In a nutshell, directing 'The Gift' was all about understanding how the complex machine that is 'Game of Thrones' works.
+- Getting a bunch of horses to just stand there all day and do nothing is much harder than getting them to run around.
+- I love the humor of 'Monty Python.' I always remember being so impressed by how violent 'Monty Python' are, actually, when you look at what they do. Terry Gilliam has a great way of kind of proposing violence.
+- I've learned more about directing from five years of television than I could have in ten years of film.
+- I have a tendency to feel a bit embarrassed when approached, but it's such a thrill to know that you did something that people enjoyed so much. It's an even bigger thrill when they talk to you about ideas that you worked so hard to get in there, and they single them out as reasons they enjoyed it so much.
+- Music is my second love.
+- The shift for me, after spending a long time trying to take existing projects and bring them to fruition as a director for hire, is going back to where I started as a self-generating director. After trying and failing to get so many things made, I have decided that you've just got to do something you really, really love.
+- I think that as television is evolving, the line between TV and film is becoming more and more blurred. This is both a good and bad thing.
+- I must admit, I don't try to put my stamp on anything; it just happens. I don't really know how to think another way.
+- I realized I loved working in television as well as film. Besides, if I hadn't been forced to look for work in TV, I'd never have gotten to work on 'Game of Thrones.'
+- When you're younger, you want to project an image of yourself through your work, but now, I just want to make something honest.
+- I try to approach all episodic work the same. No matter the content. I look for a dramatic or emotional spine to the story I'm telling, something that stands out to me thematically about the episode and its relationship to the rest of the season/series.

@@ -1,0 +1,39 @@
++++
+author = "James Wolfensohn"
+title = "James Wolfensohn Quotes"
+quotes_len = "33"
+description = "the best 33 James Wolfensohn Quotes"
++++
+- If you enter the World Bank office in Washington, D.C., you will see written on the left wall, 'The purpose of the World Bank is to fight poverty with passion.' I had it put up there because I wanted something that unites us as an institution.
+- So the first thing you need to do about conflict is to prevent it, and the best way of preventing it is by dealing with the question of poverty.
+- The poor people of the world tend to be the places that al-Qaeda and other terrorist groups can recruit.
+- If you have Palestinians who have no hope, who don't have a job, who've used up all their resources, the notion of getting rid of violence is a dream.
+- Many people of my generation grew up in developed countries thinking that the world was divided into two parts and that there was a wall round the developed world. They thought that poor people had no relevance to us. What happened on September 11 was that anybody who thought there was a wall now knows that there is no wall.
+- Most people recognize that to create jobs is really the essential element in their drive against poverty.
+- You can't wish away poverty overnight.
+- You don't succeed on corruption in five minutes. I wish one could.
+- I think that so-called capitalism and trade is a very important element in giving people opportunity.
+- When I travel, I make certain that I spend at least half of my time in the field. You have to get out to meet people that are in poverty, that are looking to improve their lives. That's something that you can't read in books.
+- My observation on most people in national governments is that they have very little interest in and very little knowledge of the multinational institutions.
+- My view is to try and not demonize the Palestinians. I'm not denying that there are Palestinians who fire rockets and do terrible things; I know that that happens. But to get a fundamental solution, you have to have hope on both sides.
+- But when someone is on a winning horse, and everything looks wonderful, it's very hard as an outsider to persuade them something is wrong.
+- I saw it with my own eyes: Israelis and Palestinians, arm in arm, walking off together and clearly pricing how you could get your truck to the top of the line or get it through at all. It was an absolutely transparently corrupt system at the border - you had to buy your truck's way across. I thought it was a disgrace.
+- Rebuilding Afghanistan is not going to be solved by pouring billions in. Getting rid of the Taliban does not rid us of the problems of fundamentalism and instability.
+- The only way really to influence countries, in terms of poverty, is to get them to change their policies and get them to understand what the issues are.
+- In a democracy, you can be right and still lose power.
+- It's probably conventional wisdom now that you bring openness of markets only after the market has developed to a certain level.
+- Well the specific role of the World Bank is to be ready with financial assistance immediately after this emergency takes place because you need to reconnect water, you need to reconnect power, you need roads, you need bridges, and that has to be done urgently.
+- You can't compete globally unless you have appropriate communication skills.
+- You need to have a secure Israel, which is very clear, and you need to have a Palestinian community that feels it can have hope.
+- I was deeply concerned then, and have become more concerned since, that unless we can deal with the questions of development and the questions of poverty, there's no way that we're going to have a peaceful world for our children.
+- I believe and still believe that the Chinese government puts great weight on the experience of the Bank in terms of development.
+- I'm not at all sure that Israel can determine what happens in Palestine, the Palestinian territories.
+- As you look at the flow of Muslim fundamentalism, or fundamentalism in various areas and various religions, they all play on the people who have very little.
+- I have travelled in the country enough to know that the concerns of villages in Rajasthan will be very different from the issues in the villages of Tamil Nadu. Anybody who makes a general remark about India probably doesn't know India.
+- The interesting thing about debt in most cases is that you have to pay it back. So if you build an overhang of debt, it becomes more and more limiting in terms of the prospect that you have.
+- It is possible to have a public education system that works.
+- We have made a full frontal attack on corruption. The question is whether we can address the question of governance in developing countries and, particularly, corruption.
+- The Bank had never used the word 'corruption' at all until I got there, and the reason for that was, as the general counsel pointed out to me, that quite a number of our shareholders represented were not immune from corruption in their governments.
+- We have three billion people, half the world's population today, living on less than two dollars a day.
+- The notion of the world as a village is becoming a reality.
+- China never borrowed less than $3 billion a year during my tenure. They were the most significant client. They used the Bank not just for money but for the know-how.

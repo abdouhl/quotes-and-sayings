@@ -1,0 +1,64 @@
++++
+author = "Neeti Mohan"
+title = "Neeti Mohan Quotes"
+quotes_len = "58"
+description = "the best 58 Neeti Mohan Quotes"
++++
+- You can never be completely satisfied with your work.
+- I had always wanted to write a song on my mother and also mothers generally.
+- I travel around the world with unknown people, but never feel scared. It's because I am from Delhi.
+- I think travelling teaches you that there is a change which is constant and you have to develop an adaptive nature to be part of this celebration and to be a part of this journey called life. It gives a great understanding of people and their culture.
+- I still believe that the voice as well as the body express a song together - that's my philosophy of performing a song.
+- Everyone has to work hard, there is no short-cut. If you keep working hard there are a lot of musicians on a lookout for new voices.
+- Knee-length dresses are a fetish. They can be in different materials or lengths, but they work just right for me.
+- Nothing happens overnight for anyone. To become a skilled, accomplished artiste, you need time to work on yourself first.
+- I quite often listen to Internet radio; especially the RnB section if I am jumpy.
+- I sing for the joy of music... when I go back home with the satisfaction that today I recorded a good song or the whole crowd was singing along with me when I performed on stage.
+- Hyderabad's quite a familiar place to me! One of my best friends stays here in Jubilee Hills. Her house was where I used to crash after a long day.
+- I just want to grow as a musician. that's why I do different languages.
+- I came from a reality show and my whole family including my sisters Shakti and Mukti Mohan have achieved fame through reality shows.
+- My problem starts when I see that in a situation when the girl is telling her feeling, say crying or laughing, the song is sung by a male singer.
+- I love my peace and quiet. I love to be with my family.
+- You can never really ignore negative comments. There will always be some comments that will hurt you.
+- Growing up with three younger sisters had many perks. I would choreograph their moves to Madhuri Dixit songs.
+- Visiting Iskcon is a practice for my parents where I observed people involved in dance and music. It left a huge impact on me.
+- I mostly travel on weekends, so weekdays end up being my break days. At home, I'm super lazy. I eat, sleep, watch a movie and chill with my dog, Frodo.
+- I'm glad I've been offered songs from various genres, but I love singing melodies the most.
+- I travel a lot. So my clothes are from all over the world. I pick up something from every place I visit.
+- You have to be gifted to begin with, of course, but what follows is a process that takes a very long time. You train, you listen, you travel, you follow artistes... all of it goes into making you who you are as a performing artiste.
+- It depends on my mood but classical music is what I am drawn towards. I also listen to Sufi music and bhajans too.
+- People in the music industry are very professional and helpful. I really felt encouraged at every point because I met good people and got inspiration from them.
+- Not to sound arrogant but I've worked with everyone I've always wanted to work with.
+- Our house was like a girls' boarding school. We were always fighting for each other's clothes.
+- When I perform in north India, I have a set of songs, and when I am in the south, I tend to prepare a playlist of Tamil songs along with Bollywood numbers. As a performer, I feel the pulse of the people!
+- I used to do musicals in college, where I would sing, act and dance.
+- I was president of the choreography society.
+- I don't think I was ever cut out for a 9 to 5 white collared profession.
+- I have been one of the fortunate people to work with A R Rahman in a film and also many stage shows. It is always a pleasure.
+- My problem starts when I see that in a situation when the girl is telling her feeling, say crying or laughing, the song is sung by a male singer. Why?
+- I am thankful to my parents for letting me pursue music as a career. No one in my family is a musician, so when I won a music reality show a decade ago, it was a breakthrough for me.
+- Given a choice, I'd love to shift to Chennai!
+- In my song 'First Class' from the film 'Kalank', I was okay with the shorter part in the duet because it was to praise the man.
+- I'm sure that in my last birth, I lived in Chennai because I feel a strong connection with the place and people - because of the music and love I receive here.
+- When I was a child, the idea of coming to Mumbai and becoming a singer was a far-fetched one.
+- Europe's sense of fashion is too high-end and posh for my liking.
+- My mother used to cook a special brunch for us on Sundays. We used to eat together and watch a film after that.
+- The composers know what they want from you. So as a vocalist you have got to trust them and surrender yourself to their vision.
+- I have sung many songs in Tamil and have been nominated for Filmfare Tamil this year for Neeyum Naanum for Naanum Rowdy Dhaan.
+- I want to celebrate and salute motherhood.
+- Having studied in a girls school, I was always surrounded by women, all of who were strong-willed and came from army backgrounds, that played a very important role in my life.
+- Sometimes I get lazy, I want to get rid of that.
+- I used to love Govinda songs and now I am embarrassed about it. I don't understand why thought because even now people dance to his music. I think they are still fun.
+- I played volleyball and basketball and would also take part in dramatics.
+- When we heard that actor Tom Hanks and his wife Rita Wilson, who were also in Australia, had contracted coronavirus, it was alarming.
+- I'm just drawn towards music. That's where 99 per cent of my world is. Acting is interesting, but I just don't have the time for it.
+- Be it while recording a song or singing to a live audience, I still get nervous. I feel that is very important. This is what makes me perform well.
+- I'm in touch with musicians Jake Morley, Lewis Watson and Olivia Broadfield, who are extremely talented.
+- It is great to be married. It's even better when your life partner and the new family are supportive of your profession. I love being married.
+- All of us, including me, can work on our skills. Music is such a huge ocean, you can never feel that you know everything. There will always be something that you can learn.
+- I never wear heavy animal prints, because I feel sad for the animals. They look majestic with their striped or printed hide and fur, and when people wear the same, they look horrible and out of place.
+- Feminism for me is the freedom to choose, to live the way a woman wants to and to make this world a better place.
+- We are four sisters and when we joined the industry we were outsiders and we did not know anyone in the industry. However, singing was something that I loved doing since my childhood.
+- Though I used to do a lot of stage shows in my childhood and college, but never thought that it would turn into a career. I had no connection with Bollywood.
+- I keep myself open to singing in different genres like classical dance songs, light classical folk, etc. There's so much to learn and I'm glad I'm on the right path.
+- When I was in school, I would participate in almost every possible competition. I also went on to represent my school and college.

@@ -1,0 +1,76 @@
++++
+author = "Mena Massoud"
+title = "Mena Massoud Quotes"
+quotes_len = "70"
+description = "the best 70 Mena Massoud Quotes"
++++
+- You never know how things will work out.
+- I'm pretty good at going incognito.
+- Art is very subjective and having to put numbers on it seems counterintuitive.
+- I'm trying to be a voice for the North African Arab community. We've got to continue to fight for our place in the industry.
+- I think Middle Eastern hair is very resilient.
+- Growing up, I didn't see anybody with my skin color or my background. I didn't know it was possible to have a Middle Eastern actor in a lead role.
+- Aladdin' was one of the few things that I watched as a kid where I was like, 'Oh, that guy looks like me and has a similar culture to mine.'
+- Actions speak louder than words, and the best way to set an example is to just go out and do a good job.
+- I grew up speaking Arabic at home.
+- We've got to be able to get to a point where we represent everybody equally.
+- There is such a peace out in the middle of the desert. There's nothing like it.
+- When we represent all cultures with sensitivity and truth, we foster a society that supports all people.
+- A good learner learns from everything!
+- Acting has always been a part of my life as far as I can remember.
+- We've got to celebrate all diverse artists and actors and 'Aladdin' does that really well.
+- It's a funny thing that's happening online. The Middle Easterners want 'Aladdin' to be a Middle Eastern story, and the Indians want 'Aladdin' to be an Indian story. The truth is, it's really a folk tale from the 1800s, and Agrabah is a fictional place that's a culmination of India and Asia and the Middle East.
+- In fact, in the original folk tale, Aladdin was actually of Chinese descent. So what we wanted to do with this was represent as many different cultures from that part of the world as possible.
+- I was in AP chemistry in high school, and I really liked it.
+- My parents knew about the story of Aladdin far before the animation film. It's a folk tale that is very prevalent in Egypt.
+- Ryerson helped me because I was around acting all the time. It was pretty much all I thought about, even if I didn't really get to practice every day; I definitely thought about it. Actually a lot of it was just sitting and watching, especially in my last year, but I think a good actor learns from everything.
+- Growing up in a Mediterranean household ruined my tastebuds a little bit because my mom, my sisters, and my aunt were all great cooks, and ever since I went plant-based, I've been missing a little bit of that Mediterranean affection.
+- I was very different than everybody else growing up. I spoke a different language at home, I ate different food, and I looked different. So I could always relate to Aladdin in that way, being the outcast.
+- As artists we have an extraordinary and rare privilege to tell the stories of our people, our land, our culture. They grip us, tear us apart, and put us back together. We are our stories.
+- I can't change what casting directors do or what producers do. I can only change what I do.
+- I think it's time we start chipping away at the stereotypes in Hollywood about the Middle East, and the Arab World, because it's one of the most beautiful regions in the world.
+- My parents saw certain things differently than other people.
+- The beautiful thing about art is that there's always somewhere to go. There's always something new to explore and, as an artist, that's just what I want to do. I wanna keep exploring new things with different directors with different producers and different styles and tones.
+- Aladdin is a good soul. He is very selfless and usually does things for other people, but as he falls in love, he loses himself a little bit and starts to become someone that he is not. But he is a person with good intentions and has good people surrounding him who lead him back to where he is supposed to be.
+- Guy Ritchie likes to ground things in realism.
+- When we uplift artists who reflect diverse perspectives their stories not only tell us how people view others, but how they view themselves.
+- I get really quiet when I'm nervous. I don't freak out.
+- I went to schools that had a significantly large Caucasian population and I feel very fortunate because I was able to compare that perspective with my family's. It allowed me to create a wider world view on things.
+- We immigrated when I was 3 1/2 years old, to Toronto. But I'm still very, very close to my culture and - back home in Egypt.
+- I have two older sisters.
+- I can't compete for roles that require me to be Caucasian or African American, even if those characters really connect with me and intrigue me.
+- You've got to have confidence that the universe is working out for you.
+- I grew up not really seeing a lot of leads in the industry that weren't like - and I look up to these people - but like Ryan Gosling and Christian Bale.
+- I went through it in high school. It's like, 'Who am I? Am I good enough? Is my background good enough? I know I'm different, but do I have a voice?'
+- We don't tell Canadian stories enough.
+- I was told growing up that the arts were just a hobby - that I couldn't do it as a career.
+- How often do we get to go to the biggest cinemas in the world and see diverse actors make up the majority of the cast?
+- I would wish we would get to a place of colour-blind casting, where it didn't matter what colour skin you are, where you came from, anybody could play anybody and we didn't judge it.
+- Even though I'm very fortunate and grateful to have played Aladdin, there were still four, five casting directors who never gave me a shot in Toronto. They didn't give me the time of day. I never got to audition for them.
+- We're trying to give back to artists of colour and make the journey for them a little easier.
+- Christoph Waltz, you know, blew up in Hollywood at a very old age. He won two Oscars back-to-back so I thought, 'You know what? Even if it happens when I'm 50, that's fine.' You know, I'll always keep going, always keep trying.
+- I want people to know that it's not always dandelions and roses when you're doing something like 'Aladdin.'
+- In the industry, artists of of color struggle the most. Caucasian artists have really solidified themselves in the industry, and with African Americans now we see directors and producers who vow to only produce work that shines a light on African American artists. But everybody in the middle gets lost.
+- I think the first time I watched 'Aladdin' was when I was still in Egypt, because I was born in Cairo.
+- I went to theater school in Toronto for four years and grew up around actors, and things like headshots could cost you from $500 to $1,000. That can be a big deal for a struggling artist.
+- My exercise regime for the film was really intense. I'd work out with a trainer six days a week, and then I had a stunt rehearsal team that would do boxing, stretching, and a little bit of parkour. And yet, people don't get to see me shirtless in this movie. I don't know if you've seen the trailer, but this Aladdin wears a shirt.
+- My first professional gig was on a show called 'Nikita,' and I played Al Qaeda No. 2. At that time I had to take those roles because I just wanted to get my foot in the door.
+- I put in my time, I worked hard and I followed my dreams.
+- There's always a wild card or two when you're casting. I'm usually the wild card. In a room of Caucasian guys, a director might be like, 'OK, let's see, like, two guys who aren't. And maybe they'll be the wild card choice.'
+- I don't like the word 'vegan' on its own, and the reason I started Evolving Vegan, is because the people associated with that word can be very militant.
+- I love my parents and we have a terrific relationship. They have been very supportive of my career choice.
+- All I want for my career is I want to work with the best directors and I want to be treated like a Caucasian man would be.
+- I shocked my parents with a lot of things, whether it was becoming an actor or when I was dating someone outside the Egyptian community or when I moved away from home before getting married.
+- A lot of the Egyptian community is made up of doctors, pharmacists and engineers. All throughout high school I took sciences, but eventually I chose to pursue what I truly want to do.
+- I grew up in Canada and I was 10 years old when 9/11 happened. And I think that really changed the landscape for Arabs around the world, obviously, but especially Arab actors, I think we started getting viewed a little different. Like, my whole experience just as a kid before 9/11 and after 9/11 was drastically different.
+- I always view auditions as the first and last time I'll ever do a character, so that's how I like to see the joy in it. Assuming I don't ever book this, I get to play this character this one time and give it my all because I'll never play it again.
+- I'm predominately an actor first.
+- I grew up on Abdul Halim Hafez and Esmail Yassine, a great comedic actor. I think Adel Imam also changed and revolutionised the game and comedy in Egypt.
+- We're - we're Coptic Christian.
+- I try to support all the women in my life. So absolutely, Aladdin tries to do that as well, and rightfully - rightfully so.
+- I grew up in a culturally different household.
+- I've always envisioned working with the best directors in the world.
+- Canada's a small market. I think sometimes we do too much of supporting American stories in Hollywood and not enough supporting our own.
+- I think since 'Aladdin' my expectations for things releasing and what they're going to do in my career, I've had to really pull them back.
+- I grew up loving okra.
+- My wish would be for positive representation and more diversity coming from Hollywood.

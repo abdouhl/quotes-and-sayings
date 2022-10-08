@@ -1,0 +1,93 @@
++++
+author = "Tracee Ellis Ross"
+title = "Tracee Ellis Ross Quotes"
+quotes_len = "87"
+description = "the best 87 Tracee Ellis Ross Quotes"
++++
+- Keeping the facts differentiated from the fantasy is incredibly helpful in gathering your information as you discover if a person is a match for you.
+- It is important to me to take care of my skin. In general I don't like to wear foundation; I'm not a fan of the look. I like my skin fresh and natural enough so my freckles show through.
+- Career-wise, there are so many things where you don't get what you think you want. I've had to make space for, 'Do I let that debilitate me and make me feel bad about myself? And make me feel like I need to change myself in some way?' Because I think changing myself is very different from growing and learning.
+- Even if politicians spew confusing, convoluted jargon, these people are still meant to represent me, and the only way that happens is if I stay informed and vote.
+- My weight fluctuates. I have years where I wear a size 10, and years where I wear a size 4.
+- I think, for me, my goal is to continue to be teachable. I can't see around corners, but I want to be able to walk enough in my life where I go around more corners than I ever thought I could go around.
+- I feel like I'm on the inside for the first time. Inside the castle. I have an Emmy nomination!
+- Because of my unique experience as my mom's child, the beginning of my journey was more about me trying to figure out who I was on my own. My mom is one of the greatest moms and so supportive of all my siblings and of all of us being who we are, and not who she wanted us to be.
+- I used to think 40 was old. Now I think, 'Hey, 40's hot!'
+- I don't really talk about my personal life. It's a strange and funny and weird thing. Sometimes you have a conversation with someone and the paparazzi snaps a picture of you and people decide you're dating. If I try to answer everything people say, I would be up all night.
+- It is important for me to feel like myself on a red carpet - not the way somebody else thinks I should look.
+- I was watching the Nina Simone documentary alone in my room, and I said out loud to myself, 'Why do we not know that this woman is beauty? She is beauty! Why did no one tell me this growing up? Why was her name not next to 'beauty' in the dictionary?'
+- I used to literally collect friends that had hair like me. And it would start like this: 'What kind of products do you use?'
+- I have a vocabulary in clothing. It's like a whole language.
+- We live in a culture where people are constantly telling us how to get what we want, and within that message is, 'You need to be something other than you are.'
+- If wearing a weave is what makes you feel beautiful, if wearing a wig, if wearing your hair pink, blue, that's what matters, in my opinion.
+- When I'm not working, I spend a lot of time on my hair. When it's time for my hair to get some rest, I either wear it in a ponytail, bun or my favorite 'milkmaid' braid.
+- I'm always touched by people's different stories of who they are and why they made the choices that they made. I feel so empowered by the story behind the person.
+- Julia Louis-Dreyfus is like a hero, to have played different comedic roles. She gets sexier, funnier, and better with time.
+- On 'Black-ish,' I like my makeup to be really natural - so much that I can do it myself. My character is a mother of four and a doctor and a wife, who would not have time to be putting on eyeshadow or curling her lashes.
+- Lily Tomlin was one of the early comedy greats who influenced my courage to be the person I am.
+- I grew up on the ragged edge of self-acceptance, where I was holding on to it, but it was easy to fall off. But as I found my way inside myself, I've been able to accept my own hair, my own shape.
+- I'm baffled by the people who say, 'I'm just not going to vote.'
+- I have started using the expression 'compassionate activism': It's about keeping my heart open so that I can understand the point of view of the other person.
+- I loved being a redhead! I always wanted to try it. I was obsessed with Lucille Ball growing up. I really wanted to try it but I always thought that doing it would ruin my hair.
+- Every two months, I'll get a trim, and every two years, I'll get a cut. And my night ritual is that I go to sleep. I don't wrap my hair, I don't bun my hair, I don't do crap!
+- If you look back at what I believe and what I stand for, I am certainly a proud feminist.
+- For me, it really is about the self-acceptance... the more time that I spend really accepting and allowing myself to be exactly where I am, the faster it is I move towards what I wanna be doing.
+- I don't always feel fierce and fearless, but I do feel like I'm a rock star at being human.
+- We as black people are not a monolithic bunch. We are not all the same, and neither are women. Instead, we are all individuals who have these extraordinary stories to tell and share with each other that will enrich all of our lives and help us all become more ourselves and better people.
+- I think culturally, even if you just talk about it in context, the standard of beauty has not included women of color. Period. Not just black women. If you are not a certain thing, there has not been space for you.
+- There is no right way to do life.
+- Everyone's always like, 'Be your best self!' And that drives me bananas, because when you're not, it makes you feel really bad.
+- I listen to my body. Some days all I want is a good steak and others, I crave veggies and quinoa.
+- I think it's possible to have a vision for your life that goes beyond any circumstance of anything that you've ever seen, and I encourage people to do that. But I don't think that any of us can do that in a vacuum.
+- 'Blackish' is set in current times. So, doing a police brutality episode in current times when kids are watching our show, it gives them an access point to have these kinds of conversations as family.
+- I always had a thin frame, but when you hit 40 and eat french fries three days in a row, it's like, 'What happened?'
+- I'm extremely blessed to have the extraordinary mother that I have, and I don't mean Diana Ross, I mean the mother. My mom paved a road that didn't exist, as did Oprah.
+- Having been in the business for a while, I never like to look forward. You kind of enjoy what's happening while it's happening and leave the rest up to God, the angels, the trees, the stars - whatever you want to call it.
+- In the context of our world, sizes 8 and 10 are teeny, but not for Hollywood. I had to ask myself, 'Do I want to be somebody who worries about what I'm eating? Or do I want to find a balance where I can be healthy and not consumed by that and maybe have to buy some larger pants?' I bought new pants.
+- Red carpet is a little bit scary. It's not about expression. It's about taking a pretty picture in a really weird, awkward way, with so many people watching. It's a glamorous part of the job, but it requires its own kind of courage.
+- I have a few rules on lipstick... I don't wear gloss because I can't talk properly. I like matte lipsticks; I like an opaque shade that you can't see my lip color through at all.
+- My goal is not necessarily to be an inspiration. I think, if anything, I want to continue to be inspired and to continue to grow as a person.
+- There's a power in what we hold as artists, and part of that comes with responsibility... to share the human experience and really allow that to be seen.
+- I eat in the same philosophy that I live with: joyfully!
+- I don't do what I do to get nominated. I do what I do because I love it.
+- There's no way you can go home and learn lines, because you need to go home and sleep. So I've figured out systems. I order two lunches so I can eat dinner before I leave work, so when I get home, I can just go to bed.
+- I need to see my own beauty and to continue to be reminded that I am enough, that I am worthy of love without effort, that I am beautiful, that the texture of my hair and that the shape of my curves, the size of my lips, the color of my skin, and the feelings that I have are all worthy and okay.
+- I'm attracted to bold women - I collect them. I met one of my best friends when we both were about 22 and working at 'Mirabella' magazine. I was wearing this blue dress I had borrowed from my mom, and I didn't know I had deodorant lines all over it until my friend signaled to me.
+- I've never felt like I was in my mother's shadow. If anything, I felt like I was in her embrace.
+- There are things about my body that I don't love, but I'm not trying to look perfect every day - I'm trying to look like me!
+- We should all do what we can in our daily lives to remember that we are glorious and powerful.
+- Human rights, race relations, gender politics, health care, and foreign policy - it's a lot to keep track of, and yet all of these things affect us in our daily lives. Making sense of everything requires meticulous unpacking of feelings, delicate navigation of social norms, and a community of love to help along the way.
+- The experience of both acting and producing has been wonderful. It certainly has created a full plate. But it is very exciting and rewarding to have creative input on the show. 'Reed' is about love and family and for me, playing a hand in shaping it has been deeply gratifying.
+- My goal is to make space for my selfhood. All of it. All of me, not just the parts I like or think that others like but all of it.
+- The national treasure that is Diana Ross is a dim light compared with who she is as a mother. My mom paved the way not only for my career but also for who I am as a human being.
+- I cook naked, and I walk around naked. I'm very comfortable with my body.
+- Putting all your eggs in one basket has never worked for me. Personally, I find if I decide too quickly that someone is my match, I start to get a little nutty.
+- I am a connoisseur of products. I check out everything, I try everything.
+- I used to watch my mom put her makeup on for the stage, and it was one of the most special moments. I would sit quietly on the dressing room floor and watch her put her face on. I think she looks most beautiful in the morning when she wakes up with no makeup on... it's my favorite look on women.
+- I don't want to feel shamed into making a choice about my physical appearance or my body... or even about the choices I make about my life. I want to be feel empowered and inspired because they feel good to me.
+- Keep in mind that diversity does not just mean black. It means all of it - age, weight, gender.
+- I've heard people say, 'Why do you have to do a show that's called 'Black Girls Rock'?' or 'Why is there an expression called 'black girl magic'?' You know, when you say, 'Save the dolphins,' you don't mean, 'I don't like whales.' That's just not the way it works!
+- I feel like our culture is so good at pulling other people down and being so judgmental, but there's space for all of us to be who we are. There's space for us to celebrate each other and root for each other and not take each other down.
+- What I think is exciting is that, to a certain extent, there is a revolution happening where black women are owning their own beauty, despite the standard of beauty that in the past has not had space for it.
+- I don't have children. I don't know how I would feel if my child brought home a different race boyfriend or girlfriend. I don't think I would have any issue with it. But I have no litmus test for that.
+- The experience of being a mixed person is all over the place - one of my best friends is Chinese and Italian; my other best friend is Lebanese and Trinidadian. The mix of heritage, culture or identity is something that our country is built on.
+- For so many years, I was trying to beat my hair into submission, trying to get it to look like someone else's hair, and I didn't know how. I remember going through a phase where I even put beer in my hair, because I was told that would make it smooth and curly.
+- As a woman of color, we're raised to know we have to be twice as good.
+- Clothing started as an armor for me. It was one of the ways that I protected myself from the world. It evolved into a form of creative expression.
+- I'm toned, but I'm not cut. I like a little jiggle!
+- As I get older, the more I stay focused on the acceptance of myself and others, and choose compassion over judgment and curiosity over fear.
+- I'm trying to find a little joy and happiness, a lot of giggles - and maybe some pretty shoes.
+- Using my voice to recognize and celebrate other women is a joy for me.
+- My natural disposition is pretty joyful, but you know, I have bad days and sad moments like anybody else.
+- I think it's huge that I'm wearing my natural hair texture on ABC in prime time. As Dr. Rainbow Johnson on 'Black-ish,' I think my hair is part of the reality of this woman's life. She has four children and is an anesthesiologist and a wife. She doesn't have a lot of time to fuss with beauty, so her look is pretty simple.
+- I think my biggest tip - and I consider it a part of my beauty routine - is getting my sleep, without a doubt. I do a true eight hours.
+- My mom had beautiful clothes. My mom is elegant; my mom is glamorous. But my mom is also really real, and I grew up with a mother who had babies crawling on her head and spitting up on her when she was wearing gorgeous, expensive things, and it was never an issue.
+- Share shame so you are not left alone with it. If you can't find another person, get a journal. I didn't say make a video on Snapchat. It's for you, not anyone else.
+- I think we're as happy as we make up our minds to be.
+- I think that complicated, nuanced, deep, heavy - that's the place to go. That's what makes a great show. That's what all of us deal with in life.
+- Politics is tricky for me. For most of my life, I didn't think it applied to me.
+- So about this Fierce and Fearless award, honestly, I am often afraid. I was terrified when I lost my voice. But I've come to understand and listen to the fear. I walk towards it. I lean into it to find the information and things that it has to teach me - unless it says run, and then I run.
+- Here is my wish and my desire and my pledge as well: that we remember our true nature and our womanhood. That we own and know that we are more than our bodies and yet our bodies are these sacred, beautiful, rhythmic houses for us.
+- In this day and age, I ask anyone I date right away: 'Are you married? Are you in a relationship with anyone? Does anyone think they're in a relationship with you?' And by the way, if someone says, 'Yes, I am dating other people,' that's not necessarily a deal breaker. But you have to communicate it, not hide it.
+- In my late 20s, I realized that I had a very clear social conscience and strong opinions about things like diversity, equality, and education, and while I tried to become more politically literate, I just couldn't catch on. It felt like I had walked into a movie that had already started, and no one would explain what had happened.
+- I just really strongly promote pushing against this culture of perfection. I mean, I'm sorry, for me, Spanx don't feel good. I've tried one of those waist-trainer things on - that hurt like the bejesus.

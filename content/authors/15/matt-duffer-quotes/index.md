@@ -1,0 +1,99 @@
++++
+author = "Matt Duffer"
+title = "Matt Duffer Quotes"
+quotes_len = "93"
+description = "the best 93 Matt Duffer Quotes"
++++
+- The more that you reveal and the more you comprehend, the less scary it gets. That's sort of the H.P. Lovecraft, Clive Barker approach.
+- We grew up in Durham, N.C.
+- We're huge, huge fans of the 'Dark Souls' games, and there's something about when you're playing 'Dark Souls.' Immediately when you're in that world, it was to do with the imagery, it has to do with the sound design, and you're just immediately very uncomfortable and on edge. We wanted you to feel that way when you're in the Upside Down.
+- Steven Spielberg films were huge touchstones for us growing up.
+- You have to go through a big process with the Directors Guild in order to get co-direction credit. They sit you in front of this microphone in front of like 40 legendary directors, and they start grilling you.
+- We wrote this Shyamalan-esque movie and then he read the script and said, 'I like it!'
+- I would feel really nervous doing something, especially something like one of Stephen King's classic books that meant a lot to me, because there would be nothing worse than screwing that up.
+- Every writer you meet, at least in Hollywood, is miserable.
+- If you're doing a movie, the minute you put a monster in it, it becomes a horror movie.
+- A debate about candy bars can get heated.
+- We all grew up with loving 'Ghostbusters.' So of course our kids love 'Ghostbusters.'
+- Freddy Krueger scared us. 'Hellraiser' really messed us up.
+- We always looked at the movie sequels that we admired, and they always pivot and they always try new things. Even if you swing and miss, at least you're trying something different.
+- We started making movies in the third grade.
+- One reason we fell in love with television is we've seen so many movies and they tend to follow a very similar pattern.
+- We've written for network television, where you have to worry about hitting these ad breaks, you have to worry about 42 minutes and 10 seconds exactly.
+- That's something that Stephen King always has in his works. There's a human villain who's just as bad, if not worse than the supernatural one.
+- We push ourselves and each other to be better. We're close enough that we're not timid around one another. We pitch so many ideas every day - sometimes good, sometimes bad. But it's great to have a safety net where hopefully, between the two of us, nothing really bad will ever get through.
+- We are such big John Carpenter fans.
+- I think when we were developing Season 1 - and to Netflix's credit, they sort of pressured us to make sure we had this mythology really hammered out - we had like a 25-page sort of 'Stranger Things' mythology that only maybe a small handful of people have seen.
+- Yeah, if I'm fried mentally, incapable of directing for a second, Ross is there and will take over. Or at least, together we can somehow manage make it through the day.
+- I always loved fantasy, or the fantastical.
+- As you're writing it, you want things to evolve. You want characters like that to grow.
+- I'm as far from a city boy as you can get.
+- In kindergarten, we'd tell stories with our toys. We'd set a timer for two hours because we knew that was how long a movie was.
+- We were such movie nerds - I hate to say this, but yeah, we would just listen to movie soundtracks growing up.
+- The monsters and creatures were always scarier when they felt very real and tangible, and there's something about CG that lessens the impact of it.
+- I don't particularly enjoy parties, but it's really nice to be able to meet other creatives who work on shows you admire or actors who work on shows that you love.
+- The writing for us is the hardest, but also the most important. You want to get to the next part of it, to production, but it doesn't matter how beautifully made it is if something's wrong with the story arc.
+- You know, there's nothing in 'E.T.' that earmarks it as really '80s.
+- My brother and I played D&D. We just weren't particularly great at it.
+- We just fell in love with movies really, really early.
+- David Lynch is very esoteric. He doesn't explain anything.
+- There were moments when we thought, 'We're never going to break through, because no one will take us seriously.'
+- We wish we had known that success takes time, that it's gonna require an unimaginable amount of hard work, that you're going to have to pretend you know what you're doing even when don't, and that as cheesy and cliche as it may sound, following your heart is actually... the key to everything.
+- What we loved about the movies we watched as children was the great character work. They are all about the place where the ordinary meets the extraordinary.
+- Noah - the Schnappster - he's amazing.
+- Us and everyone in Hollywood puts so much time and effort and money into getting things to look just right and when you see it in someone's home, it looks like it was shot on an iPhone.
+- Netflix isn't spending movie-level marketing money - they want people to find this stuff through word of mouth.
+- We love David Lynch. We're big David Lynch fans.
+- We were really into what Cliff Martinez did with 'Drive;' we were into what Trent Reznor and Atticus Ross were doing with David Fincher. When I read about how they worked with David Fincher, they're composing hours and hours of music and then he's working and figuring it out.
+- What's fun to me is that we can make movies but we are no longer restricted by this two-hour timeframe. It gives us this bigger canvas to paint on. It opens up all sorts of new storytelling possibilities.
+- If there wasn't struggle you would never grow. You would never become who you're meant to be. And let's be honest. It would also be... super boring both in movies and in life.
+- We shared the same fears as kids - snakes and clowns. Now we also have more adult fears, like television critics.
+- Often it's scarier when stuff is weird and when you don't fully understand the motive. Pennywise in 'IT' is very weird.
+- When we were growing up, some of those Amblin films, those Spielberg movies, led to the creation of the PG-13 rating because he was pushing it so dark and he upset a lot of parents. I liked that, though.
+- We lived in an ordinary suburb and had an ordinary childhood. It didn't feel like the 'South.' Everyone says Durham is a bunch of northern yankees transplanted to North Carolina. The stereotypical South does exist - if you drove 10 miles in the wrong direction you'd be right in the middle of it. We didn't grow up with that.
+- We never wanted to be ironic; we didn't want to wink at the audience.
+- We fell in love with movies through directors. Very early on we knew that was what we wanted to do.
+- I loved the 'Lord of the Rings' books, 'The Hobbit.' And my parents, they still don't understand it because they hate fantasy stuff. Neither of them are into it. So I don't know where it comes from.
+- Two of my favorite movies of all time are 'Aliens' and 'Diner.'
+- If you were to encounter something from another world or dimension, it would be beyond comprehension.
+- The first thing our Chapman screenwriting professors taught us was that all stories share one thing in common: there is a protagonist, and that protagonist has a goal that he or she has difficulty achieving. Does Luke Skywalker become Luke Skywalker if he doesn't get pulled into the Death Star, if his best friend isn't turned into carbonite?
+- My favorite thing is that young people are having 'Stranger Things' parties and binge-watching it. Hopefully, it leads them to go back and discover some of these movies and folks who inspired us so much.
+- Spielberg shoots with one camera. The Coens, and I think this is right, maybe discarded one shot on 'No Country for Old Men.' That's something you want to aspire to, because nothing's out of place. Everything's necessary.
+- We're very socially awkward.
+- You find a movie you love and you figure out who directed it, then you go to the video store and go through all the John Carpenter stuff and all the Sam Raimi stuff.
+- Most kids, you can turn off their auditions after five seconds, because there's nothing authentic about it.
+- We asked ourselves the question: is there anything we wished we had known before heading out into the terrifying unknown that is the 'real world.' Turns out yeah. There's a lot we wish we had known.
+- The first movie I fell in love with was Tim Burton's 'Batman,' which isn't Chicago, obviously, it's Gotham.
+- When you're a kid, you don't watch a movie one time. You watch it 10, 20 times.
+- Dragon's Lair' we played a lot as kids. It's a fun game to look at - it's not a very fun game to play. Everyone who played it as a kid had the same experience: It's outrageously expensive, it looks really cool, it draws you in like a magnet, and then it just takes your money and is very frustrating.
+- That's one of the cool things I love about television, is it's able to evolve and able to adapt and the actors and the performers are actually a more integral part of the process. So they're informing not just the characters, but the story.
+- When we saw 'The Knick' or 'True Detective,' they had very distinct scores that were doing very distinct things.
+- We're from the South.
+- We decided around fourth or fifth grade that we were going to go to film school.
+- I watched a little 'Beyond the Black Rainbow.'
+- When I go to my friends' places back home, I'm constantly fixing their TVs.
+- We were running around in the woods telling stories and putting on costumes. We're terrible actors, but we acted in everything that we did, and it was fun.
+- When we billed the project to Netflix, we had this big two-and-a-half-minute trailer that had about 20 or 30 of these movies kind of woven together to try and tell the story of 'Stranger Things,' but obviously all these images or ideas were in our heads.
+- I think the PGA Award, when we won that, was so shocking to me. I thought, 'Absolutely no way.' I was barely listening when they were announcing it.
+- I don't believe in ghosts, but I believe in aliens and alternate dimensions.
+- We're not just brothers, we're twins, so I think we're maybe closer than most brothers.
+- It's important for Ross and I to try stuff and not feel like we're doing the same thing over and over again.
+- We were in the last generation to grow up without a cell phone being a part of our lives at all, without tech things and having any of that.
+- We didn't go to any summer camps because we just wanted to be making movies and telling stories.
+- We flirted with popularity in high school, which was when people realized that our videos, if used for a class assignment, would get you an automatic A. It took me a few months to realize I was just being used. They would only hang out with us while we were making the film for them.
+- When we were kids, the type of friends we hung out with were more creative types.
+- That's the fun of television. You can find an actor and they'll inspire you to change and evolve a character in a way you hadn't initially planned on.
+- When we were first writing 'Stranger Things,' the first thing we wrote was that Dungeons & Dragons scene. And we wrote it in about two minutes. It just poured out of us because it was so close to us.
+- There's so much content out there, even good shows get lost.
+- That's why I wanted to say 'Stranger Things 2,' because I don't want to think about it as a TV show. Maybe it's a snobby thing, but it's like: 'Oh, I want it to be a movie. I want it to be a movie sequel.
+- When you shoot at slow-motion, or a high frame rate, it makes it really difficult to rack focus.
+- We just loved scaring ourselves.
+- When we were kids, every time you left the house with your friends you had it in the back of your head that you could go on a crazy adventure just like the characters in those movies we loved. That's hard to do if you've got your parents constantly texting you.
+- Television has been breaking narrative rules.
+- I think we're very hard on ourselves and hard on our work.
+- I love that the Department of Energy issued a public statement that they're not evil.
+- I think music is one of the reasons we fell in love with movies.
+- Yeah, I don't want to put it out like 'I don't want to do a movie,' because yeah, I do.
+- I have no connection to Chicago.
+- All of the movies we watched growing up, we watched together.
+- We're really tough on everything we do.

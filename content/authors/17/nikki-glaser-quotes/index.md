@@ -1,0 +1,80 @@
++++
+author = "Nikki Glaser"
+title = "Nikki Glaser Quotes"
+quotes_len = "74"
+description = "the best 74 Nikki Glaser Quotes"
++++
+- As a female comic, if you talk about sex in any capacity, you will be branded a 'sex comic,' so I might as well go full force on it.
+- I would much rather be someone with high self-esteem and less funny.
+- I don't know what that is because to me, Feb. 14 is Rob Thomas' birthday, and that's only what I acknowledge it as. I just like to celebrate that as Rob Thomas' birthday.
+- That's the compliment I get most often - 'You guys are so honest.'
+- There's actually a thing called Wikifeet that's the Wikipedia of celebrity girls' feet.
+- Just sharing things that are either embarrassing or possibly relatable, searching for that laugh so that someone makes me feel less alone. Like, 'Oh, they laughed, so they get what I'm saying.
+- I was inspired by people telling me I should be a comedian. I tried it and had a really good first set, so I was like, 'OK, I'll do this forever'.
+- I'm so glad I'm not in college anymore. I'm so glad I'm not having kids.
+- College is good discipline. That's what I learned there: pull an all-nighter, get it done, and get an A. I'm the biggest procrastinator, and I learned how to be an efficient procrastinator.
+- I am a woman, so I never want to hide that or be like, 'I'm one of the boys,' because I'm not. I am aware of our audience. We always aim for the right combo of not hitting people over head but still getting our message across.
+- When I did 'Nikki and Sara Live,' I think a lot of the comedy got lost because we were always so worried about how we looked, and so was the network.
+- My standup is years and years of me working things out on the road. I'm really proud of it! A lot of it is about, well... I don't know why I feel this way, but I feel like every special or show I do is some variation on how I feel like I'm not a girl, not yet a woman.
+- I started out splitting my time between the Kansas City and St. Louis comedy scenes, which both had bluer sensibilities than other cities that I've worked.
+- We just learned about this fetish where guys just give women money and know that they are spending their money. It's not like a sugar daddy thing. It's like financial domination, or something like that. These guys just want to give you money.
+- My boyfriend and I have finally learned how to embrace confrontation as something that will only help us as a couple.
+- Jimmy Fallon's strengths are that he's fun, and he's good at impressions, and he's musically inclined. And my strength is that I'm a joke writer, but I also have no filter, and I think that that's not a talent per se, but it's just a thing about myself that I have found that people like about what I do.
+- Nothing really shocks me anymore.
+- Why am I sharing this part of my life when it opens me up to judgment? But part of me wants to share that part of my life because I think non-monogamy is a normal thing for human beings to want.
+- I think I deal with my anger toward my relationship or about my relationship or about my friendships or my family - I deal with it on stage in a passive-aggressive way, and that can be very harmful if it gets back to them, which it always does.
+- I'm in a relationship and have never been on Tinder as a single woman, but from what I have seen, I think it is always good to have a picture with an animal to show that you are kind.
+- If anyone's going to bring about mass extinction, it'll be Donald Trump.
+- I never feel guilty or anything after a podcast; I feel better.
+- I'm learning that if you put yourself out there and make fun of yourself first, it really does work. People can't really make fun of you.
+- All my life - middle school, high school - I've always been worried what are people going to think.
+- I love what I do, but living in one place for an entire year and not being on the road constantly was glorious. The road lifestyle is not ideal for a woman who's about to be thirty.
+- A college degree was very important for them; it wasn't for me. So I picked English because I'm fluent. I thought it would be the easiest to do.
+- I have to say that it's fun to write for young girls, and it's exciting to know that we're influencing them and they're looking at us like, 'I want to grow up and be like them.' I mean, I just made up the person saying that.
+- I remember the 'Jenny McCarthy Show' being kind of funny, and I remember her being just like one of the boys. I remember her being counter to everything I thought girls should be on TV, or whatever. I kind of liked her vibe.
+- Someone told me I looked like a young Tonya Harding recently, as if 'young' would soften the blow.
+- I just want to open people's eyes to different things.
+- Temping is the worst. I would rather starve and be homeless than nanny or temp again.
+- It strikes me as pretty interesting and cool how girls support each other in this business. I've never felt so much support in my life than from my fellow female comedians. I attribute much of my success to some of them.
+- The best stuff - the most interesting stuff - usually happens when I allow myself to be in the moment and working from that space.
+- I went and hung out at a foot fetish party, and I knew that was a very popular fetish to have, but I didn't realize how amazing it would be to have it.
+- Some of my favorites include 'Walking the Room' and 'Never Not Funny' and 'FitzDog Radio', Greg Fitzsimmons' podcast.
+- I was going to go to a Gathering of the Juggalos but decided that wouldn't work. They would know I was there to make fun of them. It would be like me going to a Trump rally.
+- Funny is funny. If it's funny enough to women, it will be funny to men. I think that's been proven by Broad City and Amy Schumer. They're killing it.
+- I'm not a bleeding-heart feminist, but I do like to call out that stuff in my act. It's nice when you find a perspective that no one has hit on.
+- I don't feel the same pressure to be perfect up there that I did in the beginning.
+- I've talked about my relationship without consulting my boyfriend about whether or not he wants that talked about, and I've also taken a story that has happened with us and, for comedic purposes, exaggerated it or changed it in some way that made him look not great.
+- I won't tackle something like furries, because there's nothing new to say. Also, I won't do anything that I think will put my life at risk.
+- My logic used to be if I get angry at my boyfriend, he could say, 'Well, if that thing I do that I don't want to stop doing makes you mad, I don't need to be with you. Bye!' And then he'd leave me. Forever.
+- People are just so insensitive because they're ignorant; they don't understand, so they're scared of what they're ignorant of.
+- As far as how I approach the humor, I think the best comedy is going to happen when I'm myself and act organically to a news item or situation.
+- Being pretty was always a very big thing growing up.
+- I just realized I have probably spent more time in a strip club than Rihanna has, and that is saying a lot because she goes a lot!
+- Things end in this business. Shows get canceled, or you walk away from them - but most likely, things get canceled.
+- A lot of being a woman in this business is about how you look... That's not why we're even in this business; that's not what people want from us. We're valuable because we're funny and because we have a voice and a point of view.
+- I knew what I wanted to do, so I was constantly working on material once I got to KU.
+- Make eye contact with cute strangers. Give guys your email. Email is safer than a number, or at least it feels that way.
+- I like putting myself in uncomfortable situations.
+- The first place I ever performed was at CU Boulder. I went there my freshman year and discovered stand-up after my friends talked me into signing up for a showcase on campus.
+- My sister was very, very beautiful and I was very not. Doing comedy is the greatest thing ever because you don't have to do that, and I've since learned to let go of that.
+- The more you work in this business as a comedian, the closer you get to just being yourself onstage, on camera, the more well received you are.
+- Rob Thomas loves nothing more than for couples to go on dates, and he loves chocolates. Boxes of 20 chocolates.
+- Up until recently, I've said, 'I don't notice the sexism in the industry.'
+- I've been saying inappropriate things since I was a kid.
+- I nannied for a couple of months. The kids were super-funny; it made me wish I grew up in a comedy household. But nannying is demoralizing. I'm just not cut out for it.
+- I wasn't a good-looking child. I got screwed out of the genetic deal. My sister looks like a model. I think that's why I'm a comic. I'm deeply insecure, since I was always feeling ugly. I wasn't a healthy child. I had poor self-esteem. That's why I need people's approval.
+- I was lucky enough to find stand-up really early in life. And I'm so grateful that I did, because the second I found it, I was like, 'I know what I want to do'.
+- Sarah Silverman. She's the reason I do comedy. Her DNC speech was my favorite thing I ever heard. Sitting down with her and laughing would be incredible.
+- I think people are afraid of the concept of open relationships. Like, 'I will not accept this.' They don't have to! No one is telling them to. But it might work for other people.
+- I've been doing stand-up for a few years, and I have a handful of fans just from stuff I've done, like 'Last Comic Standing.' And as a fan of stand-ups myself ... like, when I first discovered Sarah Silverman, I wanted to know everything about her life.
+- Everything I write in my show is a collaboration with a team.
+- All my relatives and friends have been pretty aware of my brand of humor for a while, so none of them have been shocked.
+- I remember thinking years ago about getting a half special, 'When you get that, that will be it. That will be all you need to feel validated in this world.' I feel like that special was just another set.
+- I always told my parents, 'Just give me till I'm 27 to do comedy, to make it'.
+- The transgender bathroom thing - it's just so obvious that people are scared of what they don't understand. It's like, 'I don't want to deal with the fact that some people might have been born in the wrong body.'
+- I like guys with a sense of humor who smile a lot and are kind.
+- I had a guy on Facebook for, like, years just asking if he could PayPal me money, and of course I have to say no when, really, I'm just like, 'Why wouldn't I? He doesn't want anything for it.'
+- I just got a new dog, so I was worried that he'd hate the fireworks, and he did, but just because he's not a patriot, not because of the loud sounds. The loud sounds he's fine with - he just hates America.
+- My boyfriend and I are not good at fighting. We're better than we were when we started dating - two breakups and three years ago - but it's never come naturally to either of us. I have often wished we fought like I imagine Pink and Carey Hart fight.
+- I'm sure I've already made some mistakes that I'll wish I could take back.
+- I have always been scared of confrontation. My therapist says it stems from my fear of abandonment.

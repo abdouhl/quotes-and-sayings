@@ -1,0 +1,18 @@
++++
+author = "Nan Hayworth"
+title = "Nan Hayworth Quotes"
+quotes_len = "12"
+description = "the best 12 Nan Hayworth Quotes"
++++
+- Right now, there are nearly 30 jobs bills passed by the House with support from both Republicans and Democrats that are awaiting action in the Democratic-run Senate.
+- I like going to rifle and pistol clubs and joining them in target shooting. I also share the same respect for individual initiative and love of family.
+- We have to honor our commitments to today's beneficiaries, but we can't solve the growing deficit and debt problems unless we are smart, courageous, and sensible in planning for future.
+- We need to do things better, but in a way that makes sense.
+- Jay Townsend has offered, and I have accepted, his resignation from his position with my campaign. Now let's return to talking about issues that really matter to families: job creation, spending restraint and economic development.
+- We were elected in a wave because the people in America, if they had a single issue that troubled them the most, it was that health care vote.
+- The tenor of the comments as we got closer and closer to August got dominated by 'Wouldja please get this over with' and not let us go into default.
+- Doctors cannot afford to provide care at the rate of reimbursement that Medicare insists that they accept.
+- We're facing a natural disaster in the middle of an economic disaster. The federal government has to balance its budget the way our families do.
+- We are hopeful that President Obama, in his State of the Union Address, will express a willingness to work with Republicans to enact all of these jobs bills.
+- If we can return to a government that the Founders, in their wisdom, envisioned for us, we can return to a government that will allow our economy to thrive again, and our people to live in liberty.
+- The government would be making decisions about what type of care is given, what procedures can be performed, and the kind of medications prescribed. It would be a very profound change from the ideal to which we aspire.

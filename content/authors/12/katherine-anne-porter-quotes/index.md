@@ -1,0 +1,20 @@
++++
+author = "Katherine Anne Porter"
+title = "Katherine Anne Porter Quotes"
+quotes_len = "14"
+description = "the best 14 Katherine Anne Porter Quotes"
++++
+- Physical infidelity is the signal, the notice given, that all fidelities are undermined.
+- Our being is subject to all the chances of life. There are so many things we are capable of, that we could be or do. The potentialities are so great that we never, any of us, are more than one-fourth fulfilled.
+- It is such a relief to be told the truth.
+- I was right not to be afraid of any thief but myself, who will end by leaving me nothing.
+- I have not much interest in anyone's personal history after the tenth year, not even my own. Whatever one was going to be was all prepared before that.
+- One of the marks of a gift is to have the courage of it.
+- Human life itself may be almost pure chaos, but the work of the artist is to take these handfuls of confusion and disparate things, things that seem to be irreconcilable, and put them together in a frame to give them some kind of shape and meaning.
+- It's a man's world, and you men can have it.
+- Most people won't realize that writing is a craft. You have to take your apprenticeship in it like anything else.
+- I shall try to tell the truth, but the result will be fiction.
+- Love must be learned, and learned again; there is no end to it.
+- Experience is what really happens to you in the long run; the truth that finally overtakes you.
+- They had both noticed that a life of dissipation sometimes gave to a face the look of gaunt suffering spirituality that a life of asceticism was supposed to give and quite often did not.
+- The real sin against life is to abuse and destroy beauty, even one's own even more, one's own, for that has been put in our care and we are responsible for its well-being.

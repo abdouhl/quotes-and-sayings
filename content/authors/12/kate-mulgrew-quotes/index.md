@@ -1,0 +1,16 @@
++++
+author = "Kate Mulgrew"
+title = "Kate Mulgrew Quotes"
+quotes_len = "10"
+description = "the best 10 Kate Mulgrew Quotes"
++++
+- The elegance and the quality - the talent is always in the literature. I start with the word and I base everything on that. It doesn't make any difference to me.
+- Of course, the young male demographic has always been the target demographic for 'Star Trek,' the men ageing fifteen to about twenty-five or thirty, a very tough market to appeal to.
+- I've had young women come to me and say that before they watched 'Voyager' it didn't really occur to them that they could be successful in a higher position in the field of science; girls going to MIT, girls pursuing astrophysics with a view to a career in NASA.
+- We are talking about someone who has lived. It must be honored in every respect. The fictional can take any kind of channel - according to the actor's marriage to the character.
+- Great writing is great writing. It's as simple as all that.
+- Life is sacred to me on all levels. Abortion does not compute with my philosophy.
+- It's not refreshing where there is confusion or any kind of discomfort in a group that has to work that closely together.
+- I have a very rich and wonderful personal life, and at its core are my sons.
+- I am often fond of saying the Trekkers are passionate about a hobby, their hobby is 'Star Trek.' They are by and large very imaginative, very intelligent people, and they certainly have been more than generous to me.
+- Execution as punishment is barbaric and unnecessary.

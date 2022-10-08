@@ -1,0 +1,86 @@
++++
+author = "Karl Pilkington"
+title = "Karl Pilkington Quotes"
+quotes_len = "80"
+description = "the best 80 Karl Pilkington Quotes"
++++
+- I don't know any Londoners 'cos I'm from Manchester.
+- When I go on holiday and people ask me what I do, I tell them I do some internet stuff and I've done a couple of books and I hope they just leave it at that.
+- With evolution, things are always changing, so I sort of think: Should we all be growing three heads?
+- I'd say the best is when I was in Africa, I saw a hippo in a house. Someone had a pet hippo. And they're meant to be one of the most dangerous animals on the planet, and they had one that was sort of just wandering in and out of their house, just sort of roaming about.
+- I mean, I don't really go out at night in terms of noisy, busy places; I prefer more of a quiet corner somewhere.
+- We'll all die out eventually. Humans will be gone. And all I'm saying is, when people worry about polar bears disappearing or whatever, it's like, 'Well that's life, things will come and go, we'll find new species.'
+- You can only live to be so old, then you gotta let go.
+- I don't know what I'm meant to do. I'm not important, am I? I'm not doing anything that makes a difference.
+- People who live in a glass house have to answer the door.
+- I drive a car, like an adult. Not brilliantly. I'm not great.
+- I've never thought about it before, but I suppose bad people might need someone to pray to, too.
+- It's not a joke: I really do like being at home.
+- The poorer people and criminals of Mexico who are not very religious but not quite atheists, either, worship Saint Death.
+- I've never worried about life's big questions.
+- But I'm not an idiot. At the end of the day, I've learned a lot.
+- I say have the night and give people the awards, but why do people want to watch people win awards? What are they getting out of it? I don't quite get it. Because they have awards all the time; there's awards for butchers, the best meat served, but they don't televise it. I don't know why they do it for films or TV programs.
+- I've never understood the 'things to do before you die' idea. If I was ill, I'd be in no mood to have a swim with a dolphin.
+- I really can't believe what a state the Pyramids are in. I thought they had flat rendered sides, but when you get up close, you see how they are just giant boulders balanced on top of each other, like a massive game of Jenga that has got out of hand.
+- I don't think I'd be a very good parent. I'd be too honest.
+- If you sit in a bath of pineapple chunks, it can kill you. That's well documented.
+- It's like there's some unwritten rule that if you're mates, you can say what you want to each other, and you don't really get that annoyed about it.
+- Me mum used to always have the radio on - even now she has it on in every room. Me girlfriend sort of blames that reason for me not doing that well at school - constant noise, really.
+- To me, a cat is an easy pet, they don't need any spoiling or looking after.
+- I found that being with happy positive people annoys me.
+- Everyone is living for everyone else now. They're doing stuff so they can tell other people about it. I don't get all that social media stuff, I've always got other things I want to do - odd jobs around the house. No one wants to hear about that.
+- When you've been on a programme called 'An Idiot Abroad' job offers aren't exactly flying in.
+- Comedy's really subjective, you know; that's why it's so hard.
+- With acting, I didn't get much from it.
+- Sometimes you can know too much. A lot of brainy people like Stephen Fry are quite depressive.
+- I think it's a problem when something's a dream because it'll never live up to your expectations. It's better to go somewhere thinking it'll be horrible, and then be pleasantly surprised.
+- And we've got a toaster and everything. So there is no reason for the wedding.
+- A slug is always on its own. It's a lonely insect.
+- I had a bad experience doing public speaking at school. I had to talk about a pen for five minutes and it was really hard work. I couldn't wait to get off the stage.
+- Chinese people age overnight.
+- People say if bees die out, the world would end, apparently. Now, I don't know if that's true, if that's some bee enthusiast who managed to write a good document, and people believe this.
+- I'd rather live in a cave with a view of a palace than live in a palace with a view of a cave.
+- That's the problem with having a bald head. It exaggerates the shape.
+- If you're doing the same job every day, there's room for error.
+- I don't really go out at night in terms of noisy, busy places; I prefer more of a quiet corner somewhere.
+- I've got loads of nieces and nephews.
+- I don't know what the future is, but you just do it whilst it's there, don't you?
+- I came face-to-face with a gorilla which was quite good, but it was a 10-hour trek in bad weather, up hills, covered in mud, with mosquitoes everywhere and when we got there the gorilla's just sat there doing nowt.
+- At the end of the day, teachers aren't going to mess about trying to make me into an Einstein, 'cause it was never gonna happen. We can't all be brainy, can we? That's just the way the world is.
+- I've never won many awards, I didn't get certificates for swimming or anything.
+- People who live in glass houses... have to answer the door.
+- I've learnt that, even though I've travelled about, I haven't changed that much.
+- It would be spiteful to put a Jellyfish in a trifle.
+- People eat duck and you think, well, we've got loads of chickens, leave the ducks alone!
+- I just sort of go along and say what I think -and that's all you can do in life, really.
+- All fame is is having people you don't know coming up to you and saying, 'Hello.' I'm always polite and people are always nice, but it's weird.
+- If you go away with, you know, a girlfriend, wife, whatever, you have an argument on holiday because you're not used to spending that much time with people.
+- Being honest with you, it's not the 'great' wall of China. It's an all right wall. It's the 'All Right Wall of China.'
+- If you'd have told me five years ago that I'd have done all this - two books, some television and everything - I'd panic, I'd be scared.
+- Comedy's really subjective, you know.
+- Yesterday, I did some painting then went out to buy an onion and came home and watched 'University Challenge.' The onion was probably the highlight.
+- They say it all started out with a big bang. But, what I wonder is, was it a big bang or did it just seem big because there wasn't anything else drown it out at the time?
+- I love nature - it's probably my most favorite thing. I don't watch much telly, the telly hardly goes on, but the things I do watch are sort of nature programs, and something about the oceans and the amount of weird fish that's in there.
+- You know, when you're a producer, you're a bit of a lackey. You're just making cups of tea and making sure they've got newspaper, stuff like that.
+- People always tell me I'm going to regret not having kids. But what if I have one and then I regret having it? Has anyone thought of that option?
+- We should all love animals.
+- I sometimes wonder how we're short of cod. There's gonna be a load deep down that are hiding. But it's a good reason to put the price up, and it means a load of people will have haddock. They should tell people they're running out of all sorts. Make 'em panic a bit.
+- I don't know what 'famous' is, really.
+- Getting old is better than being young. You can do what you want to do.
+- I'm not invited to any exciting parties and my life hasn't really changed.
+- I'm not a proper traveler. I don't like to be challenged or have too much of a change and prefer a week away just to relax.
+- I was impressed by the Taj Mahal. A good bit of work, well looked after, worth paying money to see.
+- Parrots have gone a bit quiet since pirates have gone.
+- I've done some luxury flying, which is brilliant. It has only happened once or twice, but it was nice because flying is the worst part of the holiday. But then again, if the plane crashes, you're still dead. For that much money I'd want a little capsule that whizzed me off to safety if it was going to crash.
+- For me, a good holiday is about value for money rather than things to see.
+- To be honest, marriage doesn't scare me and that, it's just once you've been together for so long, if you haven't got any kids it's just a big expensive day out for everyone else to enjoy, isn't it?
+- The other day I was thinking - because I get a lot of headaches - I was wondering whether the head should be where it is. Because, at the end of the day, it's probably the heaviest part of your body, right? And yet it's at the top as opposed to, I don't, dangling at the bottom somewhere.
+- It's not easy keeping a diary. You have to be pretty committed.
+- I think it's mental to pay for water. Where is that water coming from? Are they in the hills puttin' it into bottles when years ago it used to roll down and go into the lakes?
+- The reason I did the book about holidays is that you're a different person on holiday. You're sleeping somewhere unfamiliar, knocking about with people you've never met and for 10 days you're someone else. You're out of your comfortable zone.
+- I don't watch much telly, the telly hardly goes on, but the things I do watch are sort of nature programs, and something about the oceans and the amount of weird fish that's in there.
+- Making the 'An Idiot Abroad' series, I was really dreading going to India; I thought I'd hate it. It was a nightmare, and I was really ill - just like everyone says.
+- I'm not that lazy, but I don't need that much money. I lead a fairly simple life.
+- I don't want to go about offending people; that's not my plan.
+- Who'd have thought the Frisbee would have caught on?
+- I am into nature and seeing whales. I went whale-watching, and I was really looking forward to that, but when you see it on TV and you see other programs do it, you're seeing close-ups of these massive creatures, and the music that's added gives you a certain feeling.

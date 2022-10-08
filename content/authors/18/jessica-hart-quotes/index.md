@@ -1,0 +1,22 @@
++++
+author = "Jessica Hart"
+title = "Jessica Hart Quotes"
+quotes_len = "16"
+description = "the best 16 Jessica Hart Quotes"
++++
+- I want to develop a small make-up line myself. I want to combine all the things that I love and just create them the way I want them to be.
+- I always believe in buying things locally; anything locally made is a big plus, along with organic materials. I try really hard to do that, and brands really pop out to me if I know they're trying to be environmentally friendly.
+- My little yorkie Floyd is the ultimate buddy, and his passport has as many stamps as mine.
+- Vintage rock T-shirts are the best. I have about 50 or 60, most bought on eBay for a few pounds. You can always tell which ones are genuine because there'll be lots of pictures showing you the holes.
+- When I get some down time on the weekends, I love gallery hopping with friends, in particular checking out Gagosian Galleries - between the three in N.Y.C., there's always a great show on or something cool to see.
+- I walk around naked all the time, but it doesn't mean I am completely comfortable and happy with my body.
+- An eyelash curler should be everyone's best friend.
+- If you see me or another model in a bar, wait until you are spoken to before you speak.
+- I always carry a tinted moisturiser with SPF sunscreen. A good lip balm is a must - I can't go past Lucas's Papaw Cream.
+- I love the creative outlet of designing, and I love make-up and products and feel like I find so many great products around the world that I want to recreate, so I want to do that or design.
+- I don't like to try very hard. Most of the time it's just jeans, a T-shirt and Converse trainers. Casual, comfortable and boyish is how I'd describe my look. The way people wear clothes makes them stylish, rather than the clothes themselves.
+- I love, love, love Charlotte Olympia shoes, but who doesn't?
+- I don't like kitten heels. I just don't think they are an attractive shoe because they always look so stumpy. And I would never wear cowboy boots: a pointy toe and little heel is just not my thing.
+- My Helmut Lang leather pants are my most treasured possession - I've worn them almost every day for two years, and they look good with everything.
+- Melbourne is very sophisticated and edgy - we wear a lot of black. Things are lightening up a little bit, but truly, everything looks good in black.
+- London is very fashion-forward. Everyone's very stylish, and the designers are great. It's very my style, grungy and feminine - a bit of everything.

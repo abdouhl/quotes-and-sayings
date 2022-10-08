@@ -1,0 +1,83 @@
++++
+author = "Jeff Goodell"
+title = "Jeff Goodell Quotes"
+quotes_len = "77"
+description = "the best 77 Jeff Goodell Quotes"
++++
+- Mark Ruffalo, aka the Incredible Hulk, is the natural gas industry's worst nightmare: a serious, committed activist who is determined to use his star power as a superhero in the hottest movie of the moment to draw attention the environmental and public health risks of fracking.
+- Australia has suffered a decade of drought, epic floods, a Category 5 cyclone, and a plague of locusts. But just because Aussies have the biggest carbon footprint in the world, it doesn't mean they're stupid.
+- You gotta love Rick Perry's swagger. The Texas Governor is out there in the Iowa cornfields, unabashedly going to toe-to-toe with President Obama, doing his best to instantly cast himself as the big dog in the Republican pack.
+- For better or worse, the bulk of coal industry jobs are in Appalachia - and when that coal is gone, so are the jobs.
+- When it comes to climate and energy, Gates is a radical consumerist. In his view, energy consumption is good - it just needs to be clean energy.
+- In reality, studies show that investments to spur renewable energy and boost energy efficiency generate far more jobs than oil and coal.
+- The floods and fires and storms and droughts that Australia has suffered in the last few years have left no doubt in many Australians' minds about just how much is a stake in a super-heated world.
+- Geoengineering - the deliberate, large-scale manipulation of the earth's climate to offset global warming - is a nightmare fix for climate change.
+- It's not all Obama's fault: His plans to rebuild America's energy infrastructure have been hampered by the recession, and his efforts on global warming have been stymied by Tea Party wackos and weak-kneed Democrats in Congress.
+- Drill everything, mine everything, roll back regulations, tweak the science, expedite permits. Sound familiar? The Republicans offer up more 19th-Century solutions to our 21st-Century energy problems.
+- In any crass political calculation, drilling for oil will always win more votes than putting a price on carbon. But if I recall what I was taught in fifth-grade American government class, we elect presidents to do more than crass political calculations.
+- With so much at risk, you might expect Australia to be at the forefront of the clean-energy revolution and the international effort to cut carbon pollution. After all, the continent's vast, empty deserts were practically designed for solar-power installations.
+- When it comes to global warming, coal is the gorilla in the room.
+- In reality, Republicans have long been at war with clean energy. They have ridiculed investments in solar and wind power, bashed energy-efficiency standards, attacked state moves to promote renewable energy and championed laws that would enshrine taxpayer subsidies for fossil fuels while stripping them from wind and solar.
+- Obama's record on climate issues is not all bad.
+- One of the big questions in the climate change debate: Are humans any smarter than frogs in a pot? If you put a frog in a pot and slowly turn up the heat, it won't jump out. Instead, it will enjoy the nice warm bath until it is cooked to death. We humans seem to be doing pretty much the same thing.
+- By burning fossil fuels, we are already dumping 30 billion tons of CO2 into the atmosphere every year, which has a profound effect on the climate. So, like it or not, we're already messing with a system we don't understand.
+- Without electrons, there is no Google. And without clean electrons, there will be no Google customers, since we'll all be too busy fleeing from rising seas, droughts, and disease.
+- If you are interested enough in the climate crisis to read this post, you probably know that 2 degrees Centigrade of warming (or 3.6 degrees Fahrenheit) is the widely acknowledged threshold for "dangerous" climate change.
+- When it comes to energy, cost isn't everything - but it's a lot. Everybody wants cheap power.
+- Bloomberg is famously impatient with beltway politics and believes that to get anything done you need to work from the ground up.
+- From the industry's point of view, the problem is not that coal companies blast the top off mountains, turning the area into a moonscape and polluting the air and releasing toxic chemical into what's left of the local streams and aquifers. It's that the people who live near the mines are too cozy with their cousins.
+- Have we failed to slow global warming pollution in part because climate and environmental activists have been too polite and well behaved?
+- You think the weather is weird now? Just wait. A new MIT study, just published in a peer-reviewed journal, projects that the Earth could see warming of more than 9 degrees F by 2100 - more than twice earlier projections.
+- President Obama is in no danger of being judged by history as an eco-radical.
+- Compared to coal, which generates almost half the electricity in the United States, natural gas is indeed a cleaner, less polluting fuel. But compared to, say, solar, it's filthy. And of course there is nothing renewable about natural gas.
+- The biggest tab the public picks up for fossil fuels has to do with what economists call 'external costs,' like the health effects of air and water pollution.
+- Ethanol doesn't burn cleaner than gasoline, nor is it cheaper.
+- Obama wants to be thought of as the president who freed us from foreign oil. But if he doesn't show some political courage, he may well be remembered as the president who cooked the planet.
+- One of the pillars of backward thinking in America is the idea that you can have jobs or you can have clean air and water, but you can't have both. That myth has been busted a thousand times, but still it lives on.
+- The oil industry fought hard to keep Keystone alive, making wildly exaggerated claims that the pipeline - the country's largest infrastructure project - would create tens of thousands of jobs and decrease America's reliance on oil from the Middle East.
+- But overall, Obama's record on the environment has been uninspired - and that's putting it kindly. He hasn't stopped coal companies from blowing up mountaintops and devastating large regions of Appalachia.
+- Is it in our national interest to overheat the planet? That's the question Obama faces in deciding whether to approve Keystone XL, a 2,000-mile-long pipeline that will bring 500,000 barrels of tar-sand oil from Canada to oil refineries on the Gulf of Mexico.
+- Extracting oil from the tar sands is a nasty, polluting, energy-intensive business.
+- Even the biggest coal boosters have long admitted that coal is a dying industry - the fight has always been over how fast and how hard the industry will fall.
+- Climate scientists have long pointed to the Southwest as one of the places in the U.S. that is most vulnerable to global warming impacts, especially drought. And if there's one thing that even climate denialists don't dispute, dry things burn.
+- With nine degrees of warming, computer models project that Australia will look like a disaster movie. Habitats for most vertebrates will vanish. Water supply to the Murray-Darling Basin will fall by half, severely curtailing food production.
+- In the United States, we do a pretty good job of protecting iconic landscapes and postcard views, but the ocean gets no respect.
+- The natural gas industry has worked long and hard to smear Josh Fox, the director of 'Gasland,' and has failed.
+- The coal industry is an even larger part of the Australian economy than it is of the American, and it has an enormous amount of political power.
+- Bloomberg's $50 million is not going to revolutionize the electric power industry. But his willingness to fight is already inspiring others to see Big Coal differently.
+- In the Arctic, things are already getting freaky. Temperatures have warmed three times faster than the global average.
+- Nobody disputes that cheap natural gas would be a good thing for the economy. The question is, is this a sustainable new development that can be counted on for decades to come, or simply a 'bubble' brought on by a land grab and drilling frenzy?
+- What is likely to vanish - or be transformed beyond recognition - are many of the things we think of when we think of Australia: the barrier reef, the koalas, the sense of the country as a land of almost limitless natural resources.
+- Nowhere has the political power of coal been more obvious than in presidential campaigns.
+- Today, we're very dependent on cheap energy. We just take it for granted - all the things you have in the house, the way industry works.
+- So if you want to know how Exxon Mobil can make $10 billion profit in 90 days, just look around. The whole world was built for them.
+- Climate change is a global issue - from the point of view of the Earth's climate, a molecule of CO2 emitted in Bejing is the same as a molecule emitted in Sydney.
+- One thing you can say about nuclear power: the people who believe it is the silver bullet for America's energy problems never give up.
+- It may be too late for West Virginia to save itself from the ravages of Big Coal. But it's not too late for America.
+- If you think Wall Street firms have it good, you haven't looked closely at Big Oil.
+- Australia is the only island continent on the planet, which means that changes caused by planet-warming pollution - warmer seas, which can drive stronger storms, and more acidic oceans, which wreak havoc on the food chain - are even more deadly here.
+- To understand how quickly we're cooking the planet, we need good data. To have good data, we need good satellites.
+- Once we start deliberately messing with the climate systems, we could inadvertently shift rainfall patterns (climate models have shown that rainfall in the Amazon might be particularly vulnerable), causing collapse of ecosystems, drought, famine, and more.
+- In the U.S. alone, weather disasters caused $50 billion in economic damages in 2010.
+- The idea that human beings have taken a few steps closer toward asserting control over the Earth's climate is likely to strike you as a really bad idea.
+- Although most Americans don't know it, the U.S. gets more oil from Canada than it does from the entire Middle East.
+- The end of coal in Appalachia doesn't mean that America is running out of coal (there's plenty left in Wyoming). But it should end the fantasy that coal can be an engine of job creation - the big open pit mines in Wyoming employ a tiny fraction of the number of people in an underground mine in Appalachia.
+- The first sign of whether Obama is serious about confronting the climate crisis will be revealed by how he organizes the White House.
+- If we drill the hell out of everything, including protected public lands and fragile regions like the Arctic National Wildlife Refuge, America can emerge as an 'energy superpower.'
+- In the world of energy politics, the sudden vanishing of the word 'coal' is a remarkable and unprecedented event.
+- Some studies have shown that natural gas could, in fact, be worse for the climate than coal.
+- Bill Gates is a relative newcomer to the fight against global warming, but he's already shifting the debate over climate change.
+- Corn is already the most subsidized crop in America, raking in a total of $51 billion in federal handouts between 1995 and 2005 - twice as much as wheat subsidies and four times as much as soybeans. Ethanol itself is propped up by hefty subsidies, including a fifty-one-cent-per-gallon tax allowance for refiners.
+- But Big Oil and Big Coal have always been as skilled at propaganda as they are at mining and drilling. Like the tobacco industry before them, their success depends on keeping Americans stupid.
+- Subsidies are hugely important; they represent America's de facto energy policy.
+- Americans don't pay much attention to environmental issues, because they aren't sexy. I mean, cleaning up coal plants and reining in outlaw frackers is hugely important work, but it doesn't get anybody's pulse racing.
+- Among all the tests President Obama faced in his first term, his biggest failure was climate change.
+- Not since the days of George W. Bush's 'Clear Skies' and 'Healthy Forests' initiatives has America been presented with a project as cravenly corporate and backward-looking as the Keystone XL pipeline.
+- Despite all the progress climate scientists have made in understanding the risks we run by loading the atmosphere with CO2, the world is still as addicted to fossil fuels as ever.
+- Maybe more climate activists will think about the climate change not as an international problem to be resolved in an air-conditioned meeting hall, but as a guerilla war to be fought in the streets.
+- In recent years, America's wealthiest man has begun to tackle energy issues in a major way, investing millions in everything from high-capacity batteries to machines that can scrub carbon dioxide out of the air. With a personal fortune of $50 billion, Gates has the resources to give his favorite solutions a major boost.
+- Coal boosters like to tout coal as cheap and plentiful - well, not anymore. At least not in China.
+- New York City Mayor Michael Bloomberg, who also happens to be the 10th richest person in America, with a personal fortune of some $18 billion, likes to pick a fight - especially fights where the line between good and evil is particularly stark.
+- Some studies suggest that the Arctic Ocean may be ice-free by the end of the century.
+- Ever since the collapse of cap and trade legislation and the realization that President Obama is unlikely to ever utter the words 'climate change' in public again, much less use the bully pulpit to prepare the nation for the catastrophic risks of inaction, the movement has been in a funk.
+- The relevant questions now are: How do we move beyond coal? How do we bring new jobs to the coal fields and retrain coal miners for other work? How do we inspire entrepreneurialism and self-reliance in people whose lives have been dependent on the paternalistic coal industry?

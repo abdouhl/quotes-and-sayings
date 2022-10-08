@@ -1,0 +1,28 @@
++++
+author = "Jonathan Shapiro"
+title = "Jonathan Shapiro Quotes"
+quotes_len = "22"
+description = "the best 22 Jonathan Shapiro Quotes"
++++
+- I see the cartoonist as contributing to the content, being critical, because we do poke holes in some of the dialogue and find new ways of seeing things.
+- Gee, I am a complete Luddite when it comes to computers, I can barely log on!
+- There was a teacher who recognized that I was interested in cartooning and he was great.
+- Mandela once phoned me out of the blue while he was still president, and at first he played with me a bit.
+- There are certain people within the new government who have a slightly disturbing tendency toward authoritarianism, but there are so many checks and balances that in that way their noises are just noises.
+- I normally keep a series of draft in a catalogue type of book in which I scribble, sketch and draw ideas.
+- I was very lucky all three newspapers approached me and asked me to draw their cartoons for them.
+- I would think a sense of the absurd is more important for a political cartoonist, because that could define things like a sense of hypocrisy or a sense of the things one has to be skeptical about.
+- I think the eyes are very revealing and can expose a lot about a persons mood or character.
+- Certainly in cartooning I'm given huge free rein at the moment.
+- I eventually saw the satirical nature of caricaturing individuals.
+- Primarily I'm a social commentator rather than someone who's out to get the belly laugh.
+- I try not to change my political point of view from paper to paper.
+- The cartoons which I enjoy have caused some kind of out rage, but they have got people talking about these issues out in the open and in essence that's what its all about.
+- You can't undo a deportation.
+- Sometimes I have to compromise my views, but I never compromise on issues like the death penalty and the arm trade laws, despite what the readers or letters may say.
+- What's much harder is taking on people in your own community.
+- Even people that I agree with can do something that would be a target for a bit of humor.
+- On one occasion in 1987 the security police came looking for me because of a drawing that I'd published.
+- It's to be a person who's able to shoot little arrows into sacred cows and knock politicians off their pedestals, to look out for hypocrisy, advocate for all sorts of things from social justice to peace.
+- I am anti-Bush. A lot of what he stands for is the antithesis of what I stand for.
+- We do, and there is a law in the United States - the Torture Convention - that prohibits the United States from deporting an individual to a country where there is a reasonable expectation that he will be subjected to torture - physical, mental or otherwise.

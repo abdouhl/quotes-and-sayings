@@ -1,0 +1,104 @@
++++
+author = "Janet Mock"
+title = "Janet Mock Quotes"
+quotes_len = "98"
+description = "the best 98 Janet Mock Quotes"
++++
+- I don't have to explain anything to trans women. Trans women know exactly what's going on.
+- In seventh grade, I met my best friend Wendi, who is a trans woman.
+- To say that I loved school would be an understatement. It was my oasis, my sanctuary.
+- I was in the seventh grade when I first began to identify as trans and express my gender identity as a girl. My social transition began with growing my hair and wearing clothes and makeup that made me feel like Destiny's Fourth Child.
+- For so much of my life, I lived feeling as if, if I spoke, if I said something, I would lose everything. I would be pushed out. No one will want me. No one will love me. No one would want to be friends with me. It took me decades to get to a space of saying, 'This is my truth. This is who I am, and I don't care if you like me or you don't like me.'
+- As someone who wasn't heavily supported or resourced as a young person when I was going through the hardest times of my life, I'm used to operating outside of systems. The trans movement has always been that way.
+- As a visible and outspoken trans woman myself, I know that it's rare not to have your trans-ness lead the way for you in public spaces.
+- Movies have always been spaces of refuge for me. For a few harmonious hours, I could escape my reality of being a girl living on the margins.
+- We cannot and should not be reduced to just one sliver of ourselves, as it skews the truth of our lived experiences.
+- Once, when I was 5 years old, a little girl who lived next door to my grandmother dared me to put on a muumuu and run across a nearby parking lot. So I did. I threw it on, hiked it up in one hand, and ran like hell. It felt amazing to be in a dress. But suddenly my grandmother appeared, a look of horror on her face.
+- I still have a YA-genre-series type of a book in me that I really want to tell.
+- By the time I was a sophomore in high school, it had become routine for me to be sent home for wearing dresses. My mere presence in a skirt became an act of protest that would get me called out of class and into the vice principal's office.
+- If anyone can be said to embody the American Dream, it's Kim Kardashian West.
+- I was born outraged. I was born without, knowing my people were not counted, not included, not centered. I struggled through low-resourced schools, communities, and housing projects.
+- A staple in my makeup bag is Black Opal's True Color Skin Perfecting Stick Foundation, which offers a range of colors with many undertones.
+- The Internet has introduced me to some of my closest friends.
+- My parents split before my fifth birthday, and I moved with Mom and my three siblings to her native Oahu.
+- I think millennials are the most woke generation because they understand that differences are just in the fabric of who we are.
+- I hope being honest about my experiences and contextualizing them empowers young women to step into their truths, tell their own stories, and live visibly.
+- When I was a high school freshman in Honolulu, I would sit with my girlfriends on the bleachers of the school amphitheater every morning. We'd meet in the same spot and chat for an hour before homeroom began.
+- Any woman's right to self-identify is a personal freedom I fight for, and those women who claim trans women are not women are perpetuators of gender-based oppression, and all feminists should be upset and moved to action against this.
+- I came out, as not enough of our stories are told from our perspective. 'Marie Claire' was offering the chance to be a part of a women's magazine, which often celebrates ordinary women doing extraordinary things.
+- It's great to engage with the mainstream media to get messages out, but the most empowering tool is to create records of our lives, and our own images, which are not filtered through judgements, biases, or misunderstandings.
+- We are all inundated with images that present a limited scope of what is considered beautiful. For American women, the closer she is to whiteness/paleness, cisness, thinness, and femininity, the more she is considered beautiful.
+- I knew very early on that I was not pretty. No one ever called me pretty. It was not the go-to adjective people used to describe me.
+- I get invited to a lot of college campuses, and administrators think it's going to be a lecture on 'trans-ness' or whatever. But when young people get there, their questions are about just life.
+- I think about Ellen DeGeneres, seeing her every single day on a show. Her identity is there every day, but what leads the way is her talent and how much you like her.
+- When I was a toddler, my father cut hair in the townhouse we had shared together in Long Beach, California, where Dad was stationed with the U.S. Navy. The buzz of clippers consistently hummed as he gave fades to his coworkers, my uncles, and my brother, but his clippers were never oiled and plugged in for my head.
+- I spent my life navigating systems built upon me - a black child in America - not making it out.
+- There's a burden of responsibility for me to show up correct - in my head, if I don't do it right, then I'll get shut out, and then other trans women of color will be shut out.
+- When you hear anyone policing the bodies of trans women, misgendering and othering us, and violently exiling us from spaces, you should not dismiss it as a trans issue that trans women should speak out against. You should be engaged in the dialogue, discourse, and activism that challenges the very fibers of your movement.
+- When I was 12, my brother and I moved back to Honolulu to live with our mother. Hawaii felt like another universe, and reflecting on it, I am struck by how much more open and accepting it was.
+- Toughening up, performing masculinity, pretending to enjoy things I didn't enjoy all enabled me to dodge the gender policing of the adults around me. But the way I really was - the swished hips, the Double-Dutching, the hair flips - seemed to always prevail and attract Dad's disdain.
+- Great conversations always spark in a genuine interest to recognize and know the other person's story and, therefore, recognizing and understanding and celebrating their humanity.
+- I grew up at a time in Hawaii where there were trans women around, so there were visible role models for me. At the same time, as a low-income trans girl of color, there were so many things that I didn't have access to. I didn't have access to a great education. I didn't have access to affordable healthcare.
+- It is the world's limitations and the myths that we internalize about ourselves that pushes us to diminish our power and ignore it.
+- I don't feel as if I'm typecast - like any writer, the difficulty is that one facet of my identity becomes louder, obscuring the fact that I'm also a woman, a writer, a lover of pop culture and other things.
+- I know intimately the struggle of trying to live your life and be yourself while feeling the pressure of an entire community on your shoulders.
+- For me, as an activist and a storyteller, I'm very centered in ensuring that we show the complicatedness of the human experience that happens to be rooted in my community's trans experiences.
+- I just am trans. That's just the way it is. I knew this as a child. But I was told that because I expressed femininity in a boy's body, I needed to be silent about it. To be ashamed. That led to isolation, which then made it easier for me to be prey to a predator in my own home.
+- Women are so policed and devalued and dehumanized when it comes to the work they do.
+- Reproductive rights are about body and medical autonomy: our collective and deeply personal right to choose what we want to do to/with our bodies. Trans people and feminists should be building natural alliances here.
+- If we want to enlighten people or give them new thoughts and ideas, we have to be willing to do the work of educating them.
+- I don't chase beauty trends.
+- Curiosity is vital to the growth of our society.
+- One musical that deeply influenced me - and continues to do so - is the 1997 ABC TV movie of Rodgers and Hammerstein's 'Cinderella,' starring Brandy, with Whitney Houston as the Fairy Godmother and Whoopi Goldberg as the prince's mom.
+- I'm an island girl, so I love super bronzy skin!
+- I want - no, I need - to see images of black girls and femmes twerking, slaying and primping, just as much as I need to see Symone Sanders bopping her head and Representative Maxine Waters reclaiming her time.
+- There's power in naming yourself, in proclaiming to the world that this is who you are. Wielding this power is often a difficult step for many transgender people because it's also a very visible one.
+- I was obsessed with 'The Velvet Rope' for a year straight, letting Janet Jackson's confessional lyrics lull me to sleep and comfort me when I felt lost. I felt that the album was the vehicle onto which Janet finally expressed her full self.
+- What helps me when someone puts me down or aims to offend me is to not take what they say personally. I try my best to not internalize their comments.
+- It was through my hashtag #girlslikeus where I connected with other trans women on Twitter and Tumblr. We had challenging conversations, courageous personal revelations, and shared insights and experiences, and just had fun. The hashtag tethered me to many women in my community in impactful, lasting ways.
+- I was six years old when 'The Little Mermaid' was released in 1989 and was immediately struck by the fiery-maned, melodic-voiced, tail-swinging mermaid protagonist. She spoke to me on levels deeper than her father's oceanic kingdom.
+- In the evening, I use a cleansing oil - coconut oil also works - to remove makeup.
+- I often feel failed by feminism.
+- Throughout elementary and middle school, I was used to hearing other words: Smart. Studious. Well-spoken. Well-read. They became pillars of my self-confidence, enabling me to build myself up on what I contributed rather than what I looked like.
+- Like many teens, I struggled with my body and looks, but my despair was amplified by the expectations of cisnormativity and the gender binary as well as the impossibly high beauty standards that I, and my female peers, measured myself against.
+- When I feel that burden of representation in public spaces, it helps to recognize that it's a duty - a job, really. As with any job that you want to do well, you have to ensure that first and foremost you are energized and in the right head space to take on that task.
+- I would advise any 17-year-old to surround yourself with people who listen to you, nod when you speak, and smile when you enter spaces.
+- Popular culture is most powerful when it offers us a vision of how our society should look - or at least reproduces our reality.
+- I know how messy things can get when adults overstep their boundaries and insert themselves - their politics, their fears, their prejudices, their ignorance - into the lives of young people.
+- One of the most difficult parts of 'The Trans List' was coming up with a list of 11 people. For me, what was important was to ensure that we were as diverse as possible across a lot of different intersections.
+- On my road to self-discovery, only certain terms were available - I didn't use 'trans' or 'transgender' until junior high school, but I was living as trans much earlier.
+- Stern and critical, my father couldn't accept how feminine and dainty I was in comparison to my rough-and-tumble brother.
+- 'Pretty' is most often synonymous with being thin, white, able-bodied, and cis, and the closer you are to those ideals, the more often you will be labeled pretty - and benefit from that prettiness.
+- My personal style really started in my teens when I gained purchasing power to actually buy my own damn clothes. For so long, my parents dictated what I wore, which largely was their way of containing me within the gender binary.
+- Because trans people are marked as artificial, unnatural, and illegitimate, our bodies and identities are often open to public dissection. Plainly, cisgender folks often take it as their duty to investigate our lives to see if we're real.
+- I take the time to show up for people in my field who are often not seen and heard in the same capacity as I am. Applauding other women and queer writers of color enables me to recognize and showcase the abundance of talent and work being created.
+- We need space to discuss unspoken, uncomfortable dark truths.
+- The transgender community has always been a part of Hawaiian society, where people who don't conform to the binary system of man/woman, masculine/feminine are accepted or, at minimum, tolerated.
+- As an activist who uses storytelling to combat stigma, I have always been adamant that we tell our own stories.
+- We exist in a culture where trans people are constantly delegitimized.
+- If I'm watching 'The Real Housewives of Atlanta,' there's a part of that that's just escapism. I'm not watching it with a political lens, but there is a part of me that certain things trigger and pull up, where I'm like, 'Oh, that was really problematic.'
+- I just love to glow, glow glow, so with my skincare and makeup routine, I gravitate to products that help me achieve that sun-kissed, dewy look.
+- We must have the audacity to turn up the frequency of our truths.
+- I walk in the world as a woman because I am a woman, and people should take me as that. I'm not passing as anything that I'm not. I'm just being myself.
+- For many, hair is just hair. It's something you grow, shape, adapt, adorn, and cut. But my hair has always been so much more than what's on my head. It's a marker of how free I felt in my body, how comfortable I was with myself, and how much agency I had to control my body and express myself with it.
+- Trans people are not a monolith.
+- I learned to hide aspects of my personality. Playing with girls was fine, for example, but playing with their Barbies was something I could do only behind closed doors.
+- When marginalized people gain voice and center their own experiences, things begin changing. And we see this in all kinds of grassroots movements.
+- We are multiplicities, and none of us live single-identity lives.
+- We must resist the pressures of others to soundbite our complicated, nuanced experiences.
+- Femininity in general is seen as frivolous. People often say feminine people are doing 'the most,' meaning that to don a dress, heels, lipstick and big hair is artifice, fake, and a distraction. But I knew even as a teenager that my femininity was more than just adornments: they were extensions of me, enabling me to express myself and my identity.
+- My body, my clothes, and my makeup are on purpose, just as I am on purpose.
+- I wrote 'Redefining Realness' because not enough of our stories are being told, and I believe we need stories that reflect us so we don't feel so isolated in our apparent 'difference.'
+- When I was younger, I wish I would have been told more often that I was right and nothing was wrong with me, that I was deserving of everything this world has to offer, and that my visions for my future were worthy of pursuit.
+- Our differences are what make us great. Let us think about how we can extend this appreciation to people of color, undocumented immigrants, and other members of the community.
+- Throughout the day, I like to spritz my face with a rose water for extra moisture.
+- Media gatekeepers - editors, publishers, film studios and the like - need to begin investing in talent behind the scenes, developing and resourcing marginalized voices to tell their own stories. At the end of the day, it's about the story and what will enable the audience to truly see, understand, and know the life and times of the subject.
+- I was a mixed black girl existing in a westernized Hawaiian culture where petite Asian women were the ideal, in a white culture where black women were furthest from the standard of beauty, in an American culture where trans women of color were invisible.
+- There's nothing more mundane than sitting across from a celebrity in a sterile gray conference room. But when the star sitting across from you is Taraji Penda Henson, you are being treated to a master class in the art of the hustle.
+- We are all part of a larger collective looking to create a more beautiful and just world.
+- Trans folk, especially of color, should not be obligated to help cis folk play catch-up on our experiences. The effort can detract from our work to protect and liberate ourselves.
+- I want to create the content I didn't have while growing up.
+- Being trans, I've grown up with the understanding that most women are born girls, yet some are born boys. And most men are born boys, yet some are born girls. And if you're ready for this, some people are born girls or boys and choose to identify outside our society's binary system, making them genderqueer.
+- Hawaii was so integral to my journey. I was just there at the right time.
+- Our culture often demeans and devalues the work, the pleasures, and the contributions of women and feminine people. This is, in part, why beauty culture is dismissed as unimportant and frivolous.
+- I think a lot of people are very interested in why other people are trans or why people are gay.

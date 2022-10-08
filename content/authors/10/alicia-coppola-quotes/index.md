@@ -1,0 +1,17 @@
++++
+author = "Alicia Coppola"
+title = "Alicia Coppola Quotes"
+quotes_len = "11"
+description = "the best 11 Alicia Coppola Quotes"
++++
+- I do Pilates twice a week; I hike and I go to the gym. My days of being that hardcore-workout person are over. Don't get me wrong, I still want to be the hot mom!
+- I remember looking at my daughter for the first time and wondering if that's the way my father looked at me. I could cry, because she's everything to me. I feel so blessed to be taught so much by her.
+- I try to do a variety of physical activities. I spin, take classes at Barry's Boot Camp, go to the gym, use home DVD's of ChaLEAN Extreme workouts, which I think are brilliant, and I run around after my three girls. Also, let's be honest. The amount of laundry I do is an exercise in and of itself!
+- I like sugar, be it candy, this season's pumpkin chocolate chip bars, or wine. Sugar is bad for me. It just sits on my tummy, causing my middle child Esme to ask if we are having a fourth baby. Rude!
+- My father died of brain cancer in 1991. I do not know anyone whose life has not been touched by the loss of a loved one to cancer. I wrote my book 'Gracefully Gone' about my father's fight and my struggle growing up with an ill parent. I wrote it to help others know they are not alone in this all-too-often insurmountable war against cancer.
+- I've always loved clothes, especially handbags and shoes. I'd rather save my money on clothing and wear crap, but have the handbags and shoes.
+- You know, I always say this - As an actor, we're lucky to get a job. Then we're lucky that anybody gives a damn to watch the thing that we're in.
+- I always say this - As an actor, we're lucky to get a job. Then we're lucky that anybody gives a damn to watch the thing that we're in.
+- This baby comes out of you and there's no handbook. They hand you this child and say, 'Don't kill it. Feed it, clothe it and shelter it.' I never knew what that kind of love was. I remember looking at my daughter for the first time and wondering if that's the way my father looked at me.
+- I eat very well. I cook for my family every night. We eat a variety of things, including chicken, fish, pork, lentils, all veggies, pastas, and salads. You name it, we eat it - except salmon, which I find disgusting. Sorry, salmon.
+- I've always loved clothes, especially handbags and shoes. I'd rather save my money on clothing and wear crap, but have the handbags and shoes. I used to buy a Ferragamo or Louis Vuitton bag every job that I got. Now I have a child, and we pay for private school, so I've had to scale back!

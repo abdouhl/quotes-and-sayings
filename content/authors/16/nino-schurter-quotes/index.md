@@ -1,0 +1,24 @@
++++
+author = "Nino Schurter"
+title = "Nino Schurter Quotes"
+quotes_len = "18"
+description = "the best 18 Nino Schurter Quotes"
++++
+- I'm just really happy. Really satisfied with my whole medal collection.
+- Only when I saw I could be the first one to win five world cup races in a row did I get some extra motivation to go for it. And after winning five, I said to myself, 'Why not win them all?' The icing on the cake was the World Championship at the end.
+- I really like Pietermaritzburg: it is really a course for me - really technical.
+- I worked hard to get stronger and better, and I'm really happy and satisfied.
+- Illness, mechanicals, and injuries is not something you can 100% avoid; you can only try to limit the risk.
+- Every World Cup I want to try and win, and my 30th World Cup win was a big goal. And it's a good feeling to go into the world championships with a good result.
+- The Cape Epic is unpredictable. In South Africa, it's scorching hot one minute, then super-windy or rainy the next, so you have to ensure you're ready for anything.
+- One of my key mental fitness tips is to make sure you are aware of your target and develop a strategy - a routine that you can depend on while in the race. This is a crucial part of mental fitness and preparation.
+- Winning the Absa Cape Epic already was a wonderful surprise. The World Cup was, for sure, my main goal, but winning all of them was nothing I had planned on.
+- Winning the Absa Cape Epic was the base for the perfect season. It really spiced up the soup.
+- The lesson was an Absa Cape Epic can go all directions: to the good and to the bad.
+- I worked hard to complete my medal collection.
+- The trails in South Africa are completely different to Europe: dusty and loose surface.
+- It is good to get the racing closer to the spectators.
+- It is really a great feeling to win a World Cup on your birthday.
+- Every race is like training and preparation.
+- I have bronze in Beijing, silver in London, and now gold in Rio. It is the perfect story.
+- I make sure I have ample sleep, so no late nights out, as sleep is so important for a healthy mind and body.

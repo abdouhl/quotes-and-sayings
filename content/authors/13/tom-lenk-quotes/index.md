@@ -1,0 +1,21 @@
++++
+author = "Tom Lenk"
+title = "Tom Lenk Quotes"
+quotes_len = "15"
+description = "the best 15 Tom Lenk Quotes"
++++
+- My first big one-person show was basically a combination of my family, me during puberty, embarrassing newspaper articles that were written about me in high school, my first modeling photos, and terrible things that people said about me on the Internet.
+- You can't really indulge in anything when you're wearing a unitard. No bread, no beer, no anything delicious.
+- My theater nerd world and my comic friend world are colliding... That's the thing that I was nerdy about, was theatre. I wasn't as much into the comic book stuff. So it's fun to see there are people that are into that that are also theatre nerds like me.
+- I love dark chocolate. I'm also a peanut butter and chocolate fanatic. That's pretty much the greatest invention of the last century.
+- I find the best things are done for yourself or start as a small project and become a big thing.
+- Side note, I was Prom Prince. My friend and I campaigned to be Prom King and Queen, and we got the rest of the non-popular people in the school to vote for us. We didn't win, but we got Prince and Princess.
+- I'm an old fashioned theater major at heart. I love to do a show, do something with friends; I'm kind of a nerd in that way. I like to put on a wig or a fake mustache and do something silly with friends, do a little dance.
+- I loved doing 'Rock of Ages' in N.Y. and that, but its such a large scale, and so many things go into it.
+- I love the experience of getting to direct because I can have all of the fun of helping shape the show, but I don't have to actually do it, so I don't have to deal with the nerves.
+- There's no such thing as a part-time 'Buffy' fan; people watch it compulsively.
+- I doubt I will ever be in another Michael Bay movie.
+- It's interesting - years ago, I had such bad stage fright during musical theater auditions that I just gave up. And now I'm on Broadway.
+- I'm an old fashioned theater major at heart.
+- I like to put on a wig or a fake mustache and do something silly with friends, do a little dance.
+- I enjoy doing these silly little videos, and a lot of stuff online is stuff I actually created for my live comedy shows.

@@ -1,0 +1,27 @@
++++
+author = "Andy Partridge"
+title = "Andy Partridge Quotes"
+quotes_len = "21"
+description = "the best 21 Andy Partridge Quotes"
++++
+- You know, I was such a big Beatles fan, and when I'd buy a new album I'd invariably hate it the first time I heard it 'cause it was a mixture of absolute joy and absolute frustration. I couldn't grasp what they'd done, and I'd hate myself for that.
+- Come English Settlement, I had it in my head that I didn't want to tour.
+- My parents, especially my mother, were no influence on me whatsoever.
+- It's sort of what jazz would be if it stopped being snobby and what rock would be if it stopped being stupid.
+- Anyway, I collapsed in France in the middle of a tour. I hadn't been eating properly, I was getting very phobic about audiences, and I collapsed in pure fright.
+- The early gigs were pretty panicky - and great, sweaty fun. We were brand new to most people, and they were willing to take anything brand new, for the first time in years.
+- Terry said he had this new kid and his wife didn't want to live in England. He wanted to tour. He hated being in the studio. Terry liked seeing various bars the world over and getting smashed out of his brain. He was a sort of latent Keith Moon.
+- I met Jack Bruce, one of my heroes, in a studio while doing some recording. England had just beat Scotland in a big football match and I saw Jack trying to break into this refrigerator in the lounge, drunk out of his brain, and I didn't know what to say.
+- We did a gig at the Marquee and we were supposed to be paid five pounds but we never got it, and it cost us something like 10 pounds in petrol to get there to do it. So what we did was steal some equipment from The Marquee.
+- People will always be tempted to wipe their feet on anything with 'welcome' written on it.
+- I felt pressured by continuous touring.
+- I actually got really petrified by the thought of people seeing me.
+- It's very schizophrenic because I like a lot of very straight pop, like Small Faces, Stones, Kinks; and on the other hand, I like a lot of avant garde things.
+- I suppose my father was more influential in my starting to play the guitar.
+- By the early '70s I had gotten reasonable and I started to get in hundreds of groups that rehearsed and never played at all. I mean, the most important thing was to look good and have a great name.
+- It was in San Diego and I was onstage and couldn't remember how to play the guitar properly. I was in terrible pain and my nervous system was just going wild, like somebody had just run a car over me.
+- We're horribly mundane, aggressively mundane individuals. We're the ninjas of the mundane, you might say.
+- I don't like touring and it seemed to be getting on top of me in a big way.
+- We do this for the art, not the adulation. I'd rather our music get liked and we get ignored. I don't want to be adored for anything other than the music.
+- Where I've arrived now is the product of mixing the very straight with the very exploratory; there's a fine line between the two, although it tends to be getting straighter and straighter because my songwriting is getting better.
+- If it's a good LP, you'll get that tingle that makes you put it on again no matter what your initial reaction was. On the other hand, if you don't get that tingle, you'd better take it straight down to the record exchange.

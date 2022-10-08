@@ -1,0 +1,43 @@
++++
+author = "Ajith Kumar"
+title = "Ajith Kumar Quotes"
+quotes_len = "37"
+description = "the best 37 Ajith Kumar Quotes"
++++
+- I dropped out of school after my tenth standard. But both my elder brother and younger brother are highly educated.
+- Success is like a wild horse. If you do not know how to handle it, it will throw you off and look for another rider who can handle it well.
+- I believe life is a gift, and I want to live it productively. I am not into this numbers game.
+- Honeymoons are great, but they don't last. And I think the same is true with success on the screen - today, I am all over the place; tomorrow, I may be gone - I may have to make room for someone else. So why make a big song and dance about it all?
+- I have been offered obscene amounts to do commercials and stage shows abroad, but as a matter of principle, I am against them.
+- I wanted to be a professional motor racer. It was only due to lack of sponsors that I could not do it.
+- I don't work for the commercial success of the film. I work to satisfy my producers who give me the money. I work to satisfy the director who has written a script for me. Of course, I have to satisfy the actor in me, but I want to satisfy them first.
+- When a fan buys a ticket for a cricket match or a movie, he is not worried about the colour, creed, or religion of the person sitting next to him. If you look at any actor's fan base in India, you will find that they are from different regions.
+- All my cop/gangster dramas have been spaced out, but somewhere, the films in which I played the bad guy were extremely successful, so people are under the impression that I play only such roles. I call it selective amnesia.
+- 'Villain' succeeded because we were genuinely working towards a good film. We worked hard and with a lot of conviction.
+- I don't want the child in me to die. Fortunately, I'm lucky enough that my profession allows me to pursue my boyhood fantasies even as an adult.
+- I like to work with people who want to make films because they are passionate about films and not because they want to sell films and make money. I am not for people who get the most saleable actor and then the most saleable director and sell the film.
+- I am not in competition with anybody; I just want to be productive.
+- Let stars choose what causes they want to endorse without making it an issue of loyalty to the state or country.
+- I have become a fatalist in life, so I don't try to set goals.
+- Success is very intoxicating. It is very difficult to handle all the fame and adulation. It corrupts you. You start to believe that everybody around you is in awe of you, that everybody wants you, and that everybody is thinking of you all the time.
+- I am glad that mankind on the whole are dreamers.
+- I am pretty expressive with my emotions. I don't think something and say something else. I don't know if it's something I should be proud of or to watch out for. Maybe I am not politically correct. I don't know if that's a crime.
+- I need a producer who will look for a good script. I need a director whose purpose to make a film is not for his survival but because he loves making films.
+- I was the first person from my family to enter films. So, everything connected with films was new to me, including fans and fan clubs.
+- I think I have stopped being nervous about the outcome of a film. The five consecutive flops in 1997 and the five consecutive hits in 1999 have mellowed me in many ways.
+- I grew up a Tamilian.
+- No matter how big you are, when you go back home, your family treats you like a normal person.
+- I know that there are people in the industry who praise me in person and then stab me in the back.
+- I have a lot of respect for people, and I feel they are far more sensible and responsible than to ape or imitate somebody.
+- I don't want to put up this act of being a voracious reader, which I am not.
+- I am in movies basically for the money, and frankly, I have a hard time believing those who say they act for the love of acting!
+- I would not say I was not interested in studies - it just wasn't there in me to pursue academics. I would open a page in the textbook and start thinking about everything under the sun except what was there in the book. I was more into extra-curricular activities and sports like NCC, rifle shooting, aero-modelling, bike racing, etc.
+- As a child, I always wanted to be a race car pilot.
+- I rarely give interviews. I am against doing television interviews or chatting on the Net, even to promote my films. This is my personal decision, and it is not to hurt or embarrass anybody.
+- Acting is a learning process. And what you are doing in your early films is essentially picking up the nuances, the tricks of your trade. And somewhere along the line, you become analytical and learn to enjoy what you are doing.
+- If you look at it closely, 'Mankatha' is a politically incorrect film. It explores the darker side of the human mind, and I think, while watching it, people are, in a sense, redeeming themselves of their own guilt.
+- I have absolutely no political ambitions.
+- Filmmaking, I often like to say, is like Russian roulette. You never know what you'll get. The only thing you can do is find solace in the fact that, irrespective of the film's response, you work hard to make the money you do.
+- Aren't we all dreamers? It's only because man dreamt of flying that we are travelling in planes. Behind all inventions, we see the dreams of people.
+- I love doing stunts, though I have to be careful with my back. As for dances, somehow I am uncomfortable doing them. I lack grace.
+- Cinema is a great binding force for a nation.

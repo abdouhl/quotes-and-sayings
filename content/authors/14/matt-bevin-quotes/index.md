@@ -1,0 +1,78 @@
++++
+author = "Matt Bevin"
+title = "Matt Bevin Quotes"
+quotes_len = "72"
+description = "the best 72 Matt Bevin Quotes"
++++
+- As Governor, I will direct my Secretary of the Cabinet for Health and Family Services not to distribute federal taxpayer dollars from that department to Planned Parenthood clinics.
+- If you've ever questioned your faith, you're going to question it when you are burying your own children.
+- It is important never to forget our history, but parts of our history are more appropriately displayed in museums, not on government property.
+- I'm not going to run to the left of Mitch McConnell; I'm not going to run to the right of Mitch McConnell. I am going to run right over the top of Mitch McConnell.
+- America is worth fighting for ideologically.
+- I have no tax delinquency problem, nor have I ever.
+- There is going to have to be austerity in the state of Kentucky.
+- I have 9 children; I'm a big believer in childhood education, but we've got to be smart about getting a good return on the investment of those dollars.
+- I am not above copying what other people are doing well.
+- After 30 years in Washington, it is clear that Mitch McConnell has lost touch with our state, its people, and our values.
+- The fact is the American people want men and women to stand up and represent them and to put their interests ahead of the party interests.
+- When I have people like Planned Parenthood intentionally not following the law, that's where the state will be involved.
+- I have never been a member of a Tea Party.
+- People aren't suckers. Some are, perhaps. But most people inside know when we're being lied to.
+- I believe in forgiveness, I believe in second chances, and I believe we should find a way to restore the Second Amendment rights to people who are qualified and have shown themselves qualified to have those rights restored to them.
+- This administration will have no tolerance for the type of brazen disregard that Planned Parenthood has shown for both the safety of women and the rule of law.
+- I like Ben Carson.
+- I'm going to defend the right of people to freely gather and discuss whatever they want to.
+- It's nonsense. If, in fact, putting one out of four people in the state of Kentucky on Medicaid created 12,000 jobs and $30 billion in economic prosperity, why wouldn't we put every single person in the state of Kentucky on Medicaid? We'd create 48,000 jobs by that logic and $120 billion worth of economic advantage.
+- Have you ever been offered a job by a poor person? No one has.
+- We need education across the board on all fronts.
+- I'm a believer in the Constitution and in the First Amendment. Not just for raising money but also for freedom of speech.
+- I have no favors to pay back.
+- While it may seem small, the ripple effects of small things is extraordinary.
+- I don't think it's wise to shut down the government.
+- Black, white, rural, urban, Democrat, Republican, independent. People who come from both ends of the socio-economic spectrum. Male, female. Young and old alike. This is our Kentucky.
+- Criminalizing behavior, if it's part of the heritage of this state, is in my opinion a bad idea.
+- Everybody is welcome to come to dinner, but there's going to be the adult table and the kids' table. Whiny people who want to throw food and make noise and interrupt and be rude and act like children, they can sit at the kids' table.
+- The Medicaid expansion enacted under Obamacare is unaffordable for the taxpayers of Kentucky and should be repealed.
+- We're in Kentucky, dude. How many variations of Bevin are there? Many. Bevins, Blevins, Belvin, Belvins, I'm sure. Or Bevin even with an -eavin or... Bivin or Bivins. And we're probably all cousins if you go back far enough.
+- I did not write any of the letters that were ever published as investment commentary.
+- I name my companies things that are intentional, that are specific, that are worthy of ridicule if you are anything other.
+- I'm a Republican. I'm running in a Republican primary.
+- Too many of the career politicians, the established politicians in Washington on both sides of the aisle, are representing their party more than the people. And no matter what the media says, the ballot box will determine what people truly believe.
+- Be bold - there's enough Neville Chamberlains in the world; be a Winston Churchill, for crying out loud!
+- I am not, and have never been, a supporter of cockfighting or any other forms of animal cruelty.
+- Kentucky HEALTH will allow us to continue to provide expanded Medicaid coverage. But unlike the current Medicaid expansion under Obamacare, it will do so in a fiscally responsible manner that ensures better health outcomes for recipients.
+- The people of Kentucky have had enough. They have had enough of bailouts for Wall Street banks.
+- There's not one person in this state who believes they are going to have a job in my administration... There's not one person who I've promised anything to.
+- Is it going to be the people of Kentucky who decides who their senator's going to be, or is it going to be Mitch McConnell saying, 'This is my protege Trey; this is who your next senator's going to be.'?
+- There is no one in America more qualified to talk about bailouts than Mitch McConnell.
+- I want us to be able to fight ideologically, mentally, spiritually, economically, so that we don't have to do it physically.
+- I am a believer in smaller government, limited government, less regulation, less taxes, because I think to have more of those things, we suffocate the entrepreneurial spirit of this nation.
+- I would encourage you: be informed - knowledge is power.
+- I'll listen to the people. I will not put my party ahead of what the people want.
+- I think we will be safer when we can concentrate law enforcement and criminal justice resources and energies on those individuals who truly need, for the safety of society... to be incarcerated.
+- I've signed many documents as president and CEO as required by law. I signed every single document that we were required to file - every single one of them.
+- Donald Trump is an interesting fellow.
+- I was, as president and chairman of the board, required by law to verify the veracity of the financial figures, the assets under management, the number of outstanding shares, et cetera.
+- The fact that we have one out of four people in this state on Medicaid is unsustainable; it's unaffordable, and we need to create jobs in this state, not more government programs to cover people.
+- You can't punch people in the face, punch people in the face, punch people in the face, and ask them to have tea and crumpets with you and think it's all good. Life doesn't work that way.
+- I have nine children. It breaks my heart to think that it might be their blood is needed to redeem something, to reclaim something that we, through our apathy and our indifference, have given away.
+- I am genuinely sorry that my attendance at an event which, other than my comments, appears to have primarily involved a discussion of cockfighting, has created concern on the part of many Kentucky voters.
+- We will hold Planned Parenthood accountable for knowingly endangering their patients by providing illegal abortions at a facility that was not properly licensed nor prepared to handle an emergency.
+- I'm unapologetic for the fact my Christian faith defines my decision-making process. I will bring those Christian principles and that mindset to Frankfort.
+- McConnell's the Senate Republican leader, but he refuses to lead on defunding Obamacare. What good is a leader like that?
+- I always said... I want to be the one who creates jobs. I want to be the guy who develops the wealth of the nation.
+- There are stark, stark contrasts between myself and Jack Conway.
+- Is it average Joes like ourselves who go to the ballot box and truly decide who are going to be the leaders, not only of their party - of their government - at the local, at the state, at the federal level? Is that really who's still in charge?
+- This is our time. This is our opportunity. Together, we will accomplish great things.
+- We cannot be complacent about the determination of radical Islamic extremists to destroy our freedoms.
+- We have seen a degradation from the highest levels of authority politically in this nation, including through the department of justice, for the rule of law.
+- Who are we to think that our generation is going to be the first generation to benefit from all the sacrifices that others have made without giving some modern-day equivalent of our own lives, fortunes, and sacred honor?
+- I don't care if it's a dollar or two dollars. If I'm governor, people should have skin in the game.
+- It's a question of whether or not we the people are still in charge. And by 'we the people,' I mean, is this truly a government of and by and for the people.
+- There are no taxes that are unpaid, nor were there any taxes that I was responsible for that didn't get paid.
+- I have nine children. Four of my children are adopted. We talk about those who have nothing. My children started with nothing, some of them.
+- Liberals are good at catchphrases, but there's no substance behind them.
+- There are quite enough sheep already - be a shepherd: be somebody who's bold and who leads.
+- Look at the decisions I've made in my life personally. To paint the picture intentionally that I don't believe in, that I'm not a supporter of, that I'm not an advocate of early childhood education is a mistruth. It's an absolute and outright lie, and to continue to perpetuate it is irresponsible.
+- I never went to any Tea Party meetings, although I am fiscally very much in like mind, and grateful for and appreciative of the support of anybody, no matter what group they might be part of.
+- People are hungry for someone who is real. They are hungry for something that is not the same plastic nonsense that has cause us to have such little respect for our political process and our political officials.

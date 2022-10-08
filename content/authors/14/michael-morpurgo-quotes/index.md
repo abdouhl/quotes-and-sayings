@@ -1,0 +1,67 @@
++++
+author = "Michael Morpurgo"
+title = "Michael Morpurgo Quotes"
+quotes_len = "61"
+description = "the best 61 Michael Morpurgo Quotes"
++++
+- Don't worry about writing a book or getting famous or making money. Just lead an interesting life.
+- Perhaps it is partly that we need to love books ourselves as parents, grandparents and teachers in order to pass on that passion for stories to our children. It's not about testing and reading schemes, but about loving stories and passing on that passion to our children.
+- With all editing, no matter how sensitive - and I've been very lucky here - I react sulkily at first, but then I settle down and get on with it, and a year later I have my book in my hand.
+- With reading, I was very lucky. I had a mother who read to me, not because she had time - she was a busy woman - but she found 10 minutes to come and sit on my bed with a book.
+- Something I learn every time I stand in front of a bunch of children, I learn never, never to underestimate them or patronise them.
+- Some writers - most, I suspect - write in isolation. I think I'd always found that quite difficult.
+- If I'm serious, yes, I'd like to have done what Shakespeare did... to act and write. You learn so much from acting. One of our great writers, Alan Bennett, does both supremely well. When I write a story, I tend to speak it aloud as I'm writing it.
+- A lot of children, like I did, move away from words because of the fear - which is something you have to take out of education: the fear of worrying about what marks you'll get, detention, worrying about letting people down, your parents, teachers.
+- By the time I sit down and face the blank page I am raring to go. I tell it as if I'm talking to my best friend or one of my grandchildren.
+- Remember to write for yourself, not for a market and give yourself time to develop your own style, your own voice. It takes a lifetime. Enjoy it!
+- When children are very young, you read them books that are positive to help them go to sleep. But there comes a moment when they begin to understand the difficulties of the world. They know there are problems and the books they read should reflect that, not gloss over them.
+- I was brought up, as a lot of kids are, on 'Aesop's Fables,' 'Brothers Grimm,' 'La Fontaine,' all those sorts of things. Hans Christian Andersen is a hero of mine.
+- Only the best books are special. Why? Because they open our eyes, touch us, excite us, extend us.
+- To write something you have to feel it and know it, and that's not comfortable.
+- Always write your ideas down however silly or trivial they might seem. Keep a notebook with you at all times.
+- It is really important that focusing on things such as spelling, punctuation, grammar and handwriting doesn't inhibit the creative flow. When I was at school there was a huge focus on copying and testing and it put me off words and stories for years.
+- Anything that gets children reading is fine.
+- Paying more heed to the lessons of the past might teach us to be a little more cautious about some of the political decisions taken today.
+- Marry someone who flatters you. Because I've written 80 books since 'War Horse' but when my wife reads one, all she says is, 'It's quite good, but it's not as good as 'War Horse,' is it?'
+- When I was very little my mother would read to me in bed. She gave me a fascination for stories, and for the music in words.
+- Admitting failure is quite cleansing, but never - pleasurable.
+- As a young child my attention span was, as I remember it, rather short.
+- It is the child's understanding that teaches the adults the way of the future. They're still doing it today with modern technology.
+- I was never a great reader, but there were two stories I loved best: Kipling's 'The Elephant's Child' and 'The Jungle Book.' Deep down, I've always wanted to write a book about a wild child and an elephant.
+- When I write I try as far as possible to forget I'm writing it at all. I tell it down onto the page, as if I'm telling it to one person only, my best friend.
+- It's good to focus on the universal suffering that goes on in any war. Whatever the right and wrongs of the war, there is always universal suffering.
+- Much that is great in literature is an acquired taste, and you have to acquire it in the first place. Our job as parents is essentially to pass on the enthusiasm we had for the things we loved. That's how we'll get them to fall in love with reading in the first place and, hopefully, to stay in love with it.
+- I write fiction. I make things up, it's what I do.
+- It gives me confidence to know that what I'm writing has a veracity of its own without me having to invent it. When I'm writing fiction, I must believe it to be true, or I can see no point in it.
+- One of the great failings of our education system is that we tend to focus on those who are succeeding in exams, and there are plenty of them. But what we should also be looking at, and a lot more urgently, is those who fail.
+- When I sit down I write very fast... if I haven't finished a book in two or three months then I think it's not going well.
+- I'm still not sure I want to be a writer. I think of myself as a storyteller more.
+- Books that kids read should be about what is going on in the world.
+- Everyone is interested in war, in that people don't want it to happen. I'm much more interested in peace than in war but it's important to understand why we fight.
+- When I was growing up in the Forties and Fifties, you could hide your children from the difficulties of life, but today you can't separate children's contact with the adult world today.
+- I got married young, far too young, but it is fine. We are still married 48 years later. I got married at 19.
+- Animals are sentient, intelligent, perceptive, funny and entertaining. We owe them a duty of care as we do to children.
+- Children have to be motivated to want to learn to read. Reading must not be taught simply as a school exercise.
+- I was rather a poor student, too easily distracted - did a lot of gazing out of windows, fine for training to be a writer, but not a great way to achieve in the classroom. The truth is that I was happy to bumble along and do enough to avoid detention, but not much more.
+- I fill up the well of stories in my head - without ever knowing I'm doing it.
+- Write because you love it and not because it is something that you think you should do. Always write about something or somebody you know about - something that you feel deeply and passionately about. Never try and force it.
+- I think there's something about studying a book which will kill it if you're not careful.
+- The most important thing is to live an interesting life. Keep your eyes, ears and heart open. Talk to people and visit interesting places, and don't forget to ask questions. To be a writer you need to drink in the world around you so it's always there in your head.
+- I become my characters, and then try to allow events in the story to take their own course. I try not to play God, but to let them work out their own destiny.
+- You know, I really wish now I'd had the nerve to become an actor. Because I'd have been Robert Redford, no question.
+- Live an interesting life. Meet people. Read a lot and widely, learn from the great writers.
+- It's the teacher that makes the difference, not the classroom.
+- We all know that the great memories of our childhood are the little triumphs - it doesn't really matter whether that was in writing, art, on the hockey field or on the football field. It's something that makes you feel - 'I can do this stuff.'
+- I really can't write fantasy. I cannot invent a world which does not exist. And I can't read fantasy either. As soon as I realise I'm reading a book that hasn't got its roots in a reality I can comprehend, I switch off.
+- A notion for a story is for me a confluence of real events, historical perhaps, or from my own memory to create an exciting fusion.
+- There is the myth that writing books for children is easier than writing books for grownups, whereas we know that truly great books for children are works of genius, whether it's 'Alice in Wonderland' or the 'Gruffalo' or 'Northern Lights.' When it's a great book, it's a great book, whether it's for children or not.
+- War continues to divide people, to change them forever, and I write about it both because I want people to understand the absolute futility of war, the 'pity of war' as Wilfred Owen called it.
+- Access to books and the encouragement of the habit of reading: these two things are the first and most necessary steps in education and librarians, teachers and parents all over the country know it. It is our children's right and it is also our best hope and their best hope for the future.
+- You get to about 65 or 70 and you lose friends and the world does seem to be an endlessly difficult place and tragic place, so it's more and more difficult for me to find the bright lights.
+- The big relationships you make in your life are with those that you love and if things do go wrong then it's a source of great pain and that lasts.
+- Strange questions are the more interesting ones. Children by and large don't try to trip you up... they want to find out how you do this funny thing that you do... if they've loved a story they love to know how it started.
+- I was an overly young father, is the most polite way of putting it. I think I was rather immature and all I can say is that I think I've made a much better grandfather... I don't think I was ready to be a father to be honest.
+- Wherever my story takes me, however dark and difficult the theme, there is always some hope and redemption, not because readers like happy endings, but because I am an optimist at heart. I know the sun will rise in the morning, that there is a light at the end of every tunnel.
+- Characters are the key to a good book. It took me several novels to comprehend that.
+- Encouraging young people to believe in themselves and find their own voice whether it's through writing, drama or art is so important in giving young people a sense of self-worth.
+- Read a lot - poems, prose, stories, newspapers, anything. Read books and poems that you think you will like and some that you think might not be for you. You might be surprised.

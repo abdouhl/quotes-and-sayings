@@ -1,0 +1,22 @@
++++
+author = "Amy Weber"
+title = "Amy Weber Quotes"
+quotes_len = "16"
+description = "the best 16 Amy Weber Quotes"
++++
+- I have cervical cancer. I'm what they call a DES baby... I have been cancer free for 7 years now... I had it the first time when I was 19 and then it came back a few years later after I went through treatment.
+- My biggest accomplishment was playing 'Lark' on the daytime drama Port Charles because it was the most regular acting job I have had, and I had to step in and fill someone else's shoes.
+- I lost twins at 14 weeks, and I had to have an D and C on my birthday.
+- I see myself starring in and producing major feature films.
+- I don't have any regrets. When I quit college and moved to Los Angeles to become an actress, it was so that I would not look back and have any regrets.
+- Dustin Hoffman was the greatest. He had so much information to give and he mesmerized me. He really feels for actors who are just starting out and remembers his early days like they were yesterday.
+- I enjoyed entertaining people since I was a little girl. There was nothing better than making people laugh. That, and the need to express myself in a safe environment.
+- Everything officers go through in any chase anywhere in the country, but amped up 100 times! I'm right in the thick of things in a car going like 80 miles an hour, and doing 360s in the middle of the road. It was a wild ride.
+- I prefer working on films. I like the variety. There is nothing better than playing a bad girl for two months, then playing someone sweet for the next two. Films give you this opportunity.
+- I have always brought home stray animals - everything from squirrels to wild rabbits to foxes and turtles.
+- I am a very private person. I still get shy at times.
+- I put a lot of pressure on myself, but I also have what I call an X-factor.
+- There is nothing better than playing a bad girl for two months, then turning around and playing someone sweet. Films give you this opportunity.
+- I want people to say, 'She is really sweet and kind.' Anyone can work hard enough and be 'pretty.' Not many people are nice nowadays.
+- My philosophy has always been, 'do what you love and the money will follow.'
+- I love to cook and really enjoy cleaning my house. People always tease me about getting a maid. My girlfriend tells me that they are only $40 and will do everything. But that is my time to unwind, put my hair in a ponytail, throw on sweats, and be myself.

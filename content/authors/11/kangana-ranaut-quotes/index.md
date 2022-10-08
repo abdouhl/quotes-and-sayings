@@ -1,0 +1,119 @@
++++
+author = "Kangana Ranaut"
+title = "Kangana Ranaut Quotes"
+quotes_len = "113"
+description = "the best 113 Kangana Ranaut Quotes"
++++
+- As it is, relationships are difficult, aren't they?
+- The glorification of sisters, mothers as the selfless Indian women who will do 'agni pariksha' and the one who sees her own betterment only in the betterment of their husbands and fathers, that has to stop. It's very regressive.
+- Ever since I was a child, I would start crying seeing anyone in pain.
+- There is a huge gap between the remuneration of an actor and actress.
+- At 18, I wanted to work with the creme de la creme because I thought that was the only way to be successful. But I don't think any A-lister has done as many B-grade films as I have.
+- My father is a businessman, and my mother is a schoolteacher.
+- I don't think there is anything unusual about my struggle. It's a very typical struggle where you meet bad people, and then you meet good people, and then you finally have a breakthrough.
+- From my side, there was no acceptance to this fact that I am any less than anyone around me. So there was a certain discomfort that I felt growing up that I am not seen as I want to be seen as.
+- For me, to be in a place where I'm on the 'favourite' list of top directors I like, that's being number one. There is no other definition to me. It's not money; it's not how many songs you're seen in or how many clothes you're changing in the film.
+- The other actresses, who are called my contemporaries, they started with a megastar. They were superstars overnight and are the same even today.
+- I had no work after 'Gangster' for two years, and my sister Rangoli met with an accident that destroyed her looks. My struggle with my parents combined with the industry not accepting me made me feel alienated.
+- I think I am still underpaid. I want to make as much money as my male counterparts.
+- I have a knack for choosing the wrong people.
+- Hits and flops are overrated.
+- I think the rejection - if it's taken in the right spirit, it can make you a better person. And I think that is what I've always striven for. If one thing didn't work out, a project or anything, it doesn't mean that I lose my own confidence. In fact, I give myself a lot more confidence and opportunities.
+- Tone matters more than words.
+- It is true that some people are interested in the buying part of things... They want to buy everything from the movie reviews to the media net to the opinions and so on.
+- I'm my own hero on the sets; why should I work with other heroes? The Khans did not want to work with me when I started. Why should I work with them now?
+- Somewhere down the line, I realised that dairy products were giving me acidity, so now I am a vegan.
+- I want to make films that cater to the world audiences.
+- I started from B-grade films, and today I'm the number one actress of this country... whereas other actresses, whom you might call my contemporaries, they have had no growth in whatever platform they were launched... they are still there and have not risen to another platform.
+- I don't find anything upsetting or gross or degrading about fighting with a mental illness: Bipolar or Schizophrenia.
+- I cannot approach someone; I lack the confidence when it comes to the guy I desire. I'm very good when it comes to matchmaking and hooking others up. But I can't help my own cause.
+- People talk about PlayStations, video games, social network and Twitter; I can't handle it.
+- My views are very fluctuating. I have very contradictory takes on the subject. Dating is easier, while marriage is hard work. You see your friends having early divorces, and on the other hand, you see your parents having a successful marriage.
+- Even after 'Gangster' being a success, I was considered a B-grade actress and was a sidekick, even though I was good at what I did, and was jobless for two years.
+- Why should Bollywood accept me? I should accept Bollywood. I don't care if Bollywood has accepted me. I don't seek acceptance. I don't need to live up to anybody's expectations.
+- I am naturally slim, actually thin. So, for years I have been trying to get some curves. I tried eating food that would increase my weight, but I only ended up putting fat around my stomach. So, now I have made peace with my body.
+- I feel that we, as Indians, have a knack for loving a stereotypical, sobbing, sympathy-seeking personality. I feel that we need to promote quirky, cool and youthful talent. We have to stop propagating the sob-story angle of celebs, where they try to be larger-than-life. That is very outdated. It is so boring that it puts you to sleep.
+- Nobody is like Tanuja Trivedi in this whole world.
+- I was very insecure at the beginning of my career. I didn't value my talent. I would have probably skipped signing up for movies that I didn't want to do if I had understood that I had been accepted and people liked my work.
+- What people see is just your career graph and the films you do. But that's a very small aspect of my life.
+- I dread shooting with animals. I hope I never get a script with snakes.
+- I know the consequences of my decisions. I've said no to the biggest of brands. So when I say no to something, I know how much business I will lose out on.
+- I am not comfortable walking the ramp for just any designer. I am particular about who I associate with.
+- They will always assume that this guy - an upcoming actor, what if he becomes a star tomorrow? He would not work with me then... so I might as well choose to be nice. But women are not treated with the same attitude. Women they treat really badly.
+- My ancestors are Rajputs from Jaipur, a lineage of the royal family.
+- Freedom of being alone is intoxicating.
+- There have been interviews with people saying they are jealous of Kangana. There are so many people who are jealous of my success.
+- I am a very proud Hindu. The foundation of my personality is laid on the teachings of Swami Vivekananda or Sanatan Dharm or the Geeta. And if my religious practices or anybody's religious practices is given any kind of sadistic name, it instills fear about other person's religious practices.
+- For my life, I need to make my own choices.
+- No one can guarantee success of a film.
+- I need nothing from my companion. No money, no financial security, no emotional support, nothing. All I want is the freedom to be myself.
+- This man who was my father's age hit me hard on my head when I was 17. I started bleeding. I took out my sandal and hit his head hard, and he started to bleed, too.
+- Initially, I wanted to do films with A-list actors when I was struggling. I was hoping that I could also get that platform where I'm launched with Shah Rukh Khan, Salman Khan or Aamir Khan... and with them my career could also start, but it didn't happen. And then came 'Queen.'
+- If a woman is super-successful, she is called a psychopath.
+- I come from a middle class family, and my parents weren't too supportive of my career choices.
+- Even when I was rebelling against my father, the point was to follow my own intuition and instinct.
+- I don't seek validation outside, not even with the audience. Today they like me, but tomorrow they may hate me. I don't want to be anybody's role model.
+- The kind of roles which you get, people identify with your roles, and it then leads to the kind of brands you get.
+- When I did these psychological characters like the drug addicts, the ones who were rejected and dejected, I started to feel a sort of melancholia which was very unnatural for me to have at a teenage. Then I avoided those characters.
+- Sucking up to a director means you are unsure of your talents. I'm not.
+- While choosing a fashion show, I take into consideration the designer and the collection. Then only I said yes to do a show.
+- Male actors get into production, share profit, and they don't take money at times but are involved in some capacity which is economical and resourceful. These things suit them; as they have made a place for themselves, they have command over the box office.
+- A lot of my friends are getting married, but I don't think that is what I need. I am under no such pressure that if everybody is having a boyfriend, I too should have one.
+- I am now in a position to choose roles. I did not have so many offers before 'Queen,' but now things have changed a lot.
+- I really don't want to be known as a fashionista. I'd like to be someone more than that.
+- It's not like what I do or what I wear is my copyright. What I'm wearing now also is an inspiration. It is how I saw it on the mannequin, and I just wore it, so it's in a way copied. But obviously, I wouldn't want to spend my life thinking about dresses. It is such a waste of life.
+- Sometimes films might not work, but you as an actor should keep working. Because no matter how much you panic about how your film didn't work, eventually, when you step out in the real world, there are people who value you as an artist.
+- I liked the fact that my father had a lot of expectations from my brother. I probably wanted to be that person who he could be proud of.
+- It's very hard for me to find any sort of shame or blame in my life. I'm not made that way.
+- I don't really give into all that philosophical talks that 'money is not everything.'
+- Before I turned vegetarian, I used to often cook seafood or my favourite breakfast of eggs and bacon. Now, I love making pulao or rice with lots of spices and vegetables.
+- In metros, girls are very independent, conscious and aware. But in the interiors of our country, where education is not given importance, they continue to be oppressed. But it is important for every woman to acknowledge what she wants from herself rather than going for what people expect from her.
+- It's very hard to live in an environment where you're reminded, constantly told that your existence just happens to be here... That you are not meant to be here.
+- When I moved to Bombay, it was very harsh. I was nothing like what I am today. I couldn't speak a word of English. In England, people might be very understanding about that, but in Bombay, they're not very forgiving. 'If you don't speak English, how do you expect to work in Hindi films?'
+- You spend so much to buy these media net stories or full page ads to build perception... you can rather save this money and put it in the making or marketing of the film.
+- Success is the best revenge. I always feel women should answer back either with their sarcasm or success.
+- Physically, it is very demanding as an actor, and I don't want to put a lot of focus on that, but I think it is emotionally and mentally a lot more... It can completely twist you... We abandon ourselves for days and months, and by the end of it, we are twisted people which you make fun of.
+- I don't find it humiliating when they call me a psychopath or witch.
+- Women empowerment does not mean you create complex among men. Then it will take 20 more years to empower men. It is all about evolving as a soul, as a human being. It does not mean that you become a sexist.
+- Money can't buy everything, but it can buy most of it. Because of money, I could give my parents a comfortable life.
+- To expect this larger-than-life, holier-than-thou sort of existence from us is not possible. We as much want to make our own mistake as a man does.
+- My parents wanted me to be a doctor. So I took up science, but then realised that my heart was not in it at all. The thought of treating ailing people was very depressing.
+- I don't know if it is of any joy to humiliate people. No matter what, whether you're high in life or low in life, humiliation and such kinds of things should just be ignored. I don't derive any pleasure from running people down.
+- I come from Surajpur, a valley in Himachal Pradesh near Manali that is named after my great grandfather Sarju Singh Ranaut.
+- I have been the struggler of the century. Fortunately, everyone loves the underdog.
+- Imagine: in the medieval ages, there was no evidence of how the history of mankind has been affected by witchcraft. But there is significant factual history of how brutality and sadism of mankind have been displayed in the most obscene manner in the name of witch-hunt.
+- Item numbers are not my cup of tea.
+- Image means a lot. It is everything in the business that we are in.
+- I think there are things that you look for when you're younger, and you think they are going to make you happier or make you feel complete. That's not going to happen, and it's really about living the moments. Eventually, you reach a point when you're at ease with your life and don't have any unrealistic expectations.
+- I followed my instincts; I followed my intuition, and it paid off.
+- I schooled in Himachal Pradesh. I had taken up science and, initially, wanted to become a doctor. There are few career options for students of science though, so I shifted to Delhi and decided to try theater instead.
+- In my film 'Queen', there was a funny moment with the bra. My director called and said they are blurring the bra. They said it is vulgar. Our director was furious about it. We are artistes... We see props as they are. A woman's bra is not a danger to the society.
+- My parents gave me the easy option that if you're going to go your way, that's the highway. You can expect no funds and no support, which I think was legitimate; that was a fair option.
+- When I left my home to become an actress, my father didn't give me a single penny. I struggled a lot, and they had no idea what I went through. My grandfather even asked me to drop my surname when he learnt I was joining films.
+- When I was born, my parents - my mother especially - couldn't come to terms with that fact that they had another baby girl. I know these stories in detail because every time a guest visited, or there was a gathering, they repeated this story in front of me that how I was the unwanted child.
+- I am extremely proud of my rags-to-riches story. It's fun to be a misfit or an underdog if you acknowledge your gifts and befriend your obstacles.
+- In Bollywood, if you work with a superstar, even if you are a newcomer, you become a superstar. That didn't happen with me.
+- I am not ashamed of anything - not my past, not my affairs, not my body, and most definitely not my desire.
+- All beautiful things in this world are because of women.
+- If you work with big stars, then they become the lead actors. It's not that I don't want to do films with big stars, but I would rather do the films where I get the title roles.
+- Relationships can be very traumatic. But being in a healthy relationship can be very empowering.
+- I always wanted to be the person to whom people looked forward to give opportunities. As opposed to always being the person who wants to work with others and who is always the backup: where it's like, 'If nothing works out then OK, let's get this person.'
+- I write poems, I meditate. I don't live up to people's expectations. I don't do the conventional cool things - I know I am the coolest person.
+- When you are romancing a woman in a relationship, it should be poetic. It should have layers.
+- My man has to be more intelligent than I am, which is difficult to find. He should definitely be more successful than me, which is not so difficult to find. I'd be a fool to expect a better looking man than me, which is impossible to find.
+- Nobody was my support. You have to support yourself, and I think that is the beauty of being a woman. You can handle anything and be ten times better than men.
+- Modesty is good. But not when it comes at the cost of honesty.
+- Our society loves raw character; we love raw women. We don't love our mother because she is hot and sexy: we love our mother because she is our mother. We love our granny because she is our granny. We value her. We don't remember anyone's face from our childhood; we love our granny's face.
+- I don't know why everyone feels the pressure to look young. Personally, I hate it. I don't want to inject Botox and look young forever. It's living in denial and anything that has an undercurrent of this philosophy is bad for your growth.
+- In India, it's a matter of fact that a girl child is seen as a liability. Probably the only expectation is that you grow up to a presentable young woman who can get a decent spouse.
+- In 'Rangoon', I play an action star of the 1940s.
+- What can you do if they have slapped you with a legal notice? You have to reply. For all you know, they have taken you to jail or something.
+- Going vegetarian - and then vegan - has calmed me down, and it has also made me physically and emotionally strong. I do crave meat once in a while, but I find that spiritually, non-vegetarian food works against my emotional health.
+- I don't feel like a 27-year-old; I feel I am way mature than someone that age.
+- My sister and I had jointly heard the narration of 'Revolver Rani' in Tigmanshu Dhulia's office. After hearing the narration, my sister was very scared and adamant that I should not do this film, as my character was twisted, neurotic, violent and abusive.
+- My biggest asset is that I know how to learn, and that, I believe, will help me in the long run.
+- Many people are insecure of many people.
+- The thing about Bollywood is that you can't just quit it even if you have little fame. You have to stick around and keep trying.
+- I am an independent girl. I always put my work first in my priority.
+- I think the kind of films and roles I do takes a whole year... I think it is justified. At some point, we have to come to that place where we are equally paid. It is a small step... we are headed to that direction.
+- I would never be able to spend all my life in a busy city like Mumbai.

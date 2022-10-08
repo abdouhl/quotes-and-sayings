@@ -1,0 +1,81 @@
++++
+author = "Tom Herman"
+title = "Tom Herman Quotes"
+quotes_len = "75"
+description = "the best 75 Tom Herman Quotes"
++++
+- It's unfortunate people can twist and turn things to fit whatever narrative they'd like it to fit.
+- I got criticized at Ohio State, and my boss took up for me. I got criticized at Iowa State at times, and my boss took up for me.
+- Phenomenal people in Ames and throughout the state of Iowa.
+- Pressure comes from being unprepared.
+- How do you motivate a human being to do things against his own nature? There's two things: love and fear. And to me, love wins every time.
+- Belief that influences behavior influences results.
+- We will graduate our players, and we will do it all with integrity and with class.
+- I think pressure is that uneasy feeling that you feel when you're unprepared.
+- As a coach, you never take your foot of the gas when it comes to enforcement of your culture.
+- If you win the turnover battle, you're gonna win more than you lose - and quite a bit more than you lose.
+- I don't think you can ask anybody in any walk of life to do anything at a championship level without doing it over and over and over and over and over again in preparation.
+- Winning isn't just about the material things you attain, it's about being your best in all you do.
+- You should want to be the best at whatever your chosen field is.
+- If you win the turnover battle and the explosive play battle in the same game, you win it 98 percent of the time. Now, can you win it with only winning one and losing one? Sure, but if you lose both of 'em, you only win 2 percent of the games where that occurrence happens.
+- We like to think that we practice so hard that the games are easy.
+- The University of Texas is a place, a special place, that deservedly holds a seat among college football elite.
+- One of the neatest things I saw with the team at Ohio State - and we preach about it all the time as coaches - is that the team genuinely played for the happiness, success and rings on the finger for the guy next to them.
+- To me, Jon is not a fun name. Thomas is not a fun name.
+- I've seen really, really talented teams that don't care about each other and are average, maybe above average is about as good as you're going to get.
+- You need explosive plays to win.
+- Twitter gives you a forum to let loose a little bit and have fun.
+- I've learned a lot about lockers.
+- Football is a violent, violent sport, and you have to practice that way in order to get at elite levels on Saturday, in my opinion.
+- I've failed hundreds of thousands of times.
+- We have to learn how to manage expectations.
+- It's really hard to go on a 10-, 12-play drive against a really good defense and put the ball in the end zone.
+- I don't take anything too seriously.
+- My wife and I made a pact a long time ago we really don't give gifts on holidays. We figure if it's coming from the same bank account, why not take each other out for the day shopping or whatever.
+- Pressure is self-inflicted.
+- I was a highlight coordinator. My job was to go in and watch games, watch and type. Basically every time the camera frame changed, I had to log it as something: 'Emmitt Smith rushed for 4 yards... Close-up of Jimmy Johnson on the sidelines... 37-yard field goal.'
+- There are a lot of three and four-star guys undervalued because of intangibles.
+- We all want to be praised, right?
+- Yards don't matter. The score is all that matters.
+- I think coaches who don't coddle but praise players when they deserve it get the best results.
+- I think there's a lot of different ways to score points and win football games and be efficient offensively, just like there is on defense and special teams. That's what makes this great game so special.
+- I'm a guy who was born in Cincinnati and whose entire family except for my mother still lives in Cincinnati - my grandmother, aunts, uncles, cousins, nephews, you name it.
+- If your players believe in what you're telling them, no matter how trivial the subject, no matter how important the subject, then it influences the way they behave, and that will influence results.
+- We will win championships.
+- I was at Texas State in 2005. I'd never coached quarterbacks and never called plays a day in my life. David Bailiff hired me and we go 11-3, and Barrick Nealy breaks all kinds of QB records. I grinded. I got my hands on every drill tape I could. I went to clinics. Every brain I could pick, I picked. And I wasn't too proud to ask the kids.
+- That's mind-blowing to me that people would say that because you have nice things, you're soft. No, you're soft because your culture is soft.
+- Recruiting is all about relationships, it's not really about the facilities or the schools involved.
+- At the end of the day I like winning.
+- I think first and foremost, you've got to be able to run the football to be successful in college football. Some teams have thrown the ball 60 times a game and had success doing that. But I think you've got to be able to run the football to have success.
+- We changed the University of Houston in 23 short months more than anybody thought was possible. Not just from a wins and losses standpoint but from an infrastructure standpoint as well.
+- I sleep so easy knowing that I never once lied to a player, never once lied to a recruit, and never once lied to any coaches or administration. Those are the people I care about.
+- Greg Davis, Ron Randleman, David Bailiff, Paul Rhoads, Urban Meyer. I would be remiss if I didn't mention all of them as influences.
+- When you play for the guy next to you, that's when you win championships.
+- I've always been very intimately involved in the playcalling on game day.
+- We define our success internally.
+- I delete the Twitter app during the season.
+- We will build men of character.
+- I do catch NFL games every now and again, and it doesn't remind me of anything that I watch when breaking down opponents or watching college games on TV. It's completely different.
+- It's the human condition. We gravitate to what's easy, things that are comfortable, convenient, pain-free, self-serving.
+- Losing has to be awful. You can never get used to losing. That's one of the biggest downfalls to a lot of teams.
+- I want my kids to win. Winners get the corner office, the big house, the hot wife, the whole nine.
+- Our goal is, train harder and more physical than any program in the country.
+- The price of championships will never change. It's been set long before me. It will be the same long after me. That price is hard work, sweat, blood, tears, fatigue and exhaustion and doing so much more than what is required of you.
+- Players will get you above average. To get to the elite, you need culture and leadership.
+- When the President of the United States comes out and says, 'If I had boys, I wouldn't let them play tackle football,' that's a big punch to the gut for our sport.
+- I believe in routine.
+- I tell our team all the time, nobody once in the history of this great game - nor will they ever, I hope - has stood at a championship stage or podium holding a championship trophy and say, 'We out-finessed everybody.'
+- I've never met a successful person in any walk of life - from Michael Dell to Peyton Manning to Barack Obama - that when you ask that person, 'Hey, how did you get here, and what was your road like?' They say, 'You know what? It was really easy. I slept in all the time, turned my papers in late, didn't pay attention to people and my surroundings.'
+- For me, nobody's re-inventing football. We just have to do it better than everybody else.
+- I'm an anti-standard operating procedure guy.
+- We have to learn how to manage self-inflicted pressure.
+- I was a Division III kid whose dad wasn't a coach.
+- Once you coach football in Texas, you fall in love with it.
+- I think most athletes want to be told when they make a mistake. They don't want to be coddled. They can deal with criticism, especially when it's valid.
+- The biggest expectations we'll always have for the University of Texas will be from within.
+- I don't believe in luck.
+- It's amazing how much better coaches we become when you have really good players.
+- You can't win championships without playing great defense.
+- Longhorn football has been - and always will be - a national power, winning and playing for national championships with great pride and passion, supported by an unbelievable fan base.
+- Bankers don't get to do this. For all the hours, the late nights, lack of sleep and hours of pulling your hair out from dealing with 18- and 19-year-old kids, it's a pretty cool job.
+- Pressure is self-doubt when you're unprepared.

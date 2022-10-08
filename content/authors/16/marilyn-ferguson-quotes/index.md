@@ -1,0 +1,61 @@
++++
+author = "Marilyn Ferguson"
+title = "Marilyn Ferguson Quotes"
+quotes_len = "55"
+description = "the best 55 Marilyn Ferguson Quotes"
++++
+- We are constantly nothing but a bunch of energy being processed. Into this whirlpool, the more complex the system, the more energy it requires to hold it together. Therefore, the more complex - the scientists call it 'coherent' - the more fluctuations are possible.
+- Fear is a question: What are you afraid of, and why? Just as the seed of health is in illness, because illness contains information, your fears are a treasure house of self-knowledge if you explore them.
+- Yes, an individual could be electronically stimulated to fear, anger, or euphoria from a distance. However, the procedure is complicated, not always accurate, and far too tedious and expensive as a method for taking over control of the world.
+- Evolution happens in jumps, very rapidly.
+- It is a dark, unspoken truth that the powerful - the 'ruling class' - make up the rules as they go along.
+- The ferment and viability in any society is directly proportionate to the number of people actively living their ideas. This is not positive thinking - it is positive action: the spirit of experiment.
+- Despair is a cop-out, the ultimate abdication of all responsibility, in which people feel justified in their feelings of impotence. But if, on the other hand, you feel that your work in the world does make a difference and that you do have the power to change things, the nay-sayers will turn a deaf ear.
+- After a dark, violent age, the Piscean, we are entering a millennium of love and light in the words of the popular song the 'Age of Aquarius,' the time of the mind's true liberation.
+- I didn't intend to go into the seminar business.
+- Leadership desperately needs women.
+- We rarely think to mark the trail for others to follow. 'Live and learn,' we say, acknowledging the value of experience. We usually forget about 'Live and teach.'
+- We get 150 notices a week for seminars.
+- We appear to have form, but we are like a whirlpool. We appear to have form, but we are just whirling electrons.
+- The New Age, I think, is a term that is well laid to rest.
+- 'Aquarian Conspiracy' is the term I have coined for the network of people working for social transformation based on personal inner change. Such a notion is not at all alien to the American milieu.
+- Victory doesn't lie in taming our nature but in progressively discovering and revealing more of it.
+- The paradigm of the 'Aquarian Conspiracy' sees humankind embedded in nature. It promotes the autonomous individual in a decentralized society... The new perspective respects the ecology of everything: birth, death, learning, health, family, work, science, spirituality, the arts, the community, relationships, politics.
+- Most of us are having to invent, discover, and create the next steps of our lives without a light, a map, or a relevant tradition.
+- We are going to see a burst of creativity that will make the Renaissance pale in comparison.
+- Although focusing is best pursued as a deliberate strategy over a period of time, it is also valuable as a kind of psychological first-aid, as useful to a distressed, 'stuck' person as a tourniquet to an accident victim.
+- The best artists are scientific, and the best scientists are artistic.
+- In the most important areas, as individuals and countries, we don't change our behavior until we have our backs to the wall.
+- If you start thinking of stress as not a bad thing but inevitable, resulting in change that itself leads to transformation that leads to sharp and radical changes... it can be a very useful way of thinking.
+- Over the years your bodies become walking autobiographies, telling friends and strangers alike of the minor and major stresses of your lives.
+- We should not become so ashamed of the disappointments and travesties of democracy that we become ashamed of the idea itself. It is the outer reflection of our self-acceptance.
+- Achievers have an enabling attitude, realism, and a conviction that they themselves were the laboratory of innovation. Their ability to change themselves is central to their success. They have learned to conserve their energy by minimizing the time spent in regret or complaint. Every event is a lesson to them, every person a teacher.
+- Your past is not your potential. In any hour you can choose to liberate the future.
+- Ultimately we know deeply that the other side of every fear is freedom.
+- Problems can be experienced as... a chance for renewal rather than stress.
+- People who have discovered a purpose feel better, like themselves more, age more subtly, and live longer.
+- The greatest revolution in our generation is that of human beings, who by changing the inner attitudes of their minds, can change the outer aspects of their lives.
+- Radical common sense is the wisdom gleaned from the past that recognizes the perishable opportunities of the moment. It is the willingness to admit error and the refusal to be deterred by failure.
+- People are seeking more power in the individual and less in government and institutions; they want more cooperation and less competition.
+- I feed on conferences.
+- I believe that social change has almost reached critical mass. So many people have undergone personal transformation that their effect on society is having a geometric - not arithmetic - impact. This coalescence of energies brings about meeting, networking, and a sophistication in communications that is unprecedented in history.
+- You can break through old limits, past inertia and fear, to... richness of choice, freedom, human closeness.
+- Sometimes things have to get worse before they get better.
+- The chaos in our world may have brought you close to despair, but if you are willing to look at reasons for hope, perhaps you are ready for the 'Aquarian Conspiracy.'
+- Real progress in understanding nature is rarely incremental. All important advances are sudden intuitions, new principles, new ways of seeing.
+- You can certainly make the case that we're devolving, that it may already be too late to save the rain forests, let alone the planet.
+- If the thing that you want to happen is happening... it's no longer a movement.
+- Public policy is designed by spin doctors who aim to keep our heads below the water. The public good is not a consideration, and their self-serving agendas prevail over common sense.
+- A self-defined challenge is an irresistible teacher.
+- We have new ways to be born, humane and symbolic ways to die, different ways to be rich... new ways to be human and to discover what we are to each other.
+- Awakenings occur when we lose faith in the viability of our institutions and the authority of our leaders. Religious and spiritual awakening gives people a new vision of themselves, which is then transplanted into social action.
+- Academicians get nowhere.
+- You can be more productive, confident, comfortable with insecurity.
+- No one can persuade another to change. Each of us guards a gate of change that can only be opened from the inside. We cannot open the gate of another, either by argument or emotional appeal.
+- Everybody knows that love is better than hate, and peace is better than war.
+- Power is changing hands, from dying hierarchies to living networks.
+- 'Focusing' is no conventional repackaging of self-help wisdom. It is at once a manual and a philosophy. It talks about the body's wisdom, the steps of the focusing technique, how to discover the richness in others by learning to listen.
+- There is a better place, the hard but joyful work beyond struggle, beyond the shadow of a doubt. It is our real home, the long-remembered future when everything worked and things made sense.
+- The struggle to make people understand the need for change is over.
+- A leaderless but powerful network is working to bring about radical changes in the United States. Its members have broken with certain key elements of Western thought, and they may even have broken continuity with history... this benign conspiracy for new human agenda has triggered the most rapid cultural realignment in history.
+- The brain's calculations do not require our conscious effort, only our attention and our openness to let the information through. Although the brain absorbs universes of information, little is admitted into normal consciousness.

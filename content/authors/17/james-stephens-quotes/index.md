@@ -1,0 +1,42 @@
++++
+author = "James Stephens"
+title = "James Stephens Quotes"
+quotes_len = "36"
+description = "the best 36 James Stephens Quotes"
++++
+- Knowledge, may it be said, is higher than magic and is more to be sought. It is quite possible to see what is happening and yet not know what is forward, for while seeing is believing, it does not follow that either seeing or believing is knowing.
+- Quietness is the beginning of virtue. To be silent is to be beautiful. Stars do not make a noise.
+- Sleep is an excellent way of listening to an opera.
+- Life runs to death as its goal, and we should go towards that next stage of experience either carelessly as to what must be, or with a good, honest curiosity as to what may be.
+- Man works outwardly and inwardly - after rest, he has energy; after energy, he needs repose; so, when we have given instruction for a time, we need instruction and must receive it, or the spirit faints and wisdom herself grows bitter.
+- Men come of age at sixty, women at fifteen.
+- God did not need any assistance, but man did; bitterly he wanted it, and the giving of such assistance was the proper business of a woman.
+- Any fool can wash himself, but every wise man knows that it is an unnecessary labour, for nature will quickly reduce him to a natural and healthy dirtiness again.
+- If men understood domestic economy half as well as women do, then their political economy and their entire consequent statecraft would not be the futil muddle which it is.
+- Women and birds are able to see without turning their heads, and that is indeed a necessary provision for they are both surrounded by enemies.
+- A woman is a branchy tree and man a singing wind; and from her branches carelessly he takes what he can find.
+- By having much, you are fitted to have more.
+- In that wide struggle which we call Progress, evil is always the aggressor and the vanquished, and it is right that this should be so, for without its onslaughts and depredations humanity might fall to a fat slumber upon its cornsacks and die snoring.
+- To ask questions can become the laziest and wobbliest occupation of a mind, but when you must yourself answer the problem that you have posed, you will meditate your question with care and frame it with precision.
+- A sword, a spade, and a thought should never be allowed to rust.
+- A Leprecaun without a pot of gold is like a rose without perfume, a bird without a wing, or an inside without an outside.
+- Women are stronger than men - they do not die of wisdom.
+- What the heart knows today the head will understand tomorrow.
+- Originality does not consist in saying what no one has ever said before, but in saying exactly what you think yourself.
+- We are washed both on coming into the world and on going out of it, and we take no pleasure from the first washing nor any profit from the last.
+- When a woman speaks to a man about the love she feels for another man, she is not liked.
+- Finality is death. Perfection is finality. Nothing is perfect. There are lumps in it.
+- We get wise by asking questions, and even if these are not answered, we get wise, for a well-packed question carries its answer on its back as a snail carries its shell.
+- Curiosity will conquer fear even more than bravery will.
+- The inexorable compulsion of all things is towards health or destruction, life or death, and we hasten our joys or our woes to the logical extreme. It is urgent, therefore, that we be joyous if we wish to live.
+- Under all wrongdoing lies personal vanity or the feeling that we are endowed and privileged beyond our fellows.
+- A secret is a weapon and a friend.
+- Let the past be content with itself, for man needs forgetfulness as well as memory.
+- To work is nothing; the king on his throne, the priest kneeling before the Holy Altar, all people in all places had to work, but no person at all need be a servant.
+- The mysteries of death and birth occupy women far more than is the case with men, to whom political and mercantile speculations are more congenial.
+- A man and a woman may become quite intimate in a quarter of an hour. Almost certainly will they endeavour to explain themselves to each other before many minutes have elapsed; but a man and a man will not do this, and even less so will a woman and a woman, for these are parallel lines which will never meet.
+- Chaos is the first condition. Order is the first law. Continuity is the first reflection. Quietude is the first happiness.
+- The trouble of the king becomes the trouble of the subject, for how shall we live if judgement is withheld, or if faulty decisions are promulgated?
+- To understand the theory which underlies all things is not sufficient. Theory is but the preparation for practice.
+- You must be fit to give before you can be fit to receive.
+- There is no tragedy more woeful than the victory of hate, nor any attainment so hopelessly barren as the sterility of that achievement; for hate is finality, and finality is the greatest evil which can happen in a world of movement.

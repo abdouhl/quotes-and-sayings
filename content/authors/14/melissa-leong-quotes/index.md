@@ -1,0 +1,105 @@
++++
+author = "Melissa Leong"
+title = "Melissa Leong Quotes"
+quotes_len = "99"
+description = "the best 99 Melissa Leong Quotes"
++++
+- Australians do love a good food festival. From regional gems like The Taste of Tasmania to Margaret River Gourmet Escape, diehard eaters have a litany of opportunities to revel in Australia's great produce and chow down on food made by some of the brightest culinary talent from here and abroad.
+- For many of us, milkbars gave us our first taste of the concept of saving and spending, treats and indulgence.
+- I've really missed my Reformer Pilates sessions during lockdown because I'm someone who likes to workout with a lot of toys!
+- One of the best things about 'The Chefs' Line' has been seeing how these generations-honed recipes fare when they go up against professional ones.
+- Think of the phrase 'dining institution' as a badge of honour. One that is earned after many years, and many more hearts won.
+- You don't have to follow every recipe to the letter.
+- The idea of eating one kind of food day in and day out, for some, is sometimes the only option.
+- I love any of Rick Stein's television productions - the way he speaks about food is with such love and respect.
+- I do love fashion as a mode of self expression, and I appreciate it for being wearable art.
+- Knowing how much was sacrificed to give me the opportunity to find the thing that lights me up isn't lost on me, and it's something I know a lot of people can relate to, whether their parents arrived here in Australia recently or not.
+- Our favourite restaurant, cafe, noodle joint or eating house is always there for us when we need them, from morning coffee to major milestone, hump day or Fri-yay.
+- I live a very straight forward life and my job is public, my life isn't. That's a very clear delineation I've made from the beginning and will always tread that line.
+- I have a confession to make: my name is Melissa Leong and I am a former food blogger.
+- I would have these massive eating sessions with my chef friends where we'd go out for a whole day and eat all of the things, and it never occurred to me once that all of my friends are dudes who are six-foot-something or 150 kilos. I would just match them to the toe.
+- Given that southern Italian pasta-making doesn't incorporate the richness of egg yolks like they do in the north, even the basic hero of Italian cuisine - pasta - is vegan.
+- In Australia, Chinese food culture has imparted flavour, dimension and excitement to the way we eat.
+- Dad was a draughtsman; he's now retired. Mum was a nurse who spent a lot of her time in ER and oncology. She's such a compassionate, generous person. If I was meeting her on the worst day of my life, I'd be very grateful to have met her.
+- I am very proud of my family and my heritage and my history, and I'm also proud of my own achievements.
+- I think as a kid, you just want to be accepted by the people around you and largely I was.
+- As Australian palates continue to be curious and enquiring, so does the variety and regional specificity of cuisine options.
+- It's hard to comprehend a hot brunch menu without a shakshuka.
+- Everybody deserves to be seen and to be heard. Regardless of whether that is your culture, your language, who you love, your ability, or the way you chose to live your life, everybody deserves to be seen and be heard.
+- Every so often, the hospitality industry gives us a champion - a bright spark that lights up a room and makes everyone feel that little bit extra special just by being around them. Simon Lay - aka. Charles Bronson from the East - was such a man.
+- Almost everyone who loves to cook has at least one recipe handed down to them from a member of their family or community, and those kinds of recipes represent generations of cooking, testing, adjusting and evolving, so you know they're killer.
+- It seems like our first food memories, no matter how unpleasant, often end up making their way into our hearts anyway.
+- Laos is considered by many as the dark horse of Southeast Asian cuisine, a culmination of the rich food heritage of neighbouring countries China, Myanmar, Vietnam, Cambodia and Thailand.
+- To be considered part of the fashion zeitgeist is fun, but it will never steal my focus from my qualifications as a food writer, presenter and communicator.
+- I'm a big believer in digging deep when I travel to a new place.
+- As a food writer, it's my job to know each and every cuisine on this planet as well as I can.
+- My journey into the world of work after that was a bit more piecemeal than I would have liked, and it took a while to find the place in the world where I truly felt I belonged.
+- It takes a lot of guts to pull up stumps from a successful career, surrounded by the people you love.
+- If there's somewhere that in no way resembles Eastern Europe, it's Australia.
+- A reasonably new theme in the western world, Indian culture has known how to heal the body through food for thousands of years.
+- In the cultural Thermomix that is Australia, it's natural that we pick up a taste for flavours, techniques and ingredients that are integral to a place or a people not from our own background.
+- To be fair, restaurant culture has always been about bragging rights - such is the elitist nature of food. It's just that social media makes it that much easier for everyone to play the game.
+- I always want to be - and appear to be - competent. When I don't achieve that, I don't respond well.
+- Bangkok's street food culture may have recently been forced to clean up its act but personally, we think there's nothing better than a steaming bowl of noodles eaten within tripping distance of traffic, washed down with a cold beer, of course.
+- My family taught me to be adventurous. As fearless eaters, mum and dad were never afraid of exposing us to strange textures, scents, and offally bits - the works.
+- I have not yet had the great fortune of visiting India, but I really hope to one day. I am in love with the vibrance, diversity and energy of India.
+- Eating matzo ball soup for the first time was akin to a religious experience because of how deeply contemplative it was. It made me realise that something as simple as chicken soup - in any culture or religion, or through any perspective - can be very symbolic, nourishing and meaningful.
+- Chinese dumpling and noodle trainspotters know that the best versions usually come from obscure hole-in-the-wall joints where personal space and flattering lighting isn't a consideration and splatter-proof menus are customary.
+- When you think about a post-swim snack at the local pool, you'd be forgiven for thinking ham and cheese toasties, finger buns and red frogs before cassava fries, arepas and Latin tunes.
+- My job involves sharing food and the stories behind the plate, in part, via social media.
+- As a ghost writer, many words I have written have been for someone else.
+- I think it's important to be vulnerable and to pay attention to your emotions.
+- I believe in spirituality more than I believe in religion. But I like the idea of there being something bigger than us. What that is, I can't say for sure.
+- Freshly grated nutmeg over fresh pasta with truffle oil is simple perfection. It's also integral in any good bechamel or chai mix.
+- Singaporeans are food people, period. My first memories, let alone of food, were of sitting on the floor of the kitchen with my mother, watching her pound aromatics to make sambal and later on, learning to stuff wonton pastry.
+- Elevating baked eggs to exotic, spice-laden heights, Australians have come a long way since the days of only knowing Middle Eastern cuisine to be dried-out pucks of falafel, or the occasional late-night kebab.
+- I like showing people I can do something they wouldn't have pegged me as being able to do. I've always wanted to defy expectations.
+- For those of us who are lucky enough to not worry about where our next meal is coming from, it can be difficult to consider a life where the choice and supply of what you eat is extremely limited.
+- For me, a big part of anxiety and depression was not knowing how to say 'no' and wanting to please too many people... part of this process is learning to draw the line and slow down.
+- If it's a competition for which country has the best street food culture, you could do worse than back Thailand.
+- Milkbars were not only a crucial part of Australian food culture for nearly half a century, but also influenced the way many of us connected with neighbours.
+- First and foremost, if you want to be a good writer, you need to be a good eater. You need to be fearless when it comes to eating, you can't show predilections or bias.
+- In these increasingly self-focused times, emotional connection through food remains perhaps more than ever, the vital glue that holds us together or helps us reconnect with something we lost.
+- I have an affinity with Mediterranean cuisine. Spending a few summers in Italy, France, Spain and Turkey, there's something brilliant about freshly caught fish, slashed, scattered with a few herbs, a squeeze of lemon, a slug of good olive oil, then thrown on a grill.
+- Mental health is not a novelty; it's part of who we are and we need to treat it as if it were a broken arm or any other kind of medical consideration.
+- I have spent a lot of time in L.A. It's sort of like my third home - Sydney, rural Tasmania and then L.A.
+- I am a huge fan of so many Indian regions and dishes, but if I had to pick one, as simple as it is, 'dal' will always have my heart.
+- It's amazing that you can use your own body weight to exercise, and it's something everyone can do with no need for a huge budget.
+- Whether your job puts you in the public eye or not, being able to leave your work at work and come home to a different pace of life seems to me not only logical, but sustainable.
+- There's no point in sanitising your past. I believe everybody deserves to evolve and change their perspectives. To be human is an ongoing process.
+- If the experiences in my childhood have helped me become strong, then I can articulate those experiences and perhaps tell people out there that have gone through the same thing that they're not alone.
+- I'd like to see a return to old-school values, classic service and the old-world glamour of what dining - going out - is supposed to be.
+- For the most part, we've moved past the awkward-for-everyone period of food bloggers toting giant DSLR cameras and flash kits in restaurants, but that's been replaced by almost everyone armed with a phone stopping to immortalise their breakfast.
+- Not all of us were lucky enough to be born into a huge Lebanese family, where visiting relatives and being stuffed with copious amounts of pickles, hummus, felafel and kibbeh is not just a way of life but a birth right.
+- The symbolism of certain foods trip the nostalgic wire in all of us, whether the context is cultural heritage or geographic location.
+- To be a white man calling out racism is important.
+- Fast casual is a wonderful way to eat. The casualisation of fine dining has allowed everyone to feel comfortable, but at the same time you do sacrifice a sense of occasion.
+- I've been mentored by editors who encouraged me to be constructive and never cruel.
+- The great thing about discovering all the food treasures that Box Hill has to offer is that most of them are packed into an area small enough to wrap your arms around.
+- Our favourite restaurants, cafes and eateries put a lot of thought into what they do, mostly for our pleasure. Perhaps we should consider a little more often, what we bring to this edible equation.
+- I believe in being able to reserve things to yourself. That's the way I was brought up.
+- I am a tiny lady with curves... that's who I am.
+- Country town to the city heart, in every corner of the globe you'll find a Chinatown, a Chinese restaurant or an Asian grocer. From this vast and ancient culture, we credit noodles, dumplings, rice, countless spices and cooking techniques to have enriched every culture that they've landed in.
+- I don't really like being asked how I feel about being a 'household name.'
+- A key feature of Macedonia's protein dishes is the mix of meat, so you'll often find a stew of pork and chicken, for example, rather than a singular beast.
+- Perceived value is paramount for most diners; a feeling of satisfaction that what you've paid for is commensurate with what you've received. That is, provided your expectations are rational.
+- When you go through things like burnout you learn what to do and what not to do in the future.
+- British cookbook author Elizabeth David led the most adventurous life but is widely credited with bringing to the fore the importance of home cooking.
+- It's hard enough for most restaurants to create and present a single menu that makes sense to the diner, let alone two.
+- There's no sugar coating it: drought isn't sexy. Nobody wants to hear about it, and many of us who live an urban existence don't know much about it, if we're honest.
+- Asking people about their first food memories can be illuminating.
+- No matter where you live in the world, the contribution that Chinese migration has had on food culture is undeniable.
+- A restaurant open for less than a month is many things, but an institution it most definitely isn't.
+- I always set out to be open-minded and open-hearted in everything I do.
+- I am flattered that so many people have resonated with my style and that beauty and fashion standards in the media continue to grow in their inclusivity and reflection of the real world.
+- It's about learning how to slow down... I think this Covid environment that we're in there's a lot of sadness and a lot of pressure going on in terms of the uncertainty, but what it is teaching us or forcing us to do is appreciate the small things: be grateful for a slower pace of life.
+- Have you ever booked multiple restaurants so you could decide on the night where to go? Complained about the price of a dish that you loved? Ordered a coffee to use a cafe's wi-fi for half a day? If you said 'yes' to any of those, chances are there's a restaurateur out there who's hurting a little because of it.
+- I always want to celebrate inclusivity wherever I can.
+- For the most part, Australian diners are familiar with kimchi, Korean fried chicken and even bimbimbap - those deliciously nourishing bowls of rice topped with a rainbow of veggies and grilled meat - but that's where some folks' awareness stops.
+- From hearty beet-red borscht and soft, pliable pierogi dumplings to dill-scented pickles and hearty braises, the food of Eastern Europe - that is The Ukraine, Russia, Hungary, Poland, Georgia and their close neighbours - is tasty stuff, but it's never really taken off in Australia in any significant way.
+- Growing up in a Singaporean Chinese family, for me food is almost the primary means of communication between family members, both immediate and extended... hey, it beats discussing which cousin did better at end of semester exams, or who's getting married next, right?
+- Our shelves are groaning with the amount of cookbooks, it's scary.
+- Whether your childhood roots lie in the city, the country or possibly more crucially in the neighbourhood suburbs of this wide brown land, a trip to the milkbar with your friends has long been a beloved rite of passage when it comes to growing up in Australia.
+- I have a huge workload. I don't know how to say no sometimes.
+- For the young, and those newly introduced to Australia, milkbars represented an opportunity to dip a toe in the water when it came to discovering Australian food culture at a grass roots level.
+- India's obsession with food and its cultural importance in nourishing not just the body, but community and spirituality too, goes some way to explaining why Indian home cooking is hard to beat.

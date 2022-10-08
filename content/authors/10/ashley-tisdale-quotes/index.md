@@ -1,0 +1,125 @@
++++
+author = "Ashley Tisdale"
+title = "Ashley Tisdale Quotes"
+quotes_len = "119"
+description = "the best 119 Ashley Tisdale Quotes"
++++
+- I give dating advice on a regular basis. It's not that I'm any expert, but it's always nice to share that with your friends.
+- I'm not someone who likes to be in the whole Hollywood tabloids.
+- Zac Efron is like a brother who's just goofy and crazy. He plays a lot of practical jokes.
+- An 'OMG' of mine would probably be speaking on stage and performing in front of thousands of people!
+- I like to do a lot of cardio.
+- Cheerleaders deserve a lot of respect for what they do.
+- I love being busy.
+- Once in high school, I completely over plucked my left eyebrow all the way up to where you're not supposed to. I had no idea what I was doing and it looked terrible! My mom was like 'What did you do to yourself?' I was so embarrassed.
+- I just always feel that you need Degree deodorant when you have those moments whether they are embarrassing or whatever, but every day you should be protected. I wish that maybe I had a type of celebrity to look up to when I was young telling me what to use and stuff.
+- With every character, I just bring something that I can make my own.
+- It's a spinoff of the original Cracker Jack, but it's Cracker Jack'd. Frito Lay, when they asked me to be a part of it, I tried it, and I really like it. My favorite's the peanut butter and chocolate.
+- Sunday's my day off, where I eat whatever I want. I don't not let myself have something. I do love French fries and bread.
+- I love to sing! To be in a movie with musical number is the coolest thing ever!
+- I'm definitely old-school when it comes to dating. I'm not into the 'game' so much. If I like you, I'll confront you and be open about it. Then I expect you to come after me.
+- I never really looked up to celebrities when I was young.
+- I just like guys who have an edge to them. But it could go either way. Like, I have been into the surfer blond frat guys, and then there's definitely a thing where I like the dark, mysterious bad boy.
+- I'm a strong person. I'm also very sassy and a little bit angsty sometimes.
+- It's good to laugh!
+- The family on my mom's side, their whole business is inventing and pitching stuff. My grandfather is in infomercials. He's a pitchman, so if you're ever watching TV late at night, you'll probably see him pitching knives. My great-grandfather also invented the plastic cheese grater.
+- When fans come up to me and Vanessa, they're really sweet and ask for autographs - but once they see the guys, the girls tend to scream.
+- I am so scared of the 'Paranormal Activity' movies. I didn't think I was going to be able to sleep.
+- When I was really little, I was on a Pop Warner squad. I did it for a year. My dad was a Pop Warner football coach. I did it because my best friend was also on this cheer squad, and of course I looked up to my sister who was a cheerleader, so I wanted to cheer.
+- The 'believe' tattoo is because my mom always told me to believe.
+- I can take a week's vacation - maybe a week and a half - but after that, I'm itching to go back to work.
+- I had done a bunch of stuff before I even went to Disney. I'm so grateful for what Disney gave me and the experiences that I got, but at the end of the day, I can do so much more than what I did on that channel and in those movies.
+- I've always wanted to be sure my parents approve of what I do.
+- I always feel like I could look better. I'm, like, the worst.
+- Now before I work out, I think, 'I love exercise,' and it works.
+- I'm definitely the kind of person to wear underwear all the time.
+- I love keeping a connection with everyone I've worked with.
+- I don't mind being a Disney girl.
+- Communication is so key.
+- I've always wanted to be sure my parents approve of what I do. Even with my tattoos, my mom went with me.
+- I'm very sassy. I want to show people in my album I'm not like my characters on TV.
+- I'm actually most comfortable when I'm in a bikini, running around on the beach, like, no makeup. It's really free-feeling, whereas I'm always having to get dressed up and putting makeup on.
+- I don't drink, and I don't smoke. It's a personal preference. My mom has never drunk or smoked. I look up to my mom.
+- Just because I live in L.A .and I live in Hollywood doesn't mean I have to have a Hollywood life.
+- I'm a big romantic, so I love guys who are romantic too.
+- I love pink, it's so girly!
+- I'm so grateful for what Disney gave me and the experiences that I got, but at the end of the day, I can do so much more than what I did on that channel and in those movies.
+- Zac Efron would make us feel guilty for eating big dinners. He'd say, 'Do you really want to eat those carbs?' It was like, 'Thanks a lot!'
+- It's really hard when a celebrity dies out of nowhere, 'cause it's very shocking... surreal.
+- I have a sexy side to me, but it's more of a fun sexy.
+- I love sundresses and I love shorts.
+- When I was little, I saw the play 'Les Miserables' on Broadway, I thought it was the most amazing thing I have ever seen.
+- I definitely think cheerleaders have no fear.
+- I grew up in the business since I was three years old so I've always kind of been in front of the camera and grew up in commercials and I knew that I wanted to do it no matter what, I just loved it.
+- I don't really read stuff on myself. I like to just kind of stay away... I don't get too involved in that.
+- I love 'Modern Family; I think that is a great show. I don't get to watch tons of TV, but when I do, 'Sons of Anarchy' is pretty much the number one, and 'Modern Family' is one of my favorites.
+- Producing is just a big learning experience.
+- In high school, it was all about popularity, being with the boyfriend and all the girls thinking he's cute.
+- I love Christmas, not just because of the presents but because of all the decorations and lights and the warmth of the season.
+- I use Kerastase Oleo-Relax when I get out of the shower. It saves my hair. Actually, I've been doing this Brazilian treatment to my hair. It's a lifesaver; I don't even use a straightener anymore.
+- I just love carbs. And when I'm on vacation I definitely allow myself carbs, so it's always funny when people are like, 'Oh my gosh, you look great in your bikini.' I'm like, 'If you only knew what I had for breakfast!'
+- I don't go clubing. So, I don't smoke or drink.
+- You can be plain and smart, or pretty and smart. You can even be plain and dumb! You just have to be yourself.
+- You put your heart and soul into something and it makes you a little bit vulnerable.
+- My sister is totally my dad's daughter because she loves sports.
+- I wrote a song with Kara DioGuardi called 'What If,' and it's a really beautiful song. It's kind of like a rock ballad. There's a lot of guitars and drums in it.
+- I'm always surrounded by good-looking guys, like Zac Efron, so I have to be with someone who's not going to get jealous about any of that, or when I'm kissing somebody in a scene.
+- I love being creative.
+- I know I have pretty good instincts.
+- I like someone I can have fun with and who can be more laid-back than I am, because it calms me down.
+- I have a Maltipoo named Blondie. She is so cute!
+- I love being home at Christmastime.
+- I look at Jessica Alba and think she's got a great body. I think that's what women are supposed to look like.
+- My mom is very confident and she was always a role model of mine.
+- Growing up I always knew I had a deviated septum on the right side of my nose, which caused trouble breathing. The older I got, the worse it got.
+- The only way to grow is to challenge yourself.
+- I'm someone who's always on the go and crazy busy, so I like to keep snacks in my car and at the office, and Cracker Jack'd is a really yummy snack that I love. I definitely am a big snacker.
+- Don't let anyone, or any rejection, keep you from what you want.
+- I realized just how much exercise and eating right make a difference in how you feel now and when you get older.
+- I'd love to do more action stuff, in the future.
+- I love pancakes, and I actually do love healthy stuff. Like, I love gluten-free or whole-wheat pancakes. Breakfast is my favorite meal.
+- I feel like when I went back to my original hair color, a little bit of an edgier side came out.
+- My look is a very individual look. I love Pink, but I don't really dress like Pink.
+- I don't really believe in rules, but I do like old-fashioned dating where you don't call the guy until he calls you. I don't think it's like he's got to do this and that's the rule.
+- I've loved Michael Jackson, his music, his music videos.
+- It's important to have girlfriends, because guys tend to come and go.
+- I can't watch scary movies right now, because living on my own, it kind of freaks me out.
+- 'Scary Movie' was a different type of comedy than I'm used to. I've mostly done sitcoms, so working with David Zucker, who wrote the film and who directed the last two 'Scary Movie's and 'Airplane' and 'Naked Gun,' was a lot of help.
+- If I feel like someone's trying to bring me down, I just walk away from it.
+- I hope to inspire people, influence people.
+- I love clothes and I love fashion.
+- I was always superthin, too skinny, actually. I felt like someone could break me in half. I realize now that being a bit more curvy and toned is so much more beautiful.
+- There are so many emoticons these days, I'm kind of old fashioned.
+- I'm kind of boring.
+- For me, I just like to cut out bread. I like to keep the good carbs in my diet - I love pasta and Italian food - but I try to eat just that on the weekends and cut out carbs during the week.
+- I want to be with someone who wants to work as much as I do and who respects me like I respect him.
+- My favorite subject was English or creative writing. We did poems and making a magazine, and I did one on celebrities. I called it 'Celebrity Life Magazine.' I interviewed my good friend Kaley Cuoco.
+- I think fame can come and go.
+- I feel like people expect a lot out of girls, like you're supposed to know who you are and what you want out of life right now. Some girls know. I did. But lots of people don't know. You have to try a lot of things and not worry about what people are thinking.
+- Half the time on vacation, if I'm in a bikini, I allow myself - I eat, like, waffles and pancakes for breakfast, so that's me after, like, a big meal. I'm not the one that's like, 'Oh my gosh, I'm going to be on the beach.'
+- I definitely think cheerleaders have no fear. When I took the 'Hellcats' job, I was like, 'Whoa, this is a sport.'
+- I just loved playing the mean girl. When you're not like a character, it's kind of fun to play.
+- I'm not trying to run away from my fans at all. I want them to grow with me.
+- Hey, it isn't bad that I look young.
+- I'm in love with 'Bravo.' Me and my girlfriends love 'Bravo-ing,' which doesn't necessarily mean watching 'Bravo.' It's when you're a bum and you're on your couch watching reality shows.
+- People see me as cute, but I'm so much more than that.
+- I loved performing in the 'High School Musical' movies - that didn't seem like work - but the gym felt like torture!
+- I feel like every project I've ever done has had music involved in it somehow.
+- I like to have fun but my fun is different from other people's fun.
+- I love 'Sons of Anarchy.' I was so excited to be able to be on this show, just because I personally watch it. Of course, I come from Disney, and I have a lot of young fans, but I do have fans who have grown with me as well.
+- I'm living out my dreams and I love what I do.
+- I think whenever any guys come along they're intimidated, and they don't really talk that much unless I talk to them.
+- I text a lot people, because it's how I stay connected with all my family and friends when I'm on set and traveling.
+- I used to hate looking in the mirror. I've grown up into myself and now I'm happy with the way I look.
+- I never give up on things.
+- I know I come off like a very outgoing person, and yeah, I'm outgoing, but there's also a part of me that still likes to be in my little shell sometimes.
+- Degree actually came to me and asked me if I wanted to be a part of their campaign, and I thought it was just really exciting and important, obviously to my fans, and growing up I had tons of OMG moments. I get to share my own moments through video blogs.
+- My family belongs to a tennis club in Valencia, California, so I always go there. I play a lot of tennis with my dad and swim. And I like to go to the gym there.
+- I love Kelly Clarkson.
+- I think nothing ever ends on Disney Channel. They keep playing it.
+- You can feel like, 'I look really bad', but to other people you can be really gorgeous.
+- All the time people ask me, like, 'Oh my God, what did you do to get ready for the red carpet?' And I'm like, 'I just had Thai food.' I love to work out and do cardio and have a healthy, active lifestyle, but I also am not going to, like, freak out over food.
+- I did find some time to go to a record store and check out 'Headstrong' actually in the racks. It was pretty cool; I never thought I'd see my own CD sitting there with everyone else's. I made my Mom take lots of pics!
+- I've always been able to keep my private life separate from my business.
+- I don't like asking for an autograph, but I would like to take a picture with Jessica Simpson because I love her style!
+- I've had a normal life, but I have struggled to get here. It hasn't been handed to me and it hasn't been easy.

@@ -1,0 +1,14 @@
++++
+author = "Mary Callahan Erdoes"
+title = "Mary Callahan Erdoes Quotes"
+quotes_len = "8"
+description = "the best 8 Mary Callahan Erdoes Quotes"
++++
+- Clients are becoming more global; they're realizing that markets are more interconnected. It's no longer the local regional clients buying the local regional flavors. It's everybody asking for everything.
+- The U.S. has to realize it's got so much going for it. Let's just get ourselves to come together as a team - one team running the country, helping that country to get itself back on stable footing, which then cascades to the rest of the world.
+- If you put someone in a job who is thinking for even a moment about the next job, you have the wrong person.
+- I was a mathematics major and really into math.
+- I think the U.S. economy wants to be strong. It wants to be.
+- My grandmother Izzy taught me to balance her checkbook when I was 6 years old. She would sign the checks after I paid the bills. I had a chuckle with my grandmother recently on how 'unbalanced' her checkbook must have been years ago.
+- There is no substitute for hard work. There is a little luck along the way, but there is no substitute for really super-hard work, first in, last out.
+- You worry just as much about great performance as you do about underperformance.

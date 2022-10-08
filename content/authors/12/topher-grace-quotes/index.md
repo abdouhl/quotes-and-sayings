@@ -1,0 +1,37 @@
++++
+author = "Topher Grace"
+title = "Topher Grace Quotes"
+quotes_len = "31"
+description = "the best 31 Topher Grace Quotes"
++++
+- Working on 'Lonely, I'm Not' - I love the material so much, and it's spring in New York, so I'm walking home whistling every day.
+- I have a rule that I won't Google my own name.
+- It is strange when you're a loser in college, which I was, to then get your own show.
+- The 30-year-old male is about as far away from Valentine's Day as you can get in the human experience.
+- My folks still live in my childhood home, and so when I'm home with them, I usually feel the best.
+- Sometimes I get mad when I think that I only have maybe 40 or 50 more springs in New York. When I miss one, 'cause I'm on location for a film, I wanna go, 'That's it, that just cost me one of my 50!'
+- The script for 'In Good Company' was the first one I ever showed my dad.
+- It's hard to understand the films that you're in, because you never truly get to see them.
+- I'm very social. It's just most of my friends are not actors.
+- I really loved when I started doing '70s Show,' though I had never acted before, so it was a great training ground being on a sitcom.
+- The great thing about a sitcom is that you're in front of a live audience, so you really get in touch with what audience reaction is, but also there are lots of elements of film that you're dealing with, and there's kind of a great boot camp or graduate school mentality to it, because you're going to suck.
+- I feel bad for young actors who become huge stars too quickly, because you haven't had a chance to practice your craft a lot.
+- I do have a concern about projecting. I've never projected or had any reason to project before. In fact, the camera has only gotten closer to me going from TV to film.
+- I do like any kind of project that has both comedy and drama in it because in life you don't have one day where everything is funny then the next day everything is dramatic.
+- Most of my freshman year at USC, I'd just been partying, and I had zero direction.
+- The script is a blueprint for the film - there are very few bad scripts that make good movies. If you really like the character and understand the utility it serves within the movie, that's a part of my process.
+- I don't talk about my personal life with the press.
+- It's kind of like, I love doing tons of different things. The only thing I hate is not being in ensembles.
+- I have a really dry sense of humor. I don't think it's funny when people wink at the camera. That's more of an actor thing, just committing to whatever the thing is.
+- I'm not just friends with fellow actors, but I find that a lot of people are out here in L.A. I go out of my way to make sure that's not the case, but I do have a lot of friends who are actors.
+- I don't want to be an editor! I don't want to direct; I'd be a horrible director. I don't want to write - I have a 'story by' credit on one film I did. And I don't want to edit at all.
+- The whole acting thing is a buffet. One, in terms of role choice and movie choice, I like to do lots of different things, and I think that's the whole fun of it. But I also see it as a buffet in terms of the character.
+- I think it's good to have a nice, healthy group of people all doing different things. A lot of my friends don't even work in Hollywood; they just happen to live in L.A.
+- I don't want to be an editor - I want to be really forward about that. I would be a horrible editor.
+- I certainly like working harder than a lot of my peers. The trick is embracing it.
+- That's the best thing about being an actor. If you're in a baseball movie, you walk away knowing way more about baseball, or if you're in a sci-fi film, you learn way more about Comic-Con, and so I loved all that.
+- I worked at Suncoast Video for two years during the summer in high school.
+- I'm not a comedian, but I love the comedians who know when to get off the stage.
+- I would be a terrible director, I could never write anything. One of my great strengths is that I know all of my weaknesses.
+- You can tell when someone is just trying to use you. It becomes just someone who's hanging around. Whenever someone sucks up to me, it never goes anywhere because I'm too boring a guy.
+- My dad was a businessman, and he would say, 'Work for free at the best company. Don't get paid a lot of money to work with the worst people.' And that's exactly how I see my career.

@@ -1,0 +1,20 @@
++++
+author = "Jennifer Tilly"
+title = "Jennifer Tilly Quotes"
+quotes_len = "14"
+description = "the best 14 Jennifer Tilly Quotes"
++++
+- I had a problem with cops pulling me over all the time for speeding. When I was doing Hill Street Blues, the cops said how much they loved the show as they were writing me up; meanwhile my insurance went through the roof.
+- I met my boyfriend, a pro poker player, at a tournament. He tried to dissuade me because it's a seedy gritty world. Listen, I've played till 4 in the morning. I've played with a half million dollars on the table.
+- That Hollywood thing, where everybody hugs and kisses everybody else - I always stiffen. It's an assumed familiarity. It's phony.
+- If I was like some of the characters I played, I'd probably be dead by now.
+- Everybody knows that love goes away.
+- A way you can get really good abs in film is you get your makeup artist to paint shadows - faux washboard. But if you see me in a movie and I have great abs, it means I have a great body double.
+- I still haven't made a film that defines who I am.
+- If you have Julia Roberts in a movie you're never really afraid for her because you know she's not going to die.
+- I have my cards read every time I pass a tarot-reader booth. I would be so embarrassed to have one of those 900 numbers appear on my phone bill, because I don't know how I would explain it to my business manager. It would almost be like saying, 'Okay, I'm white trash.'
+- I would rather be loved by somebody who respected me.
+- Everyone said that if you want to be a real actor, go to New York. If you want to sell out, go to LA. And I thought - I want to sell out!
+- I have to tell you, I'm not like Demi Moore, where the tears trickle prettily down my cheeks. My whole face screws up and it's like, 'Oh please, get a room.'
+- My mother had all these maxims - like, classy girls never chew gum, never read comic books, never get their ears pierced, never get their hair dyed.
+- I won $100,000 in Vegas, which buys furniture for my beach house. That takes nerves. You can't think if I'm wrong I'll blow $30,000.

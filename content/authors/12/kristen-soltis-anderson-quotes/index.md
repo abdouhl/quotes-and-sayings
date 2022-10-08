@@ -1,0 +1,104 @@
++++
+author = "Kristen Soltis Anderson"
+title = "Kristen Soltis Anderson Quotes"
+quotes_len = "98"
+description = "the best 98 Kristen Soltis Anderson Quotes"
++++
+- After the 2012 election, 'independent' becomes the popular choice among new young voters and stays that way with the exception of a brief spike around the 2016 Democratic primary fight.
+- Trump was elected in part because enough Americans viewed him as a capable and strong leader, someone who is 'decisive' and 'competent.'
+- Election losses are always an inkblot test for partisans. If a candidate's defeat has no clear and obvious cause, if the data points are all over the map, it is easy for those on the sidelines to claim, 'Candidate X would have won if only he or she had been more like... me.'
+- With an economy that is going strong and a belief that tomorrow will be better than today, it may be easier to just shrug it off if, say, an internet service you use like WhatsApp gets turned off by the government as the Communist Party's national congress approaches.
+- It is fair to debate how much either bill - Obamacare in 2010, tax reform in 2018 - had or will have an impact on the midterms.
+- In the United States, it is unmistakable that young people have broken away from the political right and have gravitated to more leftist-populist figures like Bernie Sanders.
+- Even when we're not talking about Trump, we're talking about Trump.
+- Candidates, of course, often claim that they want to run 'a purely positive campaign,' but this rarely materializes.
+- What is a fair way to structure our economy? To handle those who did not come to America legally? To distribute scarce public resources and benefits?
+- Donald Trump, having spent decades in the public eye as an entertainer, may not understand what the nuclear triad is, or what America's 'first use' nuclear policy is, or why starting a trade war would be a disaster. But he does understand storytelling, the power of a clear narrative, and the importance of stirring emotion.
+- Obamacare itself did not become popular until the middle of 2017, when the risk of repeal was the greatest; for the bulk of 2010 after passage, it was unpopular by double-digit margins.
+- With Trump assuming the role of America's CEO, it may be chaos rather than callousness that threatens to harm his standing with the American voters who are giving him a chance.
+- As a member of the oldest slice of the Millennial generation, my teenage years spanned the late 1990s through the start of the new millennium. I spent that time watching a lot of MTV's 'Total Request Live', 'Dawson's Creek', and wearing out a dual VHS tape of 'Titanic'.
+- Conservative women often make the case that 'all issues are women's issues,' and are sometimes derided by those on the Left when they do so.
+- When talented, qualified women take on greater responsibility, the simple fact of being talented and qualified is hardly enough to shield them from the gender-specific animosity that will come their way.
+- The things that frustrate one piece of Trump's coalition often endear him to or embolden another wing of the coalition.
+- 'Trump is a mean man' is a message that Democrats used time and time and time again in the 2016 race. Airwaves were filled with reminders that Trump has insulted just about everyone.
+- There's no question that a Democratic Congress plus a Trump presidency would equal gridlock. Nothing moves, nothing changes, nothing gets accomplished, nothing gets reformed. Voters know this.
+- When polled on Donald Trump's agenda, though pluralities of young people oppose his policies on immigration and healthcare, there is one issue where Trump's position wins outright majority support, even among young Democrats: trade.
+- If there is one issue where one could justifiably assume that Republicans are all in agreement, it is on lowering taxes.
+- Federalists, Whigs, Democratic-Republicans; parties are born, parties die, and parties realign themselves to adapt to shifting demographics and attitudes.
+- I do not think it is a coincidence that young people gravitated toward populist voices in the French election and that the two issue positions where Donald Trump and young voters seem to agree most - global engagement and trade - are rooted in populism.
+- Polling is an art as well as a science, and the art of crafting good questions is still vital.
+- Winning feels great, and everybody loves a winner. But the very best figure out what's coming next and don't assume they've got the winning formula forever.
+- Obama's numbers fell by a slightly larger amount over his first few months because he enjoyed much more support right at the start from Republicans, support that eroded quickly.
+- 'Staunch conservatives' and 'free marketeers' are fairly typical Republicans, while the 'American preservationists' are far less reliably a part of a GOP coalition.
+- In 2012, when Mitt Romney named Russia as our greatest geopolitical foe, Democrats scoffed and accused Republicans of trying to ignite a new Cold War.
+- Washington in the summer is a never-ending stream of tour groups and packs of students, here to swarm the monuments, stroll the National Mall, and learn about our nation's history and government.
+- Political science has long tried to tackle a fundamental question of voter behavior: Do voters choose politicians because those politicians hold views that they like, or do voters choose policy positions because the politicians they like say those positions are correct?
+- In the relatively short time frame of December 2015 to March 2017, nearly half of all young Republicans left their party at some point, with roughly a quarter bidding the GOP adieu for good.
+- Women want fair taxes, a growing economy, affordable health care, secure borders, and the defeat of ISIS. They don't need the solutions to be wrapped in pink. They just want problems solved.
+- Thoughtful education programs and access to effective forms of contraception are key to preventing unplanned pregnancy.
+- The American system is set up to have two parties competing for votes. But Americans have not had the same two parties to choose from since the beginning.
+- Republicans can't always agree on where to cut spending. They certainly can't agree on what to do about entitlements. There isn't a unified foreign policy vision, and there's no consensus on immigration reform.
+- When people note that more and more voters are cutting their landline phones and that more and more people are refusing to pick up phone calls from numbers they don't know, they are identifying problems that the polling industry has long struggled with and continue to try to adapt to.
+- There is nothing just or fair about what happened to Jordan Edwards. And his story is yet another in a long line of tragedies that now powerfully remind us of the long way we still have to go in creating a fair and just relationship between law enforcement, our criminal justice system, and the public our laws are supposed to protect.
+- Breaking dramatically with Bush-era Republican orthodoxy, Trump ran on a message of 'America First' and of avoiding spending blood and treasure on adventures overseas.
+- Maybe President Trump will turn out to be a fabulously successful president who will endear the millennial generation to the Right anew.
+- President Trump is right about at least one thing: No matter what he does, America cannot stop talking about him.
+- For some in my generation, Sept. 11th was a moment of political awakening. For others, the Iraq War or the financial crisis or the rise of Obama were the major events of their teenage years that began to lay the foundation for their views.
+- Congress has been productive when focusing on bites of policy that don't inflame the divisions within the party and quietly do the work of governing.
+- For thousands of years, humans have used the art of storytelling to motivate and persuade.
+- Either people are changing their minds about Trump, or increasing numbers of his supporters are deciding it is too embarrassing to admit they support him. Neither is a particularly good position to be in.
+- When the oldest batch of millennials really first began voting around the mid-2000s, they leaned a little toward the Democrats, looking a lot like the Gen Xers also did at that time.
+- My dad is an electrical engineer. So he was always very focused on, you know, teaching his daughters about, you know, science, math, technology. None of us actually became engineers for our careers, but I always had that exposure when I was young, and I just loved playing computer games.
+- Boosting STEM education opportunities for young women globally is one critical way that the U.S. can promote women's equality, as well as economic development, around the world.
+- I remember fancying myself a junior 'McCainiac' in 2000, though politics were rarely discussed in our household.
+- I grew up in Orlando, Florida, and I joined the debate team right around the time of the 2000 election.
+- I had a history teacher who taught us a lot about the Cold War. You had these examples of countries where the government had tried to manage the economy really intensely, and it ended up being bad for the citizens there. I found myself beginning to lean more right on economic issues.
+- Often times, when we talk about improving our public schools, it is easy to come back to the question of money. Are schools basically fine, just underfunded? Millennials say no - more funding isn't the cure-all for what ails our schools.
+- On paper, Emmanuel Macron should be a candidate tailor-made for young voters. He himself is young. He pushes for more entrepreneurship, modernization, and a loosening of regulations that prevent young workers from working as they please when they please.
+- Millennials easily connect the dots between good education and good opportunities, and they also understand that it isn't just hard work that determines how well a child will be educated - it also depends on where they live and the resources their parents commit to their education.
+- Not all change and disruption succeeds, to be sure.
+- One thing that is fairly undeniable about Trump - love him or loathe him - is his understanding of how to manipulate the media and to perpetuate a symbiotic relationship with the press.
+- There's a lot of work to be done in the polling world, and a need to continue to rethink how we do what we do. We also need to be more open to the idea that any one input - in this case, polls - may not be the only way to hear what people are saying.
+- The idea that someone, somewhere will campaign in a positive, uplifting way on an agenda that can inspire Americans? I'm sadly done holding my breath.
+- The reality is that the Republican Party may have unified government but is not unified enough on many major signature policy areas.
+- A compelling story requires conflict, friction, an obstacle to be overcome.
+- Major realigning events can reshape coalitions and change how large groups of people view politics, policy, and the parties.
+- There are certainly more Republicans who like President Trump than like 'Republicans in Congress,' and certainly many Republicans who already feel like their own Congress is a brake pedal of its own.
+- Overall, America's math scores on the National Assessment of Educational Progress (NAEP) have risen since the 1990s though remain disappointing when compared to the rest of the globe.
+- Trump won 44.4 percent of votes in Virginia in 2016. At press time, Ed Gillespie had won 45 percent of the vote in 2017.
+- True small-c conservatives should fight at every turn to preserve basic standards of conduct and institutions that have served our nation well.
+- I have written time and again about the damage the Republican Party has done to itself with the millennial generation.
+- After Mitt Romney's defeat, the RNC released its official assessment of what happened - a failure to reach younger voters, nonwhite voters, women - but was met with a counter-narrative that, in fact, it was Romney's failure to be conservative enough that led to a depressed Republican base.
+- Donald Trump has had political success positioning himself as a 'law-and-order' candidate.
+- The data - on issues and on Trump himself - keep pointing back to 'one-in-four' as the true size of Trump's base. It is around one in four who like the tweeting, like the insults, the things other people say are mean or unproductive behavior.
+- Fast-moving views are not likely to be strongly held views. Instead, they're much more likely to be about people mirroring back the signals they see coming from the leaders they support. People can resolve dissonance by shifting their own view on issues that aren't top of mind.
+- Women face unique challenges in society, no doubt. But focusing narrowly on women as a special interest group isn't the winning play. The ability to pay your bills, send your kids to a good school, and keep your family safe are 'women's issues' after all.
+- Lots of folks still do watch TV, but I think understanding the future of politics means understanding where folks' attention is being paid and delivering your message and your ideas in that space.
+- Tax reform exists, sort of, as an outline - miles away from being actual passed legislation.
+- If a woman rising in power is too tough or aggressive, she's attacked for it. If she's attractive, she's accused of having used that to her advantage. And even if a woman is beyond qualified for a role, there will always be those who raise doubts about if she's really qualified.
+- I dreamed of being like Sam Seaborn on 'The West Wing'.
+- I think 'Candy Crush' may be fading in popularity, but there's always something new that's popping up.
+- Young voters may be growing up in an era of increased global connection, cooperation and commerce. But they're very open to politicians who tell them it is these very things that are keeping elites in power and keeping their generation down.
+- Let's think about where things stood in December 2015. By that time, Republicans had already had such epic and long-standing struggles with young people that I'd written a whole book about it. Additionally, Republicans had already had a bruising start to their primary season.
+- Not long ago, women in Afghanistan were required by Taliban leadership to be covered nearly head-to-toe and were barely allowed to leave the home; that young Afghan women today are not only accessing an education but are able to meet young people from around the world and cheer on a robot of their own making is something beautiful.
+- It was weird that I was a young person who was Republican. And I wanted to get at the heart of why it was that so many people of my generation thought that being Republican just wasn't for them. They thought that conservative ideas just weren't for them.
+- President Trump rightly points out that law enforcement is mostly made up of good people putting themselves in harm's way to protect us. He lauds the men and women in blue and often talks about the need to make it easier for the cops to do their jobs.
+- The robots are coming, whether we like it or not, and will change our economy in dramatic ways.
+- It's not hard to assume that voters do not have deeply considered views on each and every policy issue before them but instead, perhaps, have one or two strongly held views and then allow their favored political leaders to fill in the gaps on the rest of the issues.
+- In 2010, voters certainly hit the brakes on the Obama presidency. Fast forward to the 2016 election, where voters yanked up on the emergency brake and did a donut in the parking lot. Now, the car has stopped. We sit here dizzy for a moment, looking to get on the road again.
+- My slice of the millennial generation, as we grew up, became - to the dismay of the GOP - a bloc of fairly consistently Democratic voters.
+- For Trump, the story is everything. There is no real plan to defeat the villains that Trump tees up, of course.
+- There's no counting the number of times the media have asked, 'Will this be the thing that drives Donald Trump's supporters away from him? Is this finally the time?'
+- I went to Washington, D.C, for the first time my senior year as part of Girls Nation, put on by the American Legion Auxiliary, which sends high school students to D.C. to form a pretend federal government. There was an energy about the city that made me feel like I just had to come back there.
+- Feeling unsafe in your own home? Look no further than those terrorists and criminals and illegal immigrants who have been given free reign and on whom Trump says we need to 'get tough.'
+- In the 2012 election, the polls that had made Mitt Romney so confident that he was going to win were his own internal polls, based on models that failed to accurately estimate voter turnout. But the public polls, especially statewide polls, painted a fairly accurate picture of how the electoral college might go.
+- In the year 2000, the very youngest members of the Baby Boomer crew were in their mid-30s while the oldest Boomers were mid-50s. That year, the Boomers were a generation divided somewhat equally between the GOP and Democrats.
+- Those who are able to afford to live in a neighborhood with 'good schools' will do so, knowing that a good education is the key to good opportunity for their children.
+- Without a clear diagnosis of why the candidate or party failed, there can be no clear consensus about how to move forward.
+- President Trump, who made his name in the business world and built a brand as a successful CEO via a reality TV show that punished incompetence, was not just elected for a series of tough policy views.
+- Being a skeptical and thoughtful consumer of polls is essential.
+- Millennials are not deeply familiar with school choice, and have some reservations, especially about the types of institutions that a student might choose to attend with taxpayer dollars.
+- In 2014, topics like Black Lives Matter, the Middle East, and Ebola were prominent in the national discussion, with mentions of then-President Barack Obama making up a relatively small slice of the discussion on news twitter.
+- For federal races, being able to carefully navigate the Trump Era is a significant challenge.
+- Hillary Clinton famously embraced the Trump-originated label 'nasty woman' as yet another way to show just how bad Donald Trump was to women.
+- Electing Democrats means nothing happens. Elect Republicans, and at least there's a chance.

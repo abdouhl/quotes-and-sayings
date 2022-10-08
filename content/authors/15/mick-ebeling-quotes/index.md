@@ -1,0 +1,12 @@
++++
+author = "Mick Ebeling"
+title = "Mick Ebeling Quotes"
+quotes_len = "6"
+description = "the best 6 Mick Ebeling Quotes"
++++
+- Just one step. Just one mile. Just one dollar. Just one kiss. Just one person. When we look at life through the lens of 'one,' everything becomes that much more attainable.
+- I actually feel most at home when I find people who make me feel really dumb, who are brilliant at their particular things. And then I gather these people, put them in a room, and watch incredible things come out of it.
+- The reality, I believe, is that all change starts small. The big picture is just too unwieldy, too incomprehensible and seemingly immovable. But give us something individual, quantifiable and personalize-able and, suddenly, our perspective shifts to the one.
+- This is the question I want everyone to ask yourself every single day when you come up with something you feel that needs to be done: if not now, then when? And if not me, then who?
+- That's what we're focusing on at Not Impossible Labs, looking at problems or needs that can be solved through hacking, modding, programming, whatever, so it helps one person first but has the potential to help many others.
+- I have a company that does design and animation, so obviously graffiti is definitely an intricate part of what we admire and respect in the art world.

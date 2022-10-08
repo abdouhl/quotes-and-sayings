@@ -1,0 +1,76 @@
++++
+author = "Marcus Luttrell"
+title = "Marcus Luttrell Quotes"
+quotes_len = "70"
+description = "the best 70 Marcus Luttrell Quotes"
++++
+- I can't wait to get back to the ranch and go back to easy living.
+- I guess we'd better start getting used to the consequences and permit the American liberals to squeak and squeal us to ultimate defeat.
+- I'd been in so many villages. I'd be like, 'Up against the wall, and shut the hell up!' So I'm like, why would these people be kind to me?
+- I challenge all of you to fight for this country.
+- If I had to say something to Americans, being afraid and having fear, it's okay to be fearful because that will make you strong; being afraid will shut you down.
+- The last time I was in there to set up for a surgery, I was sitting in the waiting room ... watching television. And a special came on the news about a guy who got AIDS from re-used medical equipment in the VA. It was the same procedure I was fixing to get. I'm gone. Deuces. I walked out, man.
+- It's a weird feeling when you know you're going to die.
+- Most of the time, I don't want to use anti-climatic, but sometimes you go out there thinking this is going to be the worst thing you've ever gotten yourself into, and then you get back to base and think, 'Wow, that wasn't anything like I expected.'
+- It's not a straight line to do anything breaking the law. Because if it is, basically you're saying if I cop to having PTSD, I can go out and slap somebody around all I want, and when the cops show up, I can claim I am a veteran, and I got PTSD - that's not how that works.
+- I died on that mountain, too. I left a part of myself up there.
+- People make mistakes, and bad things happen.
+- Obviously, the World War II guys, that's where we, we learned everything from those guys. And then we hopefully, what we learned, we pass down to the newer generation.
+- When I came into the Perry family, it was one of those deals where it was the only family I had. I didn't have a father figure growing up like that, somebody who genuinely cared about me. Governor Perry taught me how to be a good man.
+- If we became buddies, obviously I'd start throwing some cracks at Him.
+- In real life, it's war, and war's not entertainment. War is 'old men lying and young men dying' kind of deal. That's a saying; I didn't make that up.
+- I knew, at a very young age, that I was supposed to be a gunfighter.
+- When you start messing with the Constitution and what this country was founded on - our baseline is what we call it - it just opens up too many doors.
+- I got my service dog when I was medically retired out of the military, and it was the best thing that ever happened to me. I wish every medically retired serviceman could have a service dog. He's amazing. He's my best bud. I go everywhere and anywhere with him.
+- It's got to be both houses and the people coming together in unanimous decision when you start messing with the Constitution.
+- To have people with - with psychological problems have a background check before they can buy a weapon? I don't think the NRA would pull me off that one. If they do, then I need to be pulled off it because... you can't give a weapon to someone who has mental issues, right.
+- When I did get captured, the only thing I held onto was the fact that my teammates were going to come get me. Period.
+- The only way we're going to keep America safe is to have an elite military, all right.
+- I'm not a hero.
+- There's nothing glorious about war. There's nothing glorious about holding your friends in your arms and watching them die. There's nothing glorious about having to leave your home for 6 to 8 months while your family's back here and you're away.
+- Burn the flag; that's a freedom. Then I have the freedom to take it away from them and tell them how dumb they are.
+- I spend most of my time at the ranch with my family, and enjoy life - watch the sun come up, watch it go down, thank God for another day, and just be happy.
+- In my opinion, you start messing with what this country was founded on, and our baseline is what we call it, it opens up too many - too many doors. You start messing with that, people can say religion kills people. So, let's start messing with that.
+- I could care less whether the American public knows what I look like.
+- Texas is generally 82 degrees year round. I always tell people you don't know cold until you have been to Boston.
+- Bottom line is that there's bad people everywhere. And every now and again, we are going to have to step to them to make sure that we preserve our way of life.
+- I'm a private person.
+- These 'lone wolves,' people like to call them, you've got to look at them not like a lone wolf but an individual operator who's been convinced in their head, brainwashed, whatever, that this is the way to go. And they will carry out their assaults systematically throughout.
+- This entire business of modern war crimes, as identified by the liberal wings of politics and the media, began in Iraq and has been running downhill ever since.
+- You have to realize, in real life, the gun battle lasted for over three hours, and the movie's only two hours long. My hat's off to all those stuntmen who laid it on the line and hurt themselves doing what they had to do to get that done because in real life, we all died, and the only reason I'm sitting here is because of modern medicine.
+- I'd give Him some room. I'd be like, 'Thanks for keeping me around a little bit longer. I owe You a lot.'
+- If you had to put people, senators - if they had to go for their V.A. to get care, it would probably get fixed.
+- When they were working on the movie 'Lone Survivor,' all I cared about was that it was done right to honor all of the guys.
+- People always ask me, 'I don't know how you could watch that, how that affects you,' and I just tell them, 'I went through it in real life, so it's like pilots watching a 'Top Gun' movie or cyclists watching a bicycle movie,' something like that.
+- I don't want to be in Hollywood or anything like that.
+- Revenge is a powerful motivator.
+- I could see hunks of metal and rocks sticking out of my legs.
+- I wasn't the best frogman out there.
+- War's not black and white; it's gray. If you don't fight in the gray area, you're going to lose.
+- I'm basically all titanium.
+- We have to make sure the Hell the veterans come home from is not the Hell they come back to.
+- Every time I get off the phone with one of my friends, I tell them I love them.
+- I promise you, every insurgent, freedom fighter, and stray gunman in Iraq who we arrested knew the ropes, knew that the way out was to announce he had been tortured by the Americans, ill treated, or prevented from reading the Koran or eating his breakfast or watching the television.
+- My greatest honor was to serve my country.
+- You play like you practice and practice how you play.
+- Rick Perry is my family. I love him.
+- When I came into the Perry family, it was just kind of one of those deals where they were the only family I had.
+- America is the light, and her people are the goodness that grows from that. She'll always be worth fighting for - it was my greatest honor to fight for her every day of my adult life.
+- If you sit there and dwell on the fact that you did something... you will lose your mind.
+- Every situation I have ever been in I have been trained for, and I dealt with it to the best of my abilities.
+- I didn't want to do a movie, but Hollywood was going to do it with or without us.
+- In the middle of everything evil, in an evil place, you can find goodness. Goodness. I'd even call it godliness.
+- We trained like we fight.
+- It's not secret that usually I don't have a filter.
+- What comes through my head is going to come out of my mouth.
+- I love Boston.
+- Don't waste one second on anything. Watch the sun come up, and watch it go down.
+- To the next generation, your war is here; you don't have to find it.
+- If you knew the real me, you'd want to keep your distance from me. Seriously.
+- One of the lessons I learned was that there are good people everywhere. That village, Sabray, saved my life.
+- It's ignorance, and it's upsetting. Look at the young; they have no idea how great this country is because they never have been outside of it.
+- I'm a big tradition guy. If you love this country and study history, then you will love Boston.
+- Who among you will love something more than you love yourself, all right?
+- Governor Perry taught me how to be a good man and to be a good husband. Not only does he have to take care of his own family, but the state of Texas.
+- What the SEAL teams do, what our training does, is it chips away the outer that layer and shows you what you're capable of and not capable of.
+- If I died on the battlefield, then that was the way it was supposed to be.

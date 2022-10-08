@@ -1,0 +1,22 @@
++++
+author = "John Morgridge"
+title = "John Morgridge Quotes"
+quotes_len = "16"
+description = "the best 16 John Morgridge Quotes"
++++
+- Many companies don't exist after 25 years. It's a rarity. Or if they do exist, they're like IBM, with a totally changing personality.
+- We are fortunate people. It is our need and responsibility to help our fellow man.
+- Indeed, the highest honors are those granted by organizations who understand the necessity of providing our nation's children with access to technology in an environment which fosters the type of learning that will lead us into the next century.
+- I spent my whole career in the technology business, and I was convinced of the importance, at a grand scale, of the development of global connectivity.
+- If you want to make an impact, you need to invest your time every bit as much as your money. And you need to stay involved for the long run. If you can't look at a five-year horizon, you shouldn't get involved.
+- It's the community that helps form our moral compass. It's those attitudes that I've remembered through my entire lifetime.
+- I had no idea that social networking would be as prominent as it is today. And it's important to understand what that phenomenon is. If you text someone, you get an immediate response; if you e-mail them, you probably never hear from them.
+- We didn't create all this wealth; we capitalized on an environment that permitted us to create it.
+- There are some people, no matter what they do, it turns out badly. They have a problem: either what they do is wrong or things that happen were wrong. I was president of a company like that; it was called Grid Computer.
+- I long had a goal of becoming president of a company. But it was not till I was 57 years old that I became president of Cisco Systems with its 34 employees. Life offers opportunity at every stage.
+- Stay hungry. Stay foolish. I've always wished that for myself.
+- It is unfortunately true that our generation and that of your parents have left you with a big mess that will now be yours to clean up: wars, budget challenges, pollution, global warming, battles of health care, natural disasters. They're all there for you. We're willing those to you. Are you ready?
+- There is a huge amount of wealth that's generated here in Silicon Valley.
+- My grandmother wanted my father to be a teacher because she was a teacher. He didn't go down that road until much later in life; he just kind of retired after almost 20 years as being a visiting lecturer at Stanford, where he got his graduate degree.
+- We didn't grow up overly religious, but there was an understanding that you had a duty as a citizen to help your fellow man.
+- I think it's pretty well established that great schools are predicated on great faculty. That is not a Wisconsin market; that is a worldwide market.

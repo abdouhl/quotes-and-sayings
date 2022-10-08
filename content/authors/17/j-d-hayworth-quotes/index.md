@@ -1,0 +1,32 @@
++++
+author = "J. D. Hayworth"
+title = "J. D. Hayworth Quotes"
+quotes_len = "26"
+description = "the best 26 J. D. Hayworth Quotes"
++++
+- You see, party labels do not ensure unanimity any more than trying to cast the challenge we confront as a people through a partisan prism.
+- The American people likewise want to see enforcement first, no tricks, no triggers, no amnesty, enforcing existing laws and closing loopholes to reaffirm that our great Republic is, in fact, a nation of laws.
+- Our ports and our borders are the most unprotected fronts in the war on terror.
+- Recent economic data shows that our economy is robust, growing and headed in the right direction. The numbers don't lie. Americans are currently enjoying falling gas prices, low unemployment, increased job creation, and a stock market that has reached an all-time high.
+- The minimum wage was due for an increase, but it was important that we offset its cost to small businesses.
+- Chavez made a compete fool of himself in front of the entire world while giving the U.N. a black eye. But the real losers are the Venezuelan people who have to put up with this unstable character every day.
+- And if we are honest we have to make a distinction between a democratic Israel that wants to live in peace and the terrorists who want Israel wiped out. The Israelis were told to give up land for peace; they gave up the land, but got no peace.
+- Low unemployment numbers are clear indicators that Republican tax relief and economic policies are spurring growth and helping businesses hire new workers while providing American families with job security.
+- The security of our country is not just a top priority, it's the top priority.
+- New technologies such as solar systems or hybrid cars aren't created overnight. By extending these tax credits we are giving this industry time to grow, branch out and succeed.
+- We know over very national survival is at stake; and we believe that we should support our troops, yes, and work for an outcome that results in victory.
+- The tax relief package enacted in 2001 was central to pulling the economy out of the post 9-11 recession. It's the reason we've got low unemployment and have created more than two million jobs in the last year.
+- A fair question could be posed in this fashion: If people are not obeying existing laws, what makes us think they would obey any new laws?
+- The problem we are dealing with at the border is not a Democratic problem. It is not a Republican problem. It is an American problem.
+- Our growing, robust economy is able to provide the average American citizen access to the best social program there is - a steady job.
+- As in any war, there have been dreadful mistakes and civilian casualties. The difference is when Israelis kill innocents they apologize; when Hezbollah kills innocents they celebrate.
+- The American people demand results, not rhetoric, especially when it comes to national security issues.
+- Therefore, if we are a Nation of laws and a Nation of immigrants, immigration should occur within a legal framework, not through the machinations of illegal schemes and scams that threaten our national security.
+- Those who have heard me speak from time to time know that quite often I cite the observation of that great American author, Mark Twain, who said, history does not repeat itself, but it rhymes.
+- Enforcement is the long overdue step to protect our Nation from external threats in a time of war. And then once we do that, we can effectively discuss a guest worker program.
+- Here are the facts we confront. No one is against conservation. No one is against alternative fuel sources.
+- Solar power is clean, renewable and cost effective, but it also needs time to develop.
+- The American people are not just being taxed to death; they're being taxed after death. But, no one should have to sell the life's work of a parent or a loved one just to pay the federal government.
+- Producing fuel cells and solar panels requires high tech facilities and produces high paying jobs. The industry is booming in Arizona. The state already has about 100 firms in the solar industry and has grown 20% since 2003.
+- Ensuring that high quality water is provided to all Arizona's citizens is the responsibility of elected officials at all levels and I am happy to do all I can to assist the city's efforts.
+- When you have a country that can boast that more than 95 percent of its eligible workforce is employed and pumping money back into economy, that's exceptionally good news, especially as we prepare to observe Labor Day.

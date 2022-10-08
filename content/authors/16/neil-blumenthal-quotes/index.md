@@ -1,0 +1,106 @@
++++
+author = "Neil Blumenthal"
+title = "Neil Blumenthal Quotes"
+quotes_len = "100"
+description = "the best 100 Neil Blumenthal Quotes"
++++
+- I believe that the concept of 'design' encompasses every aspect of customers's exposure to a brand, from the moment they hear about us to the first time they visit our store to the process of ordering and anticipating the arrival of their glasses.
+- Be personable to everyone you interact with.
+- I completely believe in the lean startup and minimum viable product; I just I think that people are setting the threshold for minimum viable too low.
+- I personally try to buy the best-quality items at the best price that do the least harm and from companies that are striving to do good - many of those companies are run by young entrepreneurs.
+- There are two elements to nailing a job interview: form and substance. 'Form' describes the outer layer of your character - your manners, your demeanor, your social skills. 'Substance' describes the inner core of your character - your intellect, your empathy, your creativity.
+- My grandfathers on both sides were entrepreneurs.
+- If you're entitled, you likely think you know more than you do.
+- Creativity flows when curiosity is stoked.
+- When we were creating Warby Parker, for us it was about having a positive impact on the world and having a strong social mission.
+- When a person has work, she has income and can achieve financial self-sustainability. She can prioritize her family's health and education. Her standing in the community is lifted, and so is her confidence.
+- Every moment contains an opportunity to create feelings of satisfaction and excitement in a customer. It's up to retailers to make it happen.
+- Every generation trash-talks younger generations. Baby boomers labeled Generation X a group of tattooed slackers and materialists; Generation Xers have branded millennials as iPhone-addicted brats.
+- Share your personality with interviewers, but keep a professional filter safely adhered to it.
+- I want to go at least 11 hours without food. I sat next to Hugh Jackman at a conference, and he told me he fasted 12 to 14 hours when he was training for the Wolverine movies. I've deluded myself into thinking I can effortlessly achieve the same body type as Hugh Jackman if I keep up this eating schedule.
+- If you think about what are glasses, they are the best example of form and function.
+- In general, obsolete technology is obsolete for a reason. Monocles are no exception.
+- It's impossible to predict crises - or to control them once they hit - but you can absolutely prime yourself to ride them out as best as possible.
+- We've built our own technology platform in-house, which operates our website and powers our retail stores.
+- No matter what product or service your company offers, people have a way of finding out if you are genuinely providing value.
+- At its best, entrepreneurship creates jobs, solves problems, and galvanizes creative thinking.
+- At Warby Parker, we moved our focus to promotion only after we'd spent time creating our product, a user-friendly website, and an on-the-ball customer experience team.
+- A startup is a company working to solve a problem where the solution is not obvious and success is not guaranteed.
+- It never gets old watching someone receive their first pair of glasses and regain their vision and their life.
+- When my three co-founders and I started Warby Parker in 2010, our primary intention was to sell good-looking, affordable eyewear online.
+- Young people entering the job market seek employment at companies with values that match theirs.
+- When you look at the reasons people leave companies, it's usually because their boss is a jerk or because they aren't learning and growing.
+- Building a consistent experience and firm identity was instrumental in our ability to swiftly build our online presence, open four stores as well as a mobile store in a converted yellow school bus, and launch six shops-in-shops.
+- If you peek behind the curtain at any type of company, you'll see that things are far less organized than you'd expect.
+- Successful entrepreneurs are pretty methodical about the problem they're trying to solve.
+- The word 'hackathon' was born out of 'marathon' for a reason. It's exhausting.
+- One of the core values of the startup world is that you must have a list of core values. Like all abstract ideas, they're easy to dream up and tricky to implement.
+- For many startups, ideating is the fun part: coming up with ingenious schemes to grab eyeballs and start conversations. But before you dive into that stage, take a step back and define your goals.
+- On the day it launched, Warby Barker received more than twice as many visits as our regular site.
+- I'm not as smart as I think I am.
+- Theoretically, an open-plan office is a great format for a changeable work environment, a place where employees have a say over how they work and a place that can adapt to their needs and to the needs of the business.
+- Within an office, it's important to create opportunities for anonymous feedback.
+- Just because one company is able to succeed with a specific model doesn't mean others will follow with equal or any success.
+- I previously worked as the director of VisionSpring, a non-profit dedicated to distributing glasses to people in need.
+- Asking for money can be especially intimidating.
+- All those articles that scold Millennials for their supposed entitlement? Forget them. Millennials are great employees.
+- By creating a feedback culture within your office, you ensure that people continue to learn, grow, and challenge themselves.
+- Venture capital is an inherently optimistic form of investment - which is both its primary strength and its primary weakness.
+- I wanted to open up a stand to sell dried fruit and beef jerky where we lived in Greenwich Village. I was 8 years old. I had been flipping through TV channels and got mesmerized by this infomercial for a food dehydrator.
+- Millennials in particular get a lot of flack for their supposed entitlement and narcissism, but these evaluations have never matched my experience with hiring young people at Warby Parker.
+- Social enterprise is at its most impactful when the goal is empowerment, not relief.
+- Businesses should focus on solving problems, putting the customer first, delivering value - not gimmicks - and growing in a sustainable manner.
+- We've built a company that distributes a pair of eyeglasses to someone in need for every pair sold; that purchases carbon offsets; and that hosts mentoring programs at the office.
+- Warby Parker is a data-driven company.
+- It's never easy asking for help.
+- The basic idea of a hackathon is to erase all routine obligations for the day so that employees can clear a mental space for creativity.
+- The trick to maximizing your team's productivity is to create a workspace that's flexible, so it can be altered according to the ever-changing needs of the company and its team members.
+- I came to Washington primarily to meet other entrepreneurs. That being said, I was also curious to hear how our federal government was thinking about entrepreneurship.
+- At Warby Parker, we use the survey platform Culture Amp to take employee engagement surveys that help us become ultra-responsive to the needs of our teams.
+- During times of plenty - when venture funding is abundant and startups multiply like rabbits - every business looks like a winner.
+- Hackathons are an amazing way to engage the team, foster collaboration, and knock out great work.
+- What happens when kids don't have glasses - they get bored in class. They disengage and they may be disruptive. They may be misdiagnosed for A.D.D. or put in special needs classes.
+- At the end of the day, an entrepreneurial journey is all about de-risking: How can you spend the least amount of time and money to accomplish your goal? The more information you can gather, the more comfortable you'll be investing time and money into a particular offering.
+- It may seem premature, but you need to be thinking of your exit from the moment you accept capital, because at that moment, you've made an explicit agreement with an investor that he or she will eventually be able to gain liquidity.
+- Florence Nightingale. She is one of the most dynamic social entrepreneurs in history.
+- We all have a personal recipe for productivity. One person may need six cups of autonomy and just a pinch of collaboration. Another person may require heaps of sociability and noise, with just a teaspoon of occasional privacy.
+- A workplace that encourages self-awareness is an environment where the most productive, curious, and innovative people thrive.
+- If faced with two competitive candidates, every company will hire the person who evinces more enthusiasm.
+- All companies - and not just startups - face the same eternal challenge: resource allocation.
+- When another editorial pops up denouncing millennials for some perceived generational flaw, I take it with a Miley Cyrus-sized grain of salt.
+- Walking in the morning improves my whole day. I think more clearly, my points of view are sharper, and I'm more decisive.
+- Regardless of what you plan to use it for, the goal should always be to raise money right before you need it. You don't want to get into a situation where you need cash and you're unable to raise it - or you're unable to raise it on favorable terms. As with any negotiation, you want to raise from a position of strength.
+- My goal is to get in bed by 11. That rarely happens. But I celebrate when it does happen.
+- One of my favorite products at Warby Parker also happens to be our worst-selling item: the monocle.
+- When it comes to marketing, creative resources are often worth far more than dollars.
+- Creativity is always intense.
+- Details matter. They create depth, and depth creates authenticity.
+- For any collaboration to work, each partner must have a strong sense of identity. If one overpowers the other, it's like mixing lemonade with water - you wind up diluting the brew.
+- Just as a company needs a strategy to capture market share, a company needs a strategy to encourage actions that reflect their core values.
+- Brands are only powerful if they're real and authentic.
+- At Warby Parker, we ask ourselves a number of questions when deciding whether or not to partner up with a designer, or a nonprofit or brand. Is the potential collaboration new? Is it unexpected? Will it result in something worth talking about over dinner? Will it do good? Will it introduce us to a new audience?
+- For every Mark Zuckerberg and Facebook, there's 30 other entrepreneurs that started their business after working for several years.
+- We have never met with politicians. I don't know the first thing about how to get heard. My suspicion is that it's to donate a lot of money.
+- For better or worse, cash is the oxygen of your business, and you can't last long in any environment without it.
+- Exploring emerging technologies like new refraction technology will enable people to get prescriptions cheaper and more conveniently, which will, in turn, provide increased access to prescription glasses.
+- People who are passionate about Warby Parker are passionate about creating a company that can scale, be profitable, and do good in the world - without charging a premium for it.
+- Warby Parker designs experiences, not products.
+- We have been very focused on eyeglasses in particular because it's a massive industry.
+- The rules of optical dispensing vary from state to state. Dispensing eyeglasses is not that complicated, and even if it were complicated, there should be uniform rules.
+- If you don't plan to dive in and dedicate all of your time to your startup, you probably shouldn't be looking for funding. It's hard enough asking for money when you believe in an idea; asking for money to fund something you're iffy about is ten times more strenuous.
+- Millennials are eager to make an impact, which makes them ideal for start-ups.
+- Self-aware employees make a self-aware company.
+- The idea that you don't spam people with five emails a day or that you offer free shipping just seemed obvious to us, because that's how we want to be treated as consumers.
+- A good collaboration pushes the boundaries of both partners.
+- It's not easy to keep good sleep habits as an entrepreneur, especially at the early stages when there's always a fire to put out.
+- The key to an ideal workplace, in one hyphenated word, is this: self-awareness.
+- Creativity is a business imperative.
+- At Warby Parker, we say that we're customer focused but medium agnostic.
+- Avoid the 'squeaky wheel gets the grease' habit of overreacting to the loudest feedback. The first time you hear a particular piece of feedback, treat it like a clue and do some investigating. Find out how deep it goes - maybe it stops at the surface and won't be an issue, maybe not.
+- Every day, write down a few frustrations. And then at the end of the week, you'll have maybe 10 problems. By the end of the month, maybe you have 40 to 50 problems. And then you can spend time thinking about, Is there a viable business in solving any of these everyday frustrations?
+- From the beginning, we believed that it was possible to develop direct relationships with customers at a relatively cheap cost, and our plan was to build a lifestyle brand that was also an Internet company - a rarity for eyewear.
+- Giving employees agency over their workspace encourages them to think carefully about the conditions in which they work best, and it gives them the tools to forge that environment.
+- Often, companies are trying to chase growth and get into other categories or go international too quickly, and they can get in trouble doing that.
+- Self-awareness is a trait - or maybe 'practice' is the more accurate way to put it - that everyone can always improve at. It is part emotional intelligence, part perceptiveness, part critical thinking. It means knowing your weaknesses, of course, but it also means knowing your strengths and what motivates you.
+- I was captain of the soccer and basketball teams in high school, and I was the equivalent of class president.
+- Nothing creates cool like scarcity.

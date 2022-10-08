@@ -1,0 +1,34 @@
++++
+author = "Jacob Latimore"
+title = "Jacob Latimore Quotes"
+quotes_len = "28"
+description = "the best 28 Jacob Latimore Quotes"
++++
+- It feels great seeing posters everywhere, and bus stops promoting 'Black Nativity,' and billboards in Los Angeles. It's overwhelming. I can't wait for everybody to see what I got.
+- There was a bidding war between Epic Records and Jive - now RCA - which was bittersweet. Just having labels bid over me was really cool, but I ended up going with Jive because it felt better over there, and they have my favorite artists like Usher, Chris Brown, and Justin Timberlake.
+- I'm really not the party type. I more like to have friends over at the house and chill. I've never been the super party type. But for the 18th birthday, you got to party. And then 21 is going to be even bigger.
+- I always love watching those natural actors like Bill Cosby, Raven-Symone and Shia LaBeouf - just effortless actors.
+- Music is my first love.
+- You always gotta reach the people who feel bad about themselves or insecure about themselves, and I think 'Like 'Em All' was just a perfect song for all the girls, and I think that's why it blew up like it did.
+- When you love what you do, you just really fall in love with it. Sometimes you record a lot more songs than the album will even hold. You record like 300 songs and only 12 songs go on the album. It takes time. But if you love what you do, it works out.
+- 'Maze Runner' is about a group of teens that live inside this giant maze. And outside the maze are these creatures that come out at night. The centerpiece of the maze where we stay is called the Glades, and we call ourselves the Gladers.
+- Music has always been in my family down to my dad through my uncle. I'm just the next generation, since it's always been around me when I was younger when I looked up to my mom and dad, to Michael Jackson, and B2K was my favorite band growing up.
+- I love presents, But since I've gotten older, I haven't really wanted anything. Christmas is about family.
+- As far as R&B, I listen to a lot of old school like the Temptations and Chris Brown.
+- I've always been in music. I started out in music, and I will continue to do music.
+- Keep God first, chase your dreams, and everything will pay off.
+- My favorite movie of all time is 'Home Alone 3.'
+- I think college is something I want to experience just to have the experience, really. I think about going to college all the time.
+- I like girls that are down to earth, just like to have fun, and be themselves.
+- My favorite football team is the Bears because my favorite player is on there, Devin Hester. I love the whole team, though. But that's just my favorite player.
+- Music just runs in my family. My dad and my uncles are a gospel quartet, Latimore Brothers. They've been doing their thing ever since I was a kid, so I just kind of grew up around that.
+- My first film, 'Vanishing on 7th Street,' I really just kinda went in for it. Just gave it my all at the auditions.
+- I'm from Milwaukee, Wisconsin. I moved to L.A. when I was about eleven years old. I always go back to Milwaukee whenever I can. Just chill with my grandpa and my grandmother and just be with family, be with people that were there before I got a million views on YouTube because of my music video.
+- One of my first big shows, I opened up for Chris Brown; I was about 10 years old, and Chris Brown was just big; he still is one of my idols now.
+- 'Heartbreak Heard Around the World' is about me and my girl, and I'm just going through a broken-heart stage in a relationship, and I'm just kind of expressing my love for her.
+- I always looked up to great actors and great films. A lot of my family would be like, 'Come on, you should get into these plays that are going on.' I'm like, 'Nah, nah, music's my thing.' I just fell into it. I moved to Atlanta, got with an agency out there, started doing little voiceover commercials, and it started getting kind of fun.
+- I was in a movie called 'Vanishing on 7th Street,' and that was my first leading role in a movie. It's an apocalyptic thriller, and it's really cool. It's the first movie I ever shot.
+- You know when pillowcases come out of the dryer and they get really wrinkled? I iron them.
+- I like everything in my room has to be in order. If there's a wrinkle in the comforter, I'm stretching it out. But this is only when it comes to my room. Outside of there, I'm not as intense.
+- I don't really like to go out that much. But when I do, I go to the movies, just hang out with friends. I go on Skype and iChat and just chill.
+- I want to work with Justin Timberlake.

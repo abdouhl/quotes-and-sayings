@@ -1,0 +1,18 @@
++++
+author = "Maurice Flanagan"
+title = "Maurice Flanagan Quotes"
+quotes_len = "12"
+description = "the best 12 Maurice Flanagan Quotes"
++++
+- Dubai Airport will peak at a maximum of 100 million passengers a year, which would limit Emirate's growth, but the new Al Maktoum International with its capacity for another 120 million passengers will allow us to continue growing.
+- The nice thing with the Arabs is that with age comes respect.
+- Anybody with my background in the airline business who is not deaf is a fraud.
+- From the beginning, I got all Emirates cabin crew applicants psychometrically tested. Those who didn't want to be nice to others got rejected.
+- In the 1970s, the scare was about global cooling.
+- I could have been a professional footballer and trialled with Blackburn Rovers. But I snapped my cruciate ligaments, an injury that has dogged me ever since.
+- There's no such thing as low-cost fuels.
+- I wrote an ITV drama in the 1960s, a satire on management theory that starred Leonard Rossiter. I'm also a poet and have had work in the 'Spectator.'
+- Dubai has got very little oil; it is Abu Dhabi that has got the oil. Dubai has very small resources, and it is running out, so the government's plan has been to relieve Dubai of any dependency on oil at all by 2010.
+- It's easy to walk away from risk, and you don't actually have to face it. Success is based upon overcoming the inherent risk you can't manage your way out of.
+- There is no better way to manage than by walking around. Autocracy doesn't work. Talk to people in their offices, find out what's on their minds.
+- There is something about the airline industry that really grabbed me.

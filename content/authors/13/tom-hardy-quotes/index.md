@@ -1,0 +1,36 @@
++++
+author = "Tom Hardy"
+title = "Tom Hardy Quotes"
+quotes_len = "30"
+description = "the best 30 Tom Hardy Quotes"
++++
+- I have to make my bones with Hollywood to get in. And when I do maybe I'll metamorphose from Mr. Muscles or whatever it is I am now and become an irascible tosser.
+- A lot of people say I seem masculine, but I don't feel it. I feel intrinsically feminine. I'd love to be one of the boys but I always felt a bit on the outside. Maybe my masculine qualities come from overcompensating because I'm not one of the boys.
+- I hate publicists and publicity. But I love the people.
+- The lack of carbohydrates can make you a little crazy.
+- Being an only child, I didn't have any other family but my mom and dad really, since the rest of my family lived quite far away from London.
+- I'm just getting settled as a responsible man - but if you split the elephant into little mouthfuls it will be fine.
+- I'm into parlor dramas. I'm into theatre. I'm trained for the stage. I trained to do Chekhov and Shakespeare, I was trained for the stage.
+- There's something that's very human about 'Warriorv that brings you out. You're watching the movie and, yeah, there's fighting - there's a tournament at the end of the movie - but it takes a long time to get to know these people.
+- David Mamet we all know is a great screenplay writer and playwright and a great director. If you like him, you like him. If you hate him, you really hate him. He's someone who's into controversy, you know what I mean? That's David Mamet.
+- If you look round Hollywood there's no end of white smiles and six packs. Long lines of beautiful people lining up to be incredible on film.
+- It's about the characters, it's about the film, it's about the process of making stunning visuals and a huge, epic movie. It doesn't matter if my head was covered in a black plastic bag and I was bouncing around in a space hopper: That's the villain of Chris Nolan's 'Batman!'
+- Maybe it's a little ambitious of me to presume that no matter how big the film is, that I can always go down to the shop to buy a pint of milk.
+- If you're lucky like me, your relationship with your brother has resolved itself on the peaceful side of the fence and has stayed there. But if you're someone who's got a family that's all fractured and finding it hard to relate, that's a very sad place to be.
+- Ju jitsu is very Buddhist. All that we fear we hold close to ourselves to survive. So if you're drowning and you see a corpse floating by, hang on to it because it will rescue you.
+- I'm from a nice, suburban, middle-class family, but my tattoos remind me where I've been.
+- If I am duly compared to Marlon Brando at all, well, I can only think of The Teahouse of the 'Shanghai Noon,' that they're comparing me to that!
+- I think I had only been working nine months when I got 'Star Trek,' and it was huge. It was very overwhelming. So that opened my eyes a bit at an early age, kind of how not be frightened when walking into a responsibility of something like that.
+- Fame and stuff like that is all very cool, but at the end of the day, we're all human beings. Although what I do is incredibly surreal and fun and amazing and I'm really grateful for it, I don't believe my own press release, do you know what I mean?
+- I'm very sensitive. Because my mum was my primary emotional caregiver growing up, I found myself being pinned into dresses, darting her dresses, choosing her high heels for the evening or what to wear. I'm very much a mommy's boy.
+- The characters I've played have been mostly violent, and I'm so far from being violent or aggressive. I spend a lot of time watching 'Fireman Sam' with my three-year-old son Louis.
+- My father came from an intellectual and studious avenue as opposed to a brawler's avenue. So I had to go further afield and I brought all kinds of unscrupulous oiks back home - earless, toothless vagabonds - to teach me the arts of the old bagarre.
+- I'm incredibly grateful to be playing the villain in a world which, if I really thought to hard about what I was doing, I would get very nervous about the size and the magnitude of the importance and responsibility of being a villain in the world of 'Batman.'
+- I wanted my dad to be proud of me, and I fell into acting because there wasn't anything else I could do, and in it I found a discipline that I wanted to keep coming back to, that I love and I learn about every day.
+- I have a very busy head. I have inside voices that I have learned to contain.
+- I like to be other people, not me. And when you're on the red carpet, it's like, 'Here's Tom Hardy.' I don't want to be me. That's why I play other people.
+- Nobody paid any attention career-wise to me in America until 'Bronson.' It gave me a calling card and passage into America, where I've always wanted to work.
+- I play Xbox. I have a little boy to look after. I have dogs. You know, I have things to do. I would love to be able to sit down and watch something like a movie. I watch my own movies because I have to.
+- Style, I think, is panache. Who are you? What did you do today? And what are you worth to me? What do you have to offer the world? How did you spend your time today on this planet? How are you spending your time every second? What are you doing now? Are you alive, or are you somnambulant?
+- I'm not a big guy anyway. I'm only, what, 150 pounds? I was 190 for 'Batman,' 179 for 'Warrior.' Films make you look big.
+- There's an abundance of exposure when you start working in American films. Inevitably you become a brand and that has to be controlled.

@@ -1,0 +1,17 @@
++++
+author = "Molly Holzschlag"
+title = "Molly Holzschlag Quotes"
+quotes_len = "11"
+description = "the best 11 Molly Holzschlag Quotes"
++++
+- The Web is not a prize to be won, and Mr. Ballmer's attitude is deplorable in the light of what the Web means to the world, to users, to designers and developers, and - to put it into Microsoft parlance - customers.
+- I am energized by the diverse, talented and energetic culture here at Vivaldi, so I am beyond excited to get started in my new role in developer relations.
+- I think Movable Type is a really good product for certain applications.
+- Consumer confusion is the result of many individual problems when it comes to website design and development services, but in a nutshell, it boils down to the rapid growth of the Web and the lack of competitive measure available.
+- The Web belongs to everyone.
+- The Web's core vision and value is to be platform independent. Microsoft has no right to think it can win a tool that is for the people, of the people, and ultimately - by the people.
+- I know some people say, 'You must have life balance.' I don't have that.
+- By the time buzzwords appear in the popular press, there's probably a bunch of us in the development trenches pulling out our hair and weeping.
+- Often, I'll ask clients who've found a great contracting relationship how they did so. The answer is almost always that they heard about them through a friend or colleague.
+- I'm just loving BlueGriffon Editor! XML, HTML5, CSS, ARIA, SVGEdit all built in.
+- The best way we have to ensure that consumers are fairly represented in today's confusing world of buzzwords and rapidly evolving technologies is to communicate openly with others and tap into the social and networking resources that the Web itself provides us all.

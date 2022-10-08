@@ -1,0 +1,13 @@
++++
+author = "Michael E. Mann"
+title = "Michael E. Mann Quotes"
+quotes_len = "7"
+description = "the best 7 Michael E. Mann Quotes"
++++
+- In the draft plan, we're looking at recycling 20 percent of our garbage by 2010.
+- Public discourse has been polluted now for decades by corporate-funded disinformation - not just with climate change but with a host of health, environmental and societal threats. The implications for the planet are grim.
+- The trouble is that the hockey stick graph become an icon and deniers reckoned if they could smash the icon, the whole concept of global warming would be destroyed with it.
+- Bring down Mike Mann and we can bring down the IPCC, they reckoned. It is a classic technique for the deniers' movement, I have discovered, and I don't mean only those who reject the idea of global warming but those who insist that smoking doesn't cause cancer or that industrial pollution isn't linked to acid rain.
+- There is no bird flu in commercial stocks.
+- I was interested in variations in temperatures of the oceans over the past millennium. But there are no records of these changes so I had to find proxy measures: coral growth, ice cores and tree rings.
+- We don't invent our natures. They're issued to us along with our lungs, our pancreas and everything else.

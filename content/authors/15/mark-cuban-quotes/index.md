@@ -1,0 +1,129 @@
++++
+author = "Mark Cuban"
+title = "Mark Cuban Quotes"
+quotes_len = "123"
+description = "the best 123 Mark Cuban Quotes"
++++
+- I love entrepreneurship because that's what makes this country grow, and if I can help companies grow, I am creating jobs; I am setting foundations for future generations. It sends the message that the American Dream is alive and well.
+- Technological change always accelerates. It never stagnates over time. Which means we are going to face the fact that, if nothing in the States changes, we will find ourselves dependent on other countries for almost everything that can and will be manufactured in a quickly approaching future.
+- I'm not against government involvement in times of need. I am for recognizing that big public companies will continue to cut jobs in an effort to prop up stock prices, which in turn stimulates the need for more government involvement.
+- Entrepreneurs need to be reminded that it's not the job of their customers to know what they don't. In other words, your customers have a tough enough time doing their jobs. They don't spend time trying to reinvent their industries or how their jobs are performed.
+- You've got to be very cognizant of the correlation between social media links and business because they don't always correlate as highly as people would like.
+- With health care, despite the fact that we as a nation have already chosen to provide health care in one form or another to everyone, we have, until Obamacare, chosen to pick the least cost-effective means, a mix of private and public offerings, of providing that care. That makes no sense.
+- I personally think there's going to be a greater demand in 10 years for liberal arts majors than there were for programming majors and maybe even engineering, because when the data is all being spit out for you, options are being spit out for you, you need a different perspective in order to have a different view of the data.
+- I love to compete. To me, business is the ultimate sport. It's always on. There is always someone trying to beat me.
+- I have always been selling. I always had something going on. That was just my nature.
+- We can't ever forget that the Internet now is just a staid utility. The exciting platforms are software applications that are very, very simple.
+- My guiding principle and motivation was that I wanted to retire by the time I turned 35. There actually are two books that I bought and still have - Paul Terhost's 'Cashing In On the American Dream: How to Retire at 35' and Andrew Tobias's 'The Only Investment Guide You'll Ever Need' - that were my personal financial road map.
+- I can't say it enough that learning how to learn is one of the greatest skills anyone can have. It's why I advocate that everyone go to college.
+- I still work hard to know my business. I'm continuously looking for ways to improve all my companies, and I'm always selling. Always.
+- There is so much partisan and tribal politics, from not just those seeking office but potential voters as well, that we never get real attempts at solutions to problems.
+- I think one of the biggest curses in the U.S. is that we have only two political parties.
+- When someone has to go to the hospital because they don't have insurance - and by the way, I think the insurance companies should be out of the mix altogether - but when someone needs health care, and they don't have the ability to pay for it, in our communities, we end up paying for it one way or the other.
+- I don't care what anyone says. Being rich is a good thing.
+- I think that any reporter or columnist will be a little more careful when doing interviews with me.
+- I used to drive around looking at the big houses, wondering how they got there. I used to love biographies about successful business people, wondering how they got there. You start to realize that if they can do it, I can do it.
+- I'm a competitive person. Business is a much more competitive sport than any real sport. It's 24x7x365. I'm a business adrenaline junky.
+- Traditional TV will have to innovate their TV delivery software in new ways beyond just offering their content in an app in order to change the viewing erosion of TV.
+- I placed too much importance on comparing how much I had to others early on. Then I started realizing time was a far more valuable asset. When I started using money to create more time, I appreciated both more.
+- I knew how to sell. I felt confident I could run a business. I was willing to outwork anyone. I wasn't afraid to live like a student on next to nothing. So that meant I had absolutely nothing to lose and everything to gain.
+- I hate politics. It's slimy. Any job where people pander for votes, I don't like. The country has gotten so partisan that if you're not on my side, you're the enemy. The only thing I ever try to support is a third party, like Unity08. We need more parties and more choice.
+- Make sure you are the boss. I don't think I would encourage executives that work for me to blog. There can be only 1 public vision for an organization.
+- The number-one job of the hedge-fund manager is not to make sure that you can retire with a smile on your face - it's for him to retire with a smile on his face.
+- Culture is very important to the Mavs. Your best player has to be a fit for what you want the culture of the team to be. He has to be someone who leads by example. Someone who sets the tone in the locker room and on the court. It isn't about who talks the most or the loudest. It is about the demeanor and attitude he brings.
+- I think what has allowed me to be successful is that I can absorb more information than most and drill down to the key business elements of that information and make faster decisions. And of course, I truly try to enjoy every minute of my life. I can never understand why anyone wouldn't.
+- I think people are tired of politics as usual. We're tired of everything being scripted; we're tired of every comment being politically correct.
+- The key is having great players. But there are a lot of teams that have All-Stars and haven't been able to put it together.
+- If there was a template for success in sports, everyone would follow it. You do the best you can and trust the people you trust.
+- I look at my annual budgets for everything and anything, and I look to see where I can save the most money on those items. Saving 30% to 50% buying in bulk - replenishable items from toothpaste to soup, or whatever I use a lot of - is the best guaranteed return on investment you can get anywhere.
+- I've learned the number one job of a pro manager is not to win championships but to keep their job.
+- Because if you're prepared and you know what it takes, it's not a risk. You just have to figure out how to get there. There is always a way to get there.
+- Every job in a company is important. Unless you experience a wide range of those jobs, I don't think you are as well prepared to start and run a company as you could be.
+- If you break your finger, that's on you, right? But if you get a chronic illness, if you get a serious illness or life-threatening illness, that's something I think we should all share the cost in because we all face the same unknowns and the same risks.
+- What I do know, at least what I think I have learned from my experiences in business, is that when there is a rush for everyone to do the same thing, it becomes more difficult to do. Not easier. Harder.
+- Wherever I see people doing something the way it's always been done, the way it's 'supposed' to be done, following the same old trends, well, that's just a big red flag to me to go look somewhere else.
+- Leaders are not dogmatic. They are principled and know that change is never easy, but when it's necessary, they must lead.
+- But we have to ask ourselves, what's the purpose of the stock market? It's supposed to be a source of capital for growing business. It's lost that purpose.
+- The people I don't like to work with are people like me. I need people who can complement my skill set, people who can do the nitty gritty with me.
+- Automation is going to cause unemployment, and we need to prepare for it.
+- I am telling you, the world's first trillionaires are going to come from somebody who masters A.I. and all its derivatives and applies it in ways we never thought of.
+- I love helping entrepreneurs. It's something I really have fun doing. It's like planting a little seed and watching it grow.
+- I believe in lower taxes. I believe in more efficient government. I believe in reducing bureaucracy. I believe that we shouldn't have lobbyists who can go in or former government workers who can come back and lobby.
+- To be a billionaire, you have got to get lucky.
+- Part of the bigger problem with Donald Trump is, when you sit and talk to him one-on-one, he's reasonable, he comes across as caring, he's open-minded, but then, all of that just is thrown out the window when he tweets and when he communicates with the media - and when he communicates at all.
+- Money is a scoreboard where you can rank how you're doing against other people.
+- 'Shark Tank' is fun, but it's all business. We use our own money, and the competition between the sharks is fierce. More importantly, it's an opportunity to invest in businesses that are being watched and considered by millions of people every time it's shown.
+- When I got to the Mavericks people were all giving me advice - change this, change that - and one thing that I didn't do was fire anybody.
+- We have to face the fact that countries are going to lose jobs to robotics. The only question that needs to be answered is which country will create and own the best robotic technology and have the infrastructure necessary to enable it.
+- Sweat equity is the most valuable equity there is. Know your business and industry better than anyone else in the world. Love what you do or don't do it.
+- I try not to be an ideologue about anything. If I'm wrong, I'm wrong, and I'm willing to evolve.
+- I worked hard and smarter than most people in the businesses I have been in.
+- At least before my hip replacement, I had a quick first step. I could get by you off the dribble. My business game is the same way. I can turn an idea into a business before you know it's going to be important. My first step will blow by you.
+- In these times of the 'Great Recession', we shouldn't be trying to shift the benefits of wealth behind some curtain. We should be celebrating and encouraging people to make as much money as they can. Profits equal tax money. While some people might find it distasteful to pay taxes, I don't. I find it patriotic.
+- What I've learned is that if you really want to be successful at something, you'll find that you put the time in. You won't just ask somebody if it's a good idea, you'll go figure out if it's a good idea.
+- I'm not cut out for politics.
+- Nice goes much further than mean.
+- Your customers can tell you the things that are broken and how they want to be made happy. Listen to them. Make them happy. But don't rely on them to create the future road map for your product or service. That's your job.
+- I'm not the type to pat myself on the back and all that, but somebody has to be lucky, right? When I got to Dallas, I was struggling - sleeping on the floor with six guys in a three-bedroom apartment. I used to drive around, look at the big houses, and imagine what it would be like to live there and use that as motivation.
+- Social media is just a platform. Twitter is a very simple and immediate broadcast platform. Facebook is a very personal, when it comes to friends and when it comes to fan pages, a little bit less but still somewhat personal way to communicate.
+- I'm the one guy who says don't force the stupid people to be quiet. I want to know who the morons are.
+- I create offbeat advice; I don't follow it. I rarely take third-party advice on my investments.
+- I liked Trump's honesty because it was different and had a chance to change the business of politics. What I didn't realize he was missing at the time was a complete and utter lack of preparation, knowledge, and common sense.
+- Owning a popular sports team is very different than any other type of business. They don't throw parades when Apple has the biggest quarter in corporate history. People don't call and email asking for anyone from the team to come visit their sick child. They don't cry as they request a jersey of their child's favorite player to be buried with them.
+- When you turn your team upside down and try to figure out what the culture of the team is, you take the greatest risk a team can take.
+- If you can't admit a failure, you're not an entrepreneur. You are not a good business person. There's nothing brilliant about what you are doing.
+- I believe that starting any business should be as easy as a 10-year-old starting a lemonade stand.
+- I had a Taco Bell audition where I had to wear a huge sombrero and walk around like an idiot. I got call-backs for the movie 'Twister,' did small independent stuff that I won't name. But it led to all my breakthrough moments on 'Entourage.'
+- If you think back to the first sporting event you went to, you don't remember the score, you don't remember a home run, you don't remember a dunk. You remember who you were with. Were you with your mom, your dad, your brother, on a date?
+- TV is no longer the best alternative to boredom. To kids not old enough for Snapchat, music is the best alternative to boredom. For Snapchat users, it's the best alternative to boredom.
+- Whatever you are studying right now, if you are not getting up to speed on deep learning, neural networks, etc., you lose. We are going through the process where software will automate software, automation will automate automation.
+- Talent without effort is wasted talent. And while effort is the one thing you can control in your life, applying that effort intelligently is next on the list.
+- I think Amazon is the greatest start-up and the greatest company in the world. The way they are using new technologies is not just disrupting retail, it's getting ready to disrupt everything.
+- Staying true to who I am was tougher when I first got wealthy. Having great friends kept me grounded.
+- Recessions are the best time to start a company. Companies fail. Others hold back capital. If you are willing to do the preparation and work, it is the best time to invest in yourself and start a business.
+- I bought a lifetime pass on American Airlines and had a blast. The most memorable was going to Barcelona on a whim and scalping tickets at the Olympics to the Dream Team Quarterfinals.
+- I don't think there's any question that the UFL or any other league that wants to challenge the NFL can have an impact. The demand for professional football is off the charts.
+- I have been a proponent of dramatically expanding the AmeriCorps program. By increasing the pay of participants to a living wage, it can act as a jobs program that, rather than trying to predict what will be technically viable jobs, will value social support and provide jobs that make communities stronger.
+- If the pitch starts with a sob story, I'm out. If the pitch talks about personal issues, I'm out. If the pitch starts off with how big the market opportunity is, I'm out. If the pitch tells me what is unique about the product, how it can make a profit, and it's an area where I have expertise, I will read on.
+- Someone is out there looking to put you out of business. Someone is out there who thinks they have a better idea than you have. A better solution than you have. A better or more efficient product than you have.
+- For food service industry and retail, I'm for the minimum wage being increased to at least $12. Not for manufacturing. Software and robotics are going to revolutionize manufacturing in the next 10 years. In the meantime, we have to compete with overseas manufacturing.
+- If I ran as a Dem, I know I could beat Hillary Clinton. And if it was me vs. Trump, I would crush him. No doubt about it.
+- I grew up in a working class family. People thought I might go work at a mill. My mom wanted me to learn how to lay carpet because she was concerned about my future. Nobody had high hopes for me. But I was a hustler.
+- Leaders don't look backwards to condemn what has already been done; they look forward to create a better future.
+- When you post something, when you text something, you lose ownership of it when you hit enter or send. Who you send it to, where you post it, they take ownership of that information whether you like it or not. Unfortunately, you don't lose responsibility for that text or post.
+- I think he tries to be nice. But he has absolutely zero self-awareness. None. Zip. So we see the public Donald Trump, the candidate, as being different than the in-person Donald Trump.
+- Being able to take a traditional cable-television subscriber and give them new widget type applications to me is huge.
+- Sweat equity is the best equity.
+- I think political people are afraid of me.
+- Anyone who says he is an expert in the market is lying to you. There is no such thing.
+- None of us have pure thoughts; we all live in glass houses.
+- Donald Trump has got unlimited number of insecurities. But the No. 1 one thing, I would say, is his insecurity with his intellect. There's a reason why he always refers to where he went to college and, you know, that, 'I'm a smart person.' You know, it may be narcissism. But I think it really reflects an insecurity.
+- Donald Trump I wouldn't trust as far as I could throw him.
+- When I die, I want to come back as me.
+- All TV is now digital. It's a platform ripe for innovation; we just haven't seen any beyond picture quality changes. That's a secular problem.
+- It is so much easier to be nice, to be respectful, to put yourself in your customers' shoes and try to understand how you might help them before they ask for help, than it is to try to mend a broken customer relationship.
+- In the past, people used to tell me to shut up a bit. But what I believe is to put out your opinion and let everyone else react. If I'm wrong, I'm wrong.
+- You've never heard me talk about politics all that much, and it's just - I can't think of anybody more dangerous as president than Donald Trump. I can't think of anything worse than with him not having a clue. I mean, could you imagine somebody who doesn't read and doesn't learn trying to deal with the day-to-day changes and challenges of that job?
+- I was born to sell it as a kid. I think it's partially innate, and partly it's because my parents were always very clear: if I needed anything that wasn't a necessity, I was going to have to save my money and buy it myself. That meant not only did I have to buy basketball shoes, but I had to figure out how to pay for college as well.
+- Up until Trump announced his candidacy, the conventional wisdom was that you had to be a professional politician in order to run. You had to have a background that was politically scrubbed. In other words, smart people who didn't live perfect lives could never run.
+- When you've got 10,000 people trying to do the same thing, why would you want to be number 10,001?
+- There are a lot of things I suck at. I'm not organized. I have to have partners and people around me who dot my i's and cross my t's. I'm sloppy. I'm a ready-fire-aim guy. I need to have people around me who aren't.
+- Liquidity is a good proxy for relative net worth. You can't lie about cash, stocks, and bond values.
+- In my opinion, right now there's way too much hype on the technologies and not enough attention to the real businesses behind them.
+- Leaders don't change their positions mid-debate. They welcome scorn from the masses because it creates the opportunity for dialogue.
+- Whatever you can say in a meeting, you can put in an email. If I have questions, I'll tell you via email.
+- When you look at 'policy wonk' in the dictionary, the one picture you won't see is Donald Trump.
+- You need to turn over every rock and open every door to learn your industry. This process never ends.
+- What I've learned in these 11 years is you just got to stay focused and believe in yourself and trust your own ability and judgment.
+- After military service, the most patriotic thing you can do as a wealthy person is pay your taxes.
+- I have stocked shelves, waited on tables, and bartended. I have been a salesperson at many levels. Each giving me a unique view of what made a company successful and, even more importantly, what made a company fail.
+- If you are good enough to compete for a top-level corporate job, you should be smart enough to know what the job pays the other gender and negotiate accordingly. If you are an employer, and you don't pay an employee market wages, regardless of gender or orientation, you will end up with what you deserve.
+- I would rather have the costs of consumer goods and restaurants - products we as consumers can choose to buy or not buy - go up and the need for public services go down.
+- I'm not a fan of giving to charities. I have a few I support, but the overhead and inefficiencies really bother me. Instead, I pay people's bills and help solve problems.
+- The first cities to create friction-free enterprise zones will get a lot of entrepreneurial traction.
+- I know that I'm not perfect. While we all have our prejudices and bigotries, we have to learn that it's an issue that we have to control, that it's part of my responsibility as an entrepreneur to try to solve it, not just to kick the problem down the road.
+- Being rich is a good thing. Not just in the obvious sense of benefitting you and your family, but in the broader sense. Profits are not a zero sum game. The more you make, the more of a financial impact you can have.
+- I love being challenged and defending my positions and, when I'm wrong, learning from the exchange. It makes me smarter and better as a businessperson.
+- In my mind, a good leader would say, 'OK, I need to sit down and talk to the guys who oppose me. Let me let them voice their opinions; let me get their thought process.'
+- There's no law against stupid - I learned that a long time ago.
+- Go out there and get rich. Get so obnoxiously rich that when that tax bill comes, your first thought will be to choke on how big a check you have to write.

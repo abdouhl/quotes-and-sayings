@@ -1,0 +1,17 @@
++++
+author = "Katie Leung"
+title = "Katie Leung Quotes"
+quotes_len = "11"
+description = "the best 11 Katie Leung Quotes"
++++
+- I thought acting was all about natural instinct but I've realised, through working with so many talented actors on 'Wild Swans' and 'Run,' that I can see the training. That's why I am back at drama school.
+- One of the things I liked about my character in 'Run' is that she can just disappear into the background if she wants, which is what I'm like.
+- I'm very quiet. I can go a whole week without talking, so doing interviews is really awkward for me!
+- In general, the auditions I go up for are very sparse, I guess because of my ethnicity. And the characters are very similar: shy, innocent and naive; the connotations that come from the way that I look.
+- I like Joaquin Phoenix. He's an amazing actor and he's so buff.
+- I am very indecisive. I'm always afraid of making the wrong decision.
+- I love theatre. It's far more satisfying than film. Sometimes there's a collective sigh from the audience, or it's so quiet you can hear a pin drop. I couldn't believe how easy acting was when there's an audience; after a few previews I almost couldn't do it without one.
+- 'Wild Swans' showed me there are Chinese traditions that still affect my life. For example, it's not that women are inferior, exactly, but my dad and my brother are the most important men in my life and I would do anything for them. I feel like I should be the one cooking and looking after them.
+- I'm single and looking and failing miserably. I'm keeping my options open.
+- I was born in Scotland and have lived there all my life. I speak conversational Cantonese with my dad when I'm at home, and very basic Mandarin.
+- I'm not the type of person who enjoys the limelight.

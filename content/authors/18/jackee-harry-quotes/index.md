@@ -1,0 +1,30 @@
++++
+author = "Jackee Harry"
+title = "Jackee Harry Quotes"
+quotes_len = "24"
+description = "the best 24 Jackee Harry Quotes"
++++
+- Sitcoms are making a comeback, but you've got to have a little quirkiness in there now.
+- I hate to say it, but the older you get, you really do have to cut down on the amount you eat. Less food and less portions.
+- I love DKNY. I love her sweaters because I can take them and just wear nothing underneath and just wrap them.
+- I like beautiful clothing. I love Bergdorfs.
+- I like a man who's going to tell me 'No!' sometimes.
+- I was always telling my family I wanted to become an actress, and I did.
+- I was married for four years, then success happened.
+- My goal is to give young girls confidence in this world so they can be more like men in the decision-making process.
+- Right now I am trying to be in a place of calm, a place where I can chill out and then handle the chaos of life better. You don't just get it overnight; you have to work at it. It's a daily struggle.
+- I'll use men's shirts, I love men's shirts, but you have to get them altered because they're shaped differently and I like them to be fitting.
+- I don't mind dating younger men now.
+- I like writing my own material - I'm pretty good at it.
+- My mornings go by so fast I forget breakfast. Lunch - that's turned out to be my biggest meal. I like tuna fish with low-fat mayonnaise and celery, egg whites and garlic. It's delish.
+- I miss Broadway, what little there is on Broadway now.
+- I really am a feminist, though I never used to call myself that.
+- Women often come up not knowing how to make decisions. We get wishy-washy. We become great wage earners - breadwinners - but we don't know how to control empires.
+- I have one weakness: I love meat loaf.
+- Water really does great things for my skin.
+- I don't exercise.
+- I try not to do bad, but sometimes it's irresistible.
+- Red, electric blue - the only color I don't wear is green, which I still don't wear. I wear certain color greens, but I have such yellow skin so I always like to wear bold colors.
+- When I got '227' and broke out from the rest of the cast, I became a workaholic, and I was very lonely.
+- If you're being attacked by something on the outside, which I feel a lot being in show business, you just have to dial it back and breathe and know that you are protected.
+- When I see something, I go for it.

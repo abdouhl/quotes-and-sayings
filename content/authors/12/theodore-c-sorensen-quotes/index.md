@@ -1,0 +1,30 @@
++++
+author = "Theodore C. Sorensen"
+title = "Theodore C. Sorensen Quotes"
+quotes_len = "24"
+description = "the best 24 Theodore C. Sorensen Quotes"
++++
+- The good news, to relieve all this gloom, is that a democracy is inherently self-correcting. Here, the people are sovereign. Inept political leaders can be replaced. Foolish policies can be changed. Disastrous mistakes can be reversed.
+- We remain essentially a nation under siege.
+- Al Gore is not just whistling in the wind. Global warming is for real. Every scientist knows that now, and we are on our way to the destruction of every species on earth, if we don't pay attention and reverse our course.
+- We shall listen, not lecture; learn, not threaten. We will enhance our safety by earning the respect of others and showing respect for them. In short, our foreign policy will rest on the traditional American values of restraint and empathy, not on military might.
+- I think Democrats made a mistake running away from liberalism. Liberalism, uh, Franklin Roosevelt, Harry Truman, John and Robert Kennedy - that's what the Democratic party ought to reach for.
+- We will be safer from terrorist attack only when we have earned the respect of all other nations instead of their fear, respect for our values and not merely our weapons.
+- We will always apply the same principles of collective security, prudent caution, and superior weaponry that enabled us to peacefully prevail in the long cold war against the Soviet Union.
+- With the help of dedicated Americans from our party, every party, and no party at all, I intend to mount that stairway to preach peace for our nation and world.
+- We need not renounce the use of conventional force. We will be ready to repel any clear and present danger that poses a genuine threat to our national security and survival.
+- Presidential candidates don't chew gum.
+- Above all, we shall wage no more unilateral, ill-planned, ill-considered, and ill-prepared invasions of foreign countries that pose no actual threat to our security.
+- We have convinced over one billion members of the Islamic faith that we are prejudiced against their religion, that we would deny them freedom of religion, that we want suppress their culture and invade their governments.
+- We have treated our most serious adversaries, such as Iran and North Korea, in the most juvenile manner - by giving them the silent treatment. In so doing, we have weakened, not strengthened, our bargaining position and our leadership.
+- The ambassador was never present, but his presence was never absent.
+- Number one, that it is smart to communicate and negotiate with your enemy instead of just waging war with bombs and weapons of mass destruction.
+- I think he's informing himself, reaching out and getting ideas and information and advice. I haven't the slightest doubt that internally taking shape in that marvelous brain of his is a philosophy of foreign affairs. But it would be premature to say that one is fully formed.
+- The damage done to this country by its own misconduct in the last few months and years, to its very heart and soul, is far greater and longer lasting than any damage that any terrorist could possibly inflict upon us.
+- I'm simply saying that there are advantages in sending a skilled diplomat who can always say, 'I'll get back to you on that, Mr. Minister'.
+- I believe in an America in which the fruits of productivity and prosperity are shared by all, by workers as well as owners, by those at the bottom as well as those at the top; an America in which the sacrifices required by national security are shared by all, by profiteers in the back offices as well as volunteers on the front lines.
+- I came from Nebraska, a very middle class family with a progressive father.
+- Military strength in reserve is better than military strength being reigned upon the other side including all of its innocent civilians.
+- If we can but tear the blindfold of self-deception from our eyes and loosen the gag of self-denial from our voices, we can restore our country to greatness.
+- Our surest protection against assault from abroad has been not all our guards, gates and guns, or even our two oceans, but our essential goodness as a people. Our richest asset has been not our material wealth but our values.
+- Now people all across America are starting to believe in America again. We are coming back, back to the heights of greatness, back to America's proud role as a temple of justice and a champion of peace.

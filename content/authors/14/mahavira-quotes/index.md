@@ -1,0 +1,23 @@
++++
+author = "Mahavira"
+title = "Mahavira Quotes"
+quotes_len = "17"
+description = "the best 17 Mahavira Quotes"
++++
+- Live and allow others to live; hurt no one; life is dear to all living beings.
+- Eating constitutes the greatest obstacle to self-control; it gives rise to indolence.
+- Do not deprive someone of his livelihood. This is a sinful tendency.
+- The nature of things is dharma.
+- Modes are infinite, and laws are infinite.
+- All are my friends. I have no enemies.
+- Start the practice of self-control with some penance; begin with fasting.
+- If you want to cultivate a habit, do it without any reservation, till it is firmly established. Until it is so confirmed, until it becomes a part of your character, let there be no exception, no relaxation of effort.
+- The most important principle of environment is that you are not the only element.
+- One who neglects or disregards the existence of earth, air, fire, water and vegetation disregards his own existence which is entwined with them.
+- Don't accumulate if you do not need. The excess of wealth in your hands is for the society, and you are the trustee for the same.
+- Attachment and aversion are the root cause of karma, and karma originates from infatuation. Karma is the root cause of birth and death, and these are said to be the source of misery. None can escape the effect of their own past karma.
+- All souls are equal and alike and have the similar nature and qualities.
+- If one undertakes retrospection of the day's events, one must do it regularly at the appointed hour, not fitfully, not doing it today, neglecting to do it tomorrow and the day after and then taking it up again on the fourth day. Such irregular practice is not conducive to the confirmation of the habit of retrospection.
+- Anger begets more anger, and forgiveness and love lead to more forgiveness and love.
+- By sincerity, a man gains physical, mental and linguistic straightforwardness, and harmonious tendency; that is, congruence of speech and action.
+- Soul is the central point of spiritual discipline.

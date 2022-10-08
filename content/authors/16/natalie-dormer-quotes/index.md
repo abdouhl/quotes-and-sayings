@@ -1,0 +1,128 @@
++++
+author = "Natalie Dormer"
+title = "Natalie Dormer Quotes"
+quotes_len = "122"
+description = "the best 122 Natalie Dormer Quotes"
++++
+- 'The Hunger Games' has something for everyone.
+- I'm quite physical. I'm from one of those dog-walking families where hiking up a mountain is meant to be fun.
+- These are moments in your life to be cherished; they don't come around that often. To be flying around in a 'Game of Thrones' jet, to be greeted by massive enthusiasts.
+- Perfect is very boring, and if you happen to have a different look, that's a celebration of human nature, I think. If we were all symmetrical and perfect, life would be very dull.
+- I screen tested for 'The Tudors' in N.Y. That was my first experience of N.Y., being flown here to screen test with Jonathan Rhys Meyers. So I have very, very fond memories of New York - New York helped give me my first big break.
+- Actors have this amazing skill - we bond quite quickly but equally we move on quite quickly. There's nothing particularly cold or capricious about it - we're troubadours and lead a troubadour's lifestyle.
+- I've never been far from the river. I'm sort of like a Thames-nymph.
+- I'm a 'Blackadder' girl.
+- I've always been a history lover. I've spent a lot of recreational time walking around historical castles and estates, in Britain and Europe, and so I know what the real thing looks like.
+- I'm a bed monster.
+- Women have a lot of... attitudes enforced in us about our sense of attractiveness being bound up in long, flowing, Hollywood kind of hair.
+- Fashion, historically, is how people make statements about themselves or communicate.
+- I was so excited to work with Ridley Scott. Who wouldn't be?
+- I was frequently told at drama school that I was thinking too much. And I still have to suppress that part of me because it can sometimes be a hindrance.
+- To be joining 'The Hunger Games' family is such a thrill. It deserves the hype because it's well written, handles really big subject matter, but doesn't talk down to its audience. And then there's the romance element.
+- I've been insane from a very early age.
+- Make-up is all about shading; it's about tactical application.
+- I feel like I've really earnt my stripes - I feel ready to play a lead. I would just love to prove I'm good enough to carry a project.
+- Cutting one side of your head for a few months is not a big deal compared with what other people have to deal with in the world. Plus, hair grows back.
+- Nothing is taken lightly in 'The Hunger Games.'
+- The train system in India is chaotic and fun - it's the best way to see the landscape. Being in with all the families and also being the odd animal is a colourful experience you'll never forget.
+- As an actress, as you get older, you find yourself in a situation where you play mothers or women who are hoping to be mothers.
+- For me, it's not necessarily interesting to play a strong, fearless woman. It's interesting to play a woman who is terrified and then overcomes that fear. It's about the journey. Courage is not the absence of fear, it's overcoming it.
+- When you have that long, flowing hair, you feel different - when you cut it, the framing of your face changes immediately.
+- Shaving half my head was a look that meant I could go punkier with my style.
+- I'm a serial monogamist and would never dream of being as predatory as some of the women I've played. I can actually be a bit shy.
+- The Gili Islands gave me some of my best scuba diving experiences, including tons of turtles.
+- I'm very lucky to be in projects that have such skilled writing in them.
+- It is impossible for human beings not to view something subjectively.
+- It really bugs me the way people criticise how actors look. We're not models. Models exist.
+- Good style - regardless of fads - means the thing that suits your body.
+- It's fascinating how much of our sense of attractiveness and feminine identity is bound up in our hair.
+- Obviously, you have quieter years than others - you don't go jumping out of a plane every day.
+- I'm not going to comment about potential jobs in the future because that's a rabbit hole to go down and get caught up in, but all I'll say is I'll go where the good scripts are.
+- When I see a fan coming over, I can't help but make an assumption about what they want to talk about. A middle-aged American woman will head over, and I think, 'Game of Thrones.' Turns out it's 'The Tudors' or 'Elementary' or 'The Hunger Games.' It's always a surprise.
+- Being seduced by a man on crutches was an interesting experience.
+- The beauty of 'The Hunger Games' and also 'Game of Thrones,' in fairness, both projects have really complex, three-dimensional, contradictory, strong women... The writing of female characters is extraordinary and equal to the men.
+- When I turn on the news in Paris, the way Syria is covered is different from the way it is covered in Washington, D.C., or London. Even in Western society, where we hold all the values of democracy and freedom of speech, as soon as you point a camera in a particular direction, there is an angle - literally and figuratively.
+- I'm not clever enough to be in machinations and real politics.
+- Sometimes a woman's looks or sensuality are too readily wrapped up in their power.
+- I know I'm not a conventional beauty. You can read a lot of painful things on the Internet, which criticise you aesthetically - but as far as I'm concerned, that's not what an actress is.
+- I think the beauty of the writing of 'Game of Thrones' is not that the characters are fearless; it's how they overcome their fear, you know?
+- I meet fascinating people I respect and idolise all the time.
+- Women are over 50 percent of the population.
+- My role as Ewan McGregor's girlfriend in the film 'Incendiary' ended up on the cutting-room floor, but at least I had two brilliant days of acting with Ewan.
+- When I was a little girl, my grandfather, who I was very close to, used to grow yellow roses. He had yellow roses growing all the way up his drive.
+- I had a period of unemployment for about nine months after my first big break, and it's the greatest lesson I ever could have learned, never to believe you're home and dry.
+- I've taken my clothes off enough in my career.
+- We don't have enough young, female antiheroes. We don't accept women as antiheroes the way we do the men.
+- I love poker!
+- Dormer by name, Dormer by nature: I love to sleep.
+- I would love to go to the Himalayas and cross over into Nepal to do the Darjeeling Himalayan Railway.
+- From my experience of shooting 'Tudors' on the island of Ireland, you cannot predict the weather.
+- I love being part of huge mega blockbusters, and I love being a part of small independent films and small stage.
+- I was a very physical child... I was a tree-climber; I was a tomboy.
+- Sci-fi always runs out a little bit ahead of reality, right? Automatic doors in 'Star Trek,' stuff like that. It all happened, didn't it, finally?
+- I'm a London girl, so I grew up on Alexander McQueen and Vivienne Westwood... Dior, Chanel, the usual suspects.
+- I think every actor brings something personal to a role, right?
+- Kids are very cruel to each other.
+- What makes me really happy is a walk in the English countryside. A nice sunset, that British countryside - it means I'm home.
+- You'd have to be an idiot to say no to 'Hunger Games.'
+- I love my camera crews on all my jobs. It's the half of the job that the audience never gets to see. They're integral. They're as much a part of making a movie or television show as I am.
+- When I wake up on a Sunday morning with a slight hangover, in the gym with no makeup on, that's who Natalie Dormer really is. The girl next door who gets a spot on her forehead occasionally.
+- I have been to Canada several times. It was autumn when I visited Vancouver, and I will always remember the colour of the trees in British Columbia were stunning.
+- As a child, I was prancing around in my mother's high heels and a ra-ra skirt, singing 'Material Girl' into my hairbrush.
+- Madonna is completely down-to-earth. She's an absolute professional.
+- I love cycling.
+- We all need some TLC and to pat ourselves on the back from time to time.
+- There's a real mischievousness about Irishmen, don't you find?
+- I always tell people this: to be a savvy politician or a good head of state and to be charitable are not mutually exclusive things.
+- There was a woman in Elizabeth I's court that happened to have the same family name as me.
+- My party trick is that I can get ready to go to the party really quickly. I'm actually a woman that can have a shower, dry and style her hair, do her make-up and get dressed in under an hour.
+- I love watching the old movies. I love Katharine Hepburn. I just adore her and everything that she stood for. I find it interesting watching the likes of Gene Tierney and those classic movies of the '40s.
+- I want to keep people guessing.
+- The hair department on 'Game of Thrones' is incredible.
+- I've been spoiled rotten with the costumes I've worn.
+- When girls bully, it's very subtle, and you can't define it. At least with boys, the bullying is usually explicit, and you can deal with it. It's psychological with girls.
+- It's a writer's or director's role to be cerebral, whereas for an actor it should be a visceral, gut thing. When the action starts, it's best to turn the brain off and let it become an instinctual thing.
+- I couldn't pick just one defining breakthrough role. I like to think that they're all a part of me.
+- Privacy is important to me. But it's not just about sticking two fingers up and saying I don't want anyone to know my business. It's an artistic choice. I think that for any actor to convince their audience that they have completely inhabited a character requires a certain level of anonymity.
+- I'm always open to trying out new things.
+- There's a part of my heart that forever has Anne Boleyn written on it, who I played in 'The Tudors.'
+- I did every job under the sun from bartending to ushering to temping.
+- I'm a massive yoga head. Lots of yoga and lots of running. I do Bikram yoga. I adore it.
+- I think we all remember Emma Peel from 'The Avengers,' the feminist icon that she was in the late '60s.
+- I love to drive. My present to myself from 'The Tudors' was a red Mazda MX5 hard-top convertible. I loved that car, and also what she represented - my first success.
+- Jennifer Lawrence is just the coolest girl.
+- I'm a natural blonde!
+- Everything that I do to my own hair and makeup I learned from professionals.
+- It's funny how being an actor forces you to do things or go places that you wouldn't ordinarily.
+- What I love about 'Mockingjay, Part 1' is that President Coin or Cressida could have easily been played by a man, and if you look at 'Interstellar,' the Anne Hathaway or Jessica Chastain roles would have been men years ago.
+- My yoga mat comes everywhere. Keeps me stretched out after sitting still on all those planes, trains and road journeys.
+- I think women have always been trying to look healthy. The makeup artists just teach you the quick cheats.
+- Anne Boleyn is an intriguing character. She seems to appeal to modern-day women in a very potent way. Because she was such an independently opinionated and spirited young woman, which at the time was unheard of.
+- As an actor, you spend a lot of your life in hotel rooms.
+- Travel is so important in its capacity to expand the mind. It's exciting to start as young as possible - you get to see how other cultures live, challenge your senses, and try different cuisines.
+- I've played a lot of elegance and refinement, so to do something really down and dirty is a great attraction.
+- Long skirts are annoying; they get in the way.
+- There are a lot of parallels between the historical Henry VIII and Jonathan Rhys Meyers. There's an oscillation and extremity of emotion throughout his repertoire that lends itself beautifully to the nature of Henry VIII, definitely. He will push things to the limit, and yet remain in emotional control.
+- The most amazing set where I've shot 'Game of Thrones' is definitely Croatia, in Dubrovnik. It's such a stunning country with lots of good watersports there as well. Just a beautiful, beautiful place.
+- I've been told that N.Y. in the spring is pretty special.
+- As an actress, I think it's important to look back and realize that we aren't always quite as original as we think we are. There's this grand, textured history for us over the last 100 years of incredible writers, directors, and performers.
+- My first time to Rome was when I was backpacking with my best friend around Europe for a month at 18 years old, so I remember that excitement of being away from home properly for the first time.
+- I don't know if I'm a daredevil, exactly, but I do enjoy a good challenge. It's the only way you grow.
+- I'm a feminist in the true sense of the word. It's about equality.
+- Because of my job, I get a lot of opportunity to grab a few days here and there in many cool cities for press commitments, magazine shoots and premieres - Barcelona, Madrid, Rome, Paris, Stockholm, New York, Berlin. I always try to get to a gallery or museum if there's time.
+- I love going out of my comfort zone - I live to go out of my comfort zone.
+- If there's 'game' in the title, I'm there! Ready to play!
+- We live in one of the most complex ages for young, professional women.
+- I try to stay consciously away from the roles of the girl who throws herself at the leading man, because I've done it a lot and I want to move on. I ticked that box.
+- I'm a quasi-only child. With my brother and sister, I've more of a tendency to be semi-maternal. So, yes, I spent a lot of time talking to myself - I had this big dressing-up box and would just dress up as lots of characters and talk back to myself... Verging on schizophrenia, I suppose, if you analyse it carefully.
+- A lot of boys in my poker circle are mathematicians who play on probability. I don't have that kind of brain, so I rely on instinct. But I recently found out that poker and cards in general go way back in my family gene pool.
+- I get accused of having a haughty smugness. I have a lopsided mouth. I can't help it. I was born with it. It looks as if I am smirking. I have had my publicist tell me, 'Don't do that smile on the red carpet.' I'm, like, 'That's my smile.'
+- Isn't it lovely to know that even the great Sherlock Holmes, the quirky and genius Sherlock Holmes, is vulnerable to love as we all are?
+- So many little girls dream about their wedding day. But with actresses, sometimes it's the inverse, because we get to be the centre of attention, looked up and down, dressed up for premieres all the time. The pull isn't quite as great.
+- The world is changing so quickly, and actors now have this huge platform of social media to interact with their audiences, but I choose not to have a social media footprint. I'm old-school like that.
+- You can think what you like of Madonna - about her political choices and her PR - but you have to respect her courage not to let the critics stop her exploring her potential.
+- Famously, Anne Boleyn was not a beauty: she was more about quirkiness and an innate sensuality, and there are a lot of references to her eyes. Which sends out a great message for women, because life is not about the aesthetic all the time.
+- More often than not, I get cast as quite Machiavellian roles - it's something about my face; I'm quite shifty or something!
+- Network shows shoot so fast, so you kind of have to just go with your instinct.
+- Emilia Clarke has beautiful brunette hair.
+- I'm glad that cinema is catching up to what television has known for a while: That three-dimensional, complex women get an audience engaged as much as the men.

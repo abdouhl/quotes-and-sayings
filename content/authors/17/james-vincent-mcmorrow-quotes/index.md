@@ -1,0 +1,44 @@
++++
+author = "James Vincent Mcmorrow"
+title = "James Vincent Mcmorrow Quotes"
+quotes_len = "38"
+description = "the best 38 James Vincent Mcmorrow Quotes"
++++
+- I was never a 'sit down with a notepad and write lyrics' kind of person.
+- More often than not, changes had to be made in order for a song to make sense, and by the end of it, it would just be something different. Lyrically, I am usually fairly confused until something is finished, and then it makes perfect sense to me.
+- My first record was made in Termonfeckin, which is a small town on the north-east coast of Ireland. I had been in London, but it didn't click. So, at home, I didn't think about making something, just whether something could be made. There was no grand plan.
+- I remember always looking forward to listening to country music in the car with my mother, and it wasn't even something I enjoyed in the sense of music, but just being around music itself was enough.
+- I'm learning on the guitar all the time.
+- Food in Dublin has gotten immeasurably better than it was. When I was a kid, there weren't a lot of options. Now you're overwhelmed with options.
+- I didn't start playing music really until I was 18/19, so it was a relatively new thing. I didn't play much music in school.
+- I didn't really learn how to play guitar until I was in college.
+- I've got an Avalon guitar - that's the company that used to be Lowden. They come out of Ireland, and they're like these folk kind of guitars. You can pick 'em, you can strum 'em - they're quite good.
+- You can batter your guitar, and it won't distort too much, which is important for me because I play with my hands a lot - I don't really play with picks.
+- My mum was a big fan of E.L.O. and Elvis Costello. She used to play that, consistently, all the time when we were kids. And my dad, he would claim to be a singer... You know, he loves singing, and he used to sing a lot when he was a kid and at parties and stuff like that. So I come from a very party-musical family.
+- The only thing that's ever made sense to me has been sitting in the house by myself making music.
+- I'm mostly a keep-to-myself kind of guy, but you slowly find yourself getting folded into the musical tapestry.
+- I just essentially stayed at home for three years and just learned to play as many instruments as I could and listened to as many singers as I could. Like, when I got to about 19/20, I started listening to singers. I normally just listened to bands. Now I listen to a lot of old singers, not a lot of new stuff.
+- You play a couple of shows, and these label guys come - and they leave halfway through a show. Then the phone calls just stop. And your heart is broken.
+- All the really good guitar players - Jimi Hendrix, Jimmy Page, or even Bert Jansch or John Martin - I love all those people. But I didn't start out thinking that I would be a guitar player. In the beginning, I played the guitar so I could sing. I mainly concentrated on my voice.
+- The idea of trying to predict what people will or won't respond to is risky.
+- I never was the front man in any bands I played in when I was in college, and I always learned music by myself at home.
+- With music, it feels natural that, in my head, I can pull things apart and then put them back together very quickly.
+- It bothers me when musicians listen to music from the '60s and try and recreate it. Those people weren't trying to recreate music from the '20s. Why do it?
+- My favorite records are not easy - they're not records that reveal everything to you the first time out.
+- I like what I like, I don't like what I don't like, and I'm very bad at toning myself down.
+- I heard of this Texas studio. The owner, Tony Rancich, wanted to fly us out for the day to see the studio. I booked it the next day. He's that rare guy that is in it purely for the love of it.
+- I'm very ambitious, musically - I want to create great things, not mediocre work.
+- You just wake up and make music.
+- I moved to London with this really warped sense of expectation.
+- I don't function well in certain aspects of society, and you can read into that what you will.
+- When I first saw Drake, I thought I was never going to like him based on the person that I saw on T.V. He's just so full on, and he's got the ladies' man thing, which isn't necessarily something that would resonate with me.
+- I have no interest in making music that's built for an antique shop.
+- You get one chance to make an impression, and coasting through is a disservice.
+- I have some vivid memories of walking around as a child with a cassette tape.
+- It's like half the campaign of selling a record is trying to convince people that you're an artist. Well, I am an artist. This is what I do.
+- I think it's safe to say that if you talk to anybody in Ireland, they'll have a passing knowledge of the guitar. It was something that I couldn't get away from when I was younger: guitars played in shops and parties, just everywhere.
+- I grew up in a place called Malahide, which is by the water and is beautifully quiet, leafy, and part serene.
+- I've traveled quite a lot and become a coffee nut.
+- I like working by myself.
+- I don't know if I'm attention deficit, but I certainly am easily distracted by other things.
+- I don't know about folk music. I play guitar, so there's a feeling I make folk music.

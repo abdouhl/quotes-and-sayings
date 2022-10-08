@@ -1,0 +1,84 @@
++++
+author = "Keith Allen"
+title = "Keith Allen Quotes"
+quotes_len = "78"
+description = "the best 78 Keith Allen Quotes"
++++
+- My mother was Welsh and I loved going to Wales every summer, where Uncle Les had a farm. My mother had seven brothers and a sister and they were all very close. There would always be food on the table and uncles coming in and out. My father's family were English and lived in London, and we didn't really see them.
+- Punk changed everything. It blew away all the dull, pompous stuff that happened before, like glam rock. Kids were getting involved in causes like Rock Against Racism and they needed music that reflected that. Something similar was happening in comedy too, with the Comedy Store and the alternative scene that I got involved in.
+- The Internet is a global lavatory wall, a Rabelaisian mixture of truth, lies, insanity and humour.
+- I always do things for myself and I don't care about what people think.
+- Women want to be entertained. They want value for money from a man. You have to have the whole package.
+- I'm delighted that the BBC has given me the chance to delve into the murky world of 'The Body Farm.'
+- I was always a late developer - in every field.
+- There must be something about me and teeth when I'm filming abroad, I don't have a lot of luck.
+- I knew Joe Strummer back in the days before he formed the Clash.
+- I have no ambition whatsoever. I don't know whether that's because I'm afraid of losing, or of failure - of not being the best.
+- I can honestly say that throughout the 70s I never watched telly. I can remember 'Dr Who' and 'Morecambe and Wise' vaguely, but my generation didn't watch telly.
+- I have never ever hung out with actors and comedians. I can't stand it.
+- If you look at the people in the Occupy and tax-evading movements, they come from all walks of life and have embraced that attitude of opposition from the 1970s.
+- I'm a jack of all trades, master of none.
+- I'm very old fashioned. I'm from an era where your phone is in the house so if you are pottering in the garden then you won't hear it ring.
+- I'll take anyone to task about UB40. They were as important as Bob Marley in getting reggae into the consciousness of British youth at that time. I'm proud to be their number one fan.
+- If you're on a film set for 48 weeks of the year, you're nowhere near reality. You can't emote like a human being.
+- I'd done performance art sporadically from about 1976 - very personal street things on my own. Acting seemed like a natural step from that. But I didn't really want to 'be' anything: presenter, comic, actor. I just wanted to perform.
+- If the press can take the easy option, they will. To them, I'm always 'the wild man.'
+- A lot of what journalists write is drivel.
+- I've always maintained if you want to act you should get yourself a life first.
+- Anything to do with Heathrow is a nightmare.
+- I would be a fool to say I enjoyed being in borstal, but when I was there I had a great time.
+- In the summer, 80 per cent of what I eat comes from my allotment. I grow everything from beetroots and leeks to apples and plums.
+- I do a very good Sunday roast.
+- One Direction prove you can generate success from anything.
+- Jeremy Corbyn... love him. Right person, right time. He's like a poultice, drawing Blairite disease out of the Labour party.
+- I don't want to be loved. No interest in being loved whatsoever. Actually, I don't mind being misunderstood either.
+- I don't think I've ever hurt anybody. I think I'll stand up on the day of judgment and go, 'Yeah? So what?'
+- I'm very good at pretending to be subservient; I'm really good at it.
+- I hate technically constructed actors. In fact, I hate anything technically constructed, unless it's a bridge.
+- It's much easier being a father to girls. Boys are just horrible. Then girls come into their own around 12 when they're nightmares too.
+- We are governed by consumerism and it's terrible when that is all that life is geared to.
+- I'm in love with corrugated iron buildings, especially chapels and churches.
+- A performer, that's what I am, only I can perform in different areas.
+- When I've had money I've always spent it. I don't invest. A pension? Yes, it's called my talent.
+- I'm actually a rather dull man.
+- I only did the comedy thing because I just thought I could do it better than anyone else at the time. And I was right.
+- Celebrity's a spectator sport. You have to feed it.
+- Obviously I have propagated the occasional myth about myself, because the real me, I'm not worth knowing.
+- My hero in adulthood would be Michael Bryant, who's dead, bless him. His memory lives on. He was an actor at the National, and a wonderful man.
+- I was brought up on stuffed hearts, cabbage and mashed potatoes. It's repulsive, when I look back - I used to go to the butchers to get Mum's sausages, and I would cut one off and squeeze the inside of it straight into my mouth. Insane!
+- I hardly ever drink.
+- You can't learn how to have presence. I walk into a room and people say 'I wonder where he's been?' When other people walk in, they say 'I wonder where he's going?'
+- I started out in comedy gigging and scraping a living together, and eventually worked up to doing shows at the Comedy Store in London in 1979. That led on to me presenting a show in the early days of Channel 4 called 'Whatever You Want,' which had live music and sketches.
+- I would have loved to have been in Hong Kong, or China, in around the 18th century.
+- My father was in the navy. I always found it a bit strange that he would choose to spend an extraordinary amount of time underneath the water in a submarine with 60 men.
+- It must have been horrible for my parents to see me go from public school to comprehensive to detention centre to borstal. I was busy ploughing my own furrow, but I must have been a terrible worry to them, and for that I am sorry.
+- Women are women's own worst enemy. They rip each other apart.
+- I didn't really do any acting until I was about 28. I just did odd jobs.
+- There's so much mythologising around me.
+- Journalists have so much newsprint to fill, the details are the last of their considerations.
+- If everybody was a bank clerk, then I would be a rebel. But if everyone was a rebel, then I promise you I would go out of my way to be a bank clerk.
+- I loathe the very thought of airports and also airlines taking as much from you as possible and giving very little back.
+- I guess there's a part of me that loves institutionalism. And borstal is tailor-made for you to buck against. It was perfect.
+- I am certain things to certain generations. Lots of people remember me from the 'Comic Strip,' there was the 'Vindaloo' song for the 1998 World Cup, then it was playing the Sheriff of Nottingham in the BBC's 'Robin Hood.'
+- I'm primarily an actor and only make documentaries when I see a story others have missed.
+- I don't suffer from what I believe a lot of actors suffer from, in that they have to do certain things to be an actor, like endlessly study the script and endlessly think about the character. I wouldn't advise that to anybody.
+- People using a public platform to further their own personal agenda, I think that's immoral. You have no right to do that. Tony Blair is a great example of that.
+- Vanity takes a lot of work. I'm too lazy to be vain.
+- I can't have wet wool next to my skin because it really affects it.
+- Unlike virtually everyone else, I know how to work a room. That comes in pretty handy. If you're not getting any laughs, then at least you can make people watch you.
+- Without history we are nothing, so it's worth finding out something about it.
+- I love reading when I'm on holiday.
+- I have a focused career plan, which is not to have a focused career plan.
+- My father was the biggest influence on my own parenting because I became the complete opposite to him. He found it very difficult to show physical love, like cuddling and that kind of stuff, so I went the other way.
+- I don't like the taste of alcohol.
+- My childhood hero was Roy Rogers.
+- My whole life has been a holiday!
+- I don't like going to parties, I like having parties at home.
+- Growing up we were very working-class; you had dinner at 12, then tea at 4:30. If you got supper, you were doing bloody well.
+- I've been on the edge of everything, like one of those characters at the side of a Brueghel painting with a warty nose. I've been very lucky - I lived through three of the most profoundly important musical revolutions of the 20th century: latterday rock and roll, punk and then the rave culture.
+- All actors will tell you that baddies are where the money is because they stick in people's minds.
+- We make our own pesto. Our own chutney and jams.
+- I'm probably the biggest show-off in the world. But I also happen to be an artist. You can be both, you know.
+- I love all aspects of performance.
+- Give me some grilled halloumi and a bit of hummus to snack on, and I'm in heaven.
+- The act of littering annoys me more than anything, particularly drivers who throw stuff out of the car window.

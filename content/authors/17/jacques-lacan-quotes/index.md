@@ -1,0 +1,25 @@
++++
+author = "Jacques Lacan"
+title = "Jacques Lacan Quotes"
+quotes_len = "19"
+description = "the best 19 Jacques Lacan Quotes"
++++
+- A geometry implies the heterogeneity of locus, namely that there is a locus of the Other. Regarding this locus of the Other, of one sex as Other, as absolute Other, what does the most recent development in topology allow us to posit?
+- In other words, the man who is born into existence deals first with language; this is a given. He is even caught in it before his birth.
+- The narration, in fact, doubles the drama with a commentary without which no mise en scene would be possible.
+- Yet, analytical truth is not as mysterious, or as secret, so as to not allow us to see that people with a talent for directing consciences see truth rise spontaneously.
+- Writings scatter to the winds blank checks in an insane charge. And were they not such flying leaves, there would be no purloined letters.
+- But this emphasis would be lavished in vain, if it served, in your opinion, only to abstract a general type from phenomena whose particularity in our work would remain the essential thing for you, and whose original arrangement could be broken up only artificially.
+- What could be more convincing, moreover, than the gesture of laying one's cards face up on the table?
+- For the signifier is a unit in its very uniqueness, being by nature symbol only of an absence.
+- As is known, it is in the realm of experience inaugurated by psychoanalysis that we may grasp along what imaginary lines the human organism, in the most intimate recesses of its being, manifests its capture in a symbolic dimension.
+- Since Freud, the center of man is not where we thought it was; one has to go on from there.
+- Which is why we cannot say of the purloined letter that, like other objects, it must be or not be in a particular place but that unlike them it will be and not be where it is, wherever it goes.
+- Aside from that reservation, a fictive tale even has the advantage of manifesting symbolic necessity more purely to the extent that we may believe its conception arbitrary.
+- What does it matter how many lovers you have if none of them gives you the universe?
+- The Mirror Stage as formative in the function of the I as revealed in psychoanalytic experience.
+- Psychoanalysis is a terribly efficient instrument, and because it is more and more a prestigious instrument, we run the risk of using it with a purpose for which it was not made for, and in this way we may degrade it.
+- The knowledge that there is a part of the psychic functions that are out of conscious reach, we did not need to wait for Freud to know this!
+- Symptoms, those you believe you recognize, seem to you irrational because you take them in an isolated manner, and you want to interpret them directly.
+- Obsessional does not necessarily mean sexual obsession, not even obsession for this, or for that in particular; to be an obsessional means to find oneself caught in a mechanism, in a trap increasingly demanding and endless.
+- We emphasize that such a form of communication is not absent in man, however evanescent a naturally given object may be for him, split as it is in its submission to symbols.

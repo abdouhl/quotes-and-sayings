@@ -1,0 +1,69 @@
++++
+author = "Namrata Shirodkar"
+title = "Namrata Shirodkar Quotes"
+quotes_len = "63"
+description = "the best 63 Namrata Shirodkar Quotes"
++++
+- Mahesh is a big star, but he doesn't like to flash his money.
+- I believe good music heals souls.
+- I prefer to work at my own pace.
+- Marriage is not just about love. It is more than that. It is about commitment, giving, taking, and understanding.
+- There was never a burning desire to be a top actress in the first place. I happily gave up my career to marry Mahesh.
+- I am more of the disciplinarian and the bad cop at home. Since Mahesh spoils our son, I have to balance it out.
+- Our son Gautam is very shy, just like his father.
+- The West is more organised, and they work according to a plan. That is one way of functioning, and I mean no disrespect to my country, because the way Bollywood functions works fine within our perimeters.
+- I can never bring myself to watch Mahesh's films. It's way too stressful for me. All his family members are eager to attend and enjoy the previews of his films like normal people. But I sit at home chewing my nails, praying, wondering if this one will be as big as the previous one, and so on.
+- It's easy to be loud, outspoken, and play to the gallery. It's difficult to underplay one's self.
+- Mahesh lays down most of the rules. Even when I was dating him for four years prior to our marriage, he didn't want our relationship to be out in the open.
+- I wouldn't do a lot of the things most actresses do, and that includes my sister.
+- Mahesh doesn't show his own anxieties when his films are up for release, but I become a nervous wreck.
+- When you have everything in life, sometimes kids don't learn what is right and what is wrong. Kids cannot get whatever they want.
+- Mahesh didn't want a working wife; he was clear about that. He wanted time given to him and, later, to the kids.
+- I guess I'm making up for my own lack of interest in my career by being so keenly interested in my husband's career.
+- I was never career-oriented, not in the way other heroines are. Of course, I took my work seriously. But I never solicited work and never sought fame or money.
+- My husband respects what Naidu has done for the state, but the progress of both Andhra Pradesh and Telangana is a matter of great pride for him. Just because he is seen with Naidu, it doesn't make him a political figure.
+- I still consider 'Vaastav' and Raj Kumar Santoshi's 'Pukar' two of my better films, though I admit nothing great happened thereafter.
+- I did some really big films like 'Vaastav' with Sanjay Dutt, 'Pukar' with Anil Kapoor, and 'Jab Pyar Kissi se Hota Hai' with Salman Khan. But I didn't make any effort to cash in on their success.
+- I am making a conscious effort to ensure that my acting potential gets tapped in every project I do.
+- People believe Mahesh does what I ask him to. That's not true. He may look shy and gentle, but he knows his mind.
+- Mahesh is a hands-on father, though he does not have too much free time because of his work. But whenever we can, we take short breaks and vacations and spend time together.
+- I wish the media stopped making two and two equal five all the time.
+- Interviews and public opinion about me never mattered. I know exactly who I am.
+- Being married is the best feeling.
+- Of course I want to get married and have babies.
+- 'Charas' will remain an unforgettable experience.
+- My sister was much closer to Mom. Mom accompanied my sister to all her shootings. I made my way on my own.
+- I don't want to say it myself, but Gautam is a very good-looking boy. He has my eyes and Mahesh's smile.
+- I don't have even a moment of regret for leaving my career behind.
+- I believe when two people are in the same profession, they understand each other better.
+- I have a life beyond the camera. I like to travel. I need a breather between movies. And I don't think I can do that if I work on five films at the same time.
+- On some days, I just want to sit under a shooting umbrella in a sunny outdoor location all over again.
+- Love is very subjective.
+- I enjoy a good movie, no matter what the genre.
+- We take off sometimes for impromptu vacations the moment Mahesh is free, and I join him even if I have work.
+- In my free time, I love to catch up with tennis, swimming, travelling, and chess.
+- To be honest, I don't have much to do in 'Hathyar.' I won't call it a pivotal role.
+- Most of my closest friends have come to visit me in Hyderabad. So I feel I'm always linked with Mumbai.
+- I simply don't want to enter the rat race. I like doing movies because I like acting and not because I want to reach the top.
+- Motherhood is filled with magical little moments that bring you immense joy.
+- Mahesh and I are very real, simple people.
+- Mahesh has no time to do anything apart from shooting for his films. And any free time he has is family time. He doesn't even step out to meet friends.
+- Every relationship has its lows and highs, but how you deal with it is important. There is nothing wrong with argument, but if I am wrong, I always say sorry, and same with Mahesh.
+- It is the director's vision, and as actors, we are just extensions of that.
+- I guess every woman at some point wants to have a family and settle down.
+- 'Insaaf' gives me a chance to play another challenging role after Mahesh's 'Vaastav.'
+- Mahesh is not campaigning for any political party. Nor does he intend to contest any elections or pursue any kind of political ambitions.
+- Mahesh usually picks the places we go to for our vacations. He has an uncanny sense of where to go, and we just follow him happily. He is the happiest when he can roam the streets with his children, something that he can't do in Hyderabad.
+- My sister lives in London, and I'm extremely close to her and her daughter.
+- I don't plan my life.
+- I do not want to do the regular heroine roles anymore. I am looking at working with good directors on interesting projects.
+- I would love to do only one film a year.
+- I had many luxuries in life, even before I tied the knot.
+- It's easy to fall in love, but it's a lot harder to sustain love.
+- Kids are the most beautiful beings that can come into your life.
+- When Mahesh is not around for weeks together, I have to take care of everything - kids, home. But the fact that I am able to survive and not feel alone is very challenging. It's about a healthy companionship and being true to each other.
+- I have a special appearance in Khalid Mohamed's 'Tehzeeb.'
+- It's an uncommon phenomenon, but Mahesh's popularity has never been dictated by the success of his films.
+- The best part of being married is to be a family.
+- When you know the truth is on your side, when you have dutifully paid all your taxes, but you are still targeted for non-payment of dues, then what do you do? You grin and bear the harassment because you have nothing to hide.
+- Women complain about not having enough 'me time.' All it requires is a little planning. Once you plan, organise, and prioritise your life, things fall in place.

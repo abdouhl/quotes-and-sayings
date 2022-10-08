@@ -1,0 +1,18 @@
++++
+author = "John Owen"
+title = "John Owen Quotes"
+quotes_len = "12"
+description = "the best 12 John Owen Quotes"
++++
+- I wish thy lot, now bad, still worse, my friend, for when at worst, they say, things always mend.
+- After hearing the evidence, I will record a verdict of natural causes.
+- All thing I thought I knew; but now confess, the more I know I know, I know the less.
+- The custom of sinning takes away the sense of it, the course of the world takes away the shame of it.
+- The vigor and power and comfort of our spiritual life depends on our mortification of deeds of the flesh.
+- The most tremendous judgment of God in this world is the hardening of the hearts of men.
+- Do you mortify? Do you make it your daily work? Be always at it whilst you live; cease not a day from this work; be killing sin or it will be killing you.
+- All other ways of mortification are vain, all helps leave us helpless, it must be done by the Spirit.
+- In the divine Scriptures, there are shallows and there are deeps; shallows where the lamb may wade, and deeps where the elephant may swim.
+- Temptation is like a knife, that may either cut the meat or the throat of a man; it may be his food or his poison, his exercise or his destruction.
+- Leanness of body and soul may go together.
+- The house built on the sand may oftentimes be built higher, have more fair parapets and battlements, windows and ornaments, than that which is built upon the rock; yet all gifts and privileges equal not one grace.

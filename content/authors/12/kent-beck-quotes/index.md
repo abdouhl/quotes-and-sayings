@@ -1,0 +1,32 @@
++++
+author = "Kent Beck"
+title = "Kent Beck Quotes"
+quotes_len = "26"
+description = "the best 26 Kent Beck Quotes"
++++
+- Received wisdom is that if you spend time up front getting the design right, you avoid costs later. But the longer you spend getting the design right, the more your upfront costs are, and the longer it takes for the software to start earning.
+- I used Agitator on some code I had unit-tested, and it made me a better tester. As an Agitar Fellow, I look forward to the leverage of working with an outstanding organization as together we continue to improve the value of developer testing.
+- Agitator and the Agitar Management Dashboard lower the barriers to accountability in software development and increase the value of developer testing.
+- Extreme programming is an emotional experience.
+- One of the advantages of having to live with JUnit for 8 years is now we can look back and see which decisions we made worked nicely and which we would have done differently.
+- Sheet music, recording, radio, television, cassettes, CD burners, and file sharing have all invalidated, to some extent, the old model of making a living making music.
+- The marketing of XP is very deliberate and conscious. Part of it is in co-opting the power of the media; I make sure I'm newsworthy from time to time. Part is in co-opting some of my publisher's ad budget.
+- If I'd had a charisma-ectomy in the beginning, XP would have gone nowhere.
+- When Pandora doesn't pay, and bars don't pay, and weddings don't pay, and nobody buys CDs or shirts or concert tickets or lessons, then the musician can't make a living making music.
+- My great-grandfather played organ for silent movies. Talkies in, Gramps out.
+- There is a strong movement towards increased accountability for software developers and software development organizations.
+- I think it's a combination of technical and social factors that leads to all the defects in deployed software.
+- Design should be easy in the sense that every step should be obviously and clearly identifiable. Simplify elements to make change simple so you can manage the technical risk.
+- First you learn the value of abstraction, then you learn the cost of abstraction, then you're ready to engineer.
+- Organizations want small changes in functionality on a more regular basis. An organization like Flickr deploys a new version of its software every half hour. This is a cycle that feeds on itself.
+- There's a huge latent market for software development that's just flat-out honest.
+- Whether you draw diagrams that generate code or you type at a browser, you are coding.
+- The world is changing, and I believe that, if I want to stay employed as a programmer, I'm going to have to change with it.
+- People are looking for software development that actually does something useful... People are looking for partners who deliver when promised, and at a reasonable and transparent price. I believe that the days of being able to value price software are numbered.
+- We could talk, act, and dress funny. We were excused for socially inappropriate behavior: 'Oh, he's a programmer'. It was all because we knew this technology stuff that other people found completely mystifying.
+- A rational model of software is to design it quickly - the economic pressure to improvise presents an interesting challenge.
+- The problem is, in software design, often the consequences of your decisions don't become apparent for years.
+- There are musicians who want to make a living making music. There are listeners who want to listen to music. Complicating this relationship is a whole bunch of history: some of the music I want to listen to was made a while ago in a different economy. Some of the models of making a living making music are no longer valid but persist.
+- I lived near Santa Cruz for ten years, and the whole time, it bothered me what an exclusionary definition of 'inclusion' was in force. Social censure was applied to those who expressed unpopular or uncomfortable ideas.
+- I found out that most programmers don't like to test their software as intensely as I do.
+- Developer testing is an important step towards accountability. It gives developers a way to demonstrate the quality of the software they produce.

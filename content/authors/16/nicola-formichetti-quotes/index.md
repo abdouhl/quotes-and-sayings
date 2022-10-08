@@ -1,0 +1,37 @@
++++
+author = "Nicola Formichetti"
+title = "Nicola Formichetti Quotes"
+quotes_len = "31"
+description = "the best 31 Nicola Formichetti Quotes"
++++
+- I'm saving up to buy art. Nothing famous, but every time I'm in a new city I wander into galleries and dream about buying great pieces one day.
+- Having plants and flowers in my space makes me feel very calm and Zen. For me, it's important to meditate every morning to be very clear in the head, and nature really helps me do the same thing.
+- I'm not a designer, I'm a creator.
+- Thierry Mugler is about the power of glamour and walking straight into the future. He's been a god for successive generations in the fashion industry. He fused pop and high fashion, told a story in style and combined fantasy with reality.
+- Fans don't lie. They just tell you what they really think, and they see details that even people in fashion don't.
+- I'm not an elitist. I hate the fashion industry sometimes because it becomes so focused on the elite.
+- When I first moved to London for university, I was already a big fan of Diesel because, in the nineties, Diesel was, like, the brand. The stores were the place to go. It wasn't workwear like Levi's or G-Star.
+- Working in a store and being a shop assistant, if you don't know what to do and you like fashion, I think it's a great way of getting into the business because you do windows, cleaning, and everything. That was my school for two years, working in a shop, and that's how I met people in magazines and designers.
+- I think old people should just be old and go away.
+- My muse is the digital world.
+- I am terrible at making food. I love eating, but I can't make anything.
+- The dark side of social media is that, within seconds, anything can be blown out of proportion and taken out of context. And it's very difficult not to get swept up in it all.
+- I think when you start talking about money, it stops the whole creative process for me.
+- I want young people to be able to buy into what I design. When I was young, I wanted to buy designer brands even if all I could afford was the cheapest wallet, the cheapest pen, the cheapest T-shirt because I wanted to be a part of it.
+- Fashion is such an insider's club, but slowly, the playing field is evening out. Through social media, everyone can have a front-row seat.
+- I was born in Japan, so for me, Uniqlo is a family brand. My granny used to wear Uniqlo. And my Italian dad wore Uniqlo. I wore Uniqlo, of course.
+- I'm not a typical couturier, although I really respect them.
+- The Internet shapes my life and work so completely that I couldn't imagine living without it.
+- Japan, for me, will always be my inspiration source.
+- I live between Europe, America and Asia.
+- My uniform is usually just comfortable clothing. Being a stylist, you spend most of the day at photo shoots covered in safety pins.
+- Actually, I never liked the idea of bags. I would say, 'Why do so many of my friends spend so much money on these bloody bags?' But once I started designing them, I was completely hooked. There are all of these blogs about bags. It's a whole other industry, and I'm really excited to be a part of it.
+- I love meeting people, and I know it's so difficult for people to come up to me and introduce themselves, so when they do, I'll grab them and hug them. It makes their day, you know? I love that, and I get positive energy from that.
+- Uniqlo as a company has always developed new fabrics and is always trying to be innovative. The design is simple, so the fabric is important.
+- I'm half-Japanese, so I collect toys, like a Yayoi Kusama stuffed pumpkin.
+- I like places where you can dance to crazy music, like Bedlam or Eastern Bloc in the East Village.
+- Style has replaced elegance. Before, I believed that style is something a person embodied. But now it's so easy to buy good style if you have the money.
+- It's so important as a creative person to go out and look for things. Go to galleries, talk to people, read books. Yes, you can just type something into Google, but if you read and interact, you'll have a deeper understanding of the world.
+- I never wanted to work with celebrities. I have no interest. I don't really care about their egos and their publicists.
+- Social networking inspires me a lot and how we are related and connected to each other.
+- My mom was my muse - she would buy me Italian 'Vogue.' I was this little fashion boy.

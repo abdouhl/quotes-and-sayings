@@ -1,0 +1,83 @@
++++
+author = "Max Joseph"
+title = "Max Joseph Quotes"
+quotes_len = "77"
+description = "the best 77 Max Joseph Quotes"
++++
+- I am a huge Sublime fan, and I think their music immediately puts you in SoCal when you listen to it.
+- A lot of times in films, the protagonist is either the leader of the group or the nerd of the group. I've never identified with either of those things.
+- It's funny - until 'Catfish,' none of my films were angled at young people except for the fact that they were angled at me and my contemporaries. And that's who I'm constantly making things for. I'm not imagining a younger audience I'm trying to impart wisdom to; I don't want to seem pretentious enough to think I can impart wisdom.
+- I think making electronic music isn't much different from writing a book or painting a picture or making a film. It's a creative process, and it's an art form.
+- As the leader of the most powerful nation in the world, our president is more than a list of policies. They set the tone of our national character.
+- Most people who recognize me don't even know my name. They just yell out ''Catfish!'' or 'Where's Nev?' or sometimes just 'Nev!'
+- I put a lot of time and energy into studying the art of filmmaking, but I hadn't put a lot of energy or time into the art of learning how to manage people.
+- I've been a fan of electronic music for a while.
+- I love bridge-and-tunnel characters. In some respects, they have a chip on their shoulders, but they're proud of where they're from. They're fun and colorful.
+- There's something unique about coming of age in 2015 with the way the world is.
+- Manti Te'o got catfished. It happens.
+- As someone who's been a filmmaker and an editor, I was wary of being on camera.
+- For basically three years, I was doing 'Catfish' and 'We Are Your Friends' at the same time - it was like straddling two very long-term creative marriages. And when you're in a long-term creative commitment, you tend to daydream and fantasize about smaller creative flings that you want to have.
+- 'Trainspotting' is among my favourite films of all time.
+- The safest person, sometimes, is a stranger on the Internet who lives in a different place. If they're a daily source of support and advice, no one really wants to lose that once they have it. If they know deep down that the person they're talking to isn't exactly who they say they are, it's not worth finding out.
+- When it comes to creating a product or running a company, you need to prioritize the goal of the company or the creation of the product over and above every personal interaction you have.
+- I love the tradition of male coming-of-age films like 'Saturday Night Fever' or 'Mean Streets' or 'Go.' I love those films that work music into those stories.
+- I don't know why we have this shame about obesity, but it's kind of a good thing that we have this shame about obesity - we shouldn't accept the fact that everyone is obese.
+- If you live in a big city, and you're surrounded by people, you're way more in touch with humanity than you would be if you lived in a very remote area and just spent all day long on the computer.
+- The thing I really love about 'Saturday Night Fever' is that the movie is a gritty drama. Most people just remember the amazing, whimsical fantasy dance scenes, but then, when you watch it again, it's raw.
+- When you grow up Jewish, you are exposed at a very young age to the phenomenon of anti-Semitism and its extreme manifestation in the Holocaust. I spent a lot of time as a little kid wondering how something like that could happen.
+- Trump's hate-filled rhetoric, blatant chauvinism, mean bullying, and open admiration of authoritarian rulers are more than just hints of what's to come if he is elected.
+- If you're not catfishing someone for romantic reasons, then it's going to be hard to sympathize and be compassionate with someone who is doing it for revenge, who's doing it for fun and games, who's doing it because they want to be on TV.
+- We've had Obama for eight years, who, to me, is a model of integrity, sensitivity, empathy. He's wise, he's patient, he maintains his composure, and I would have voted for him again.
+- Oddly, I think that a lot of the haters of EDM and DJs are actually within the world of electronic music.
+- No one believes that they're a bad person at the end of the day.
+- Electronic music has existed since the '70s, and it's almost comical how many subgenres of it there are.
+- The biggest affront to any audience is if you feel like someone took something you love and is selling it out.
+- We all have excuses. We could all take all of the things that have happened to us over the course of our lives and use them as excuses for being cruel to others.
+- I mostly get noticed in shopping malls, airports, red states. The Cheesecake Factory. I am more likely to get stopped in San Antonio or Oakland than in New York or L.A.
+- I feel like there are probably more films about white male friendships than almost any other types of movies.
+- Everyone's on their phones, and everyone makes things with the aid of some electronic tool. Electronic music is no different.
+- When I was 19, I did an internship in Los Angeles and lived with a friend of mine in the Valley.
+- Book stores drive me insane because I know that I will never be able to read everything I want to in my lifetime.
+- It's not that what LCD Soundsystem and Juan MacLean do is necessarily simple, but they are basic loops and beats and songs that are just pleasurable in a really basic way.
+- 'Catfish' is a great project that we have a blast doing, and it's really fun and at the zeitgeist in the world - certainly in the U.S., hopefully in the U.K. and I imagine the rest of the world. Being at the centre of this discussion and this subject has been really incredible as both a filmmaker and someone who likes to participate in pop culture.
+- What I like so much about Vero - the app and the community - is that it offers the perfect venue to share my work and myself with like-minded, curious people and without the negativity and hate that can come in other online forums.
+- I don't know why so many people seem upset about the fact that Nev Schulman and I are so against Trump.
+- The things I'm making for Vero are very pure. They're from my point of view, and I'm not pulling any punches.
+- As fame becomes more democratized, we might all have to start struggling with the powers, anxieties, and responsibilities of being a minor celeb.
+- We all want to find someone and be loved.
+- I don't think the Internet is necessarily a dangerous place. It's only dangerous if you don't make people earn your trust. You can't take people at their word. You got to do a little digging and make sure to verify that you are talking to a real person or the person that you think you're talking to.
+- I was an English major.
+- The truth is complicated, and few people are actually monsters.
+- I've never had a crazy online relationship that's left me vulnerable and embarrassed and humiliated.
+- When I say I'm famous, I'm not kidding myself. I know my place in the celebrity kingdom - right at the bottom next to reality-show contestants, local politicians, and day-players on 'Law & Order.'
+- There is a lot of sadness in America.
+- When you want to fall in love, you ignore red flags in the optimistic hope that it does work out.
+- Those elements that make 'Catfish' so interesting to watch, elements of deception and mystery, make any movie or any piece of content exciting to watch. It makes characters complex and interesting.
+- What's easy to forget once you're minorly famous is how nerve-racking it is to walk up to someone famous and interrupt them. When I'm taking a picture with a fan, it's not uncommon for their hands to be shaking or for me to feel their heart pounding through their rib cage. But the best part is how easy it is for me to make someone's day.
+- I'm a fairly neurotic person.
+- The more we are involved in social media, the easier it is for someone to lie about who they are and to kind of fabricate a story about them, fabricate a life that is grander than the one that they lead.
+- I worry about revealing too much of my life on my Instagram posts.
+- Even bros have depth, complexity, and emotion.
+- I think people throw the term 'sociopath' around a lot without knowing what it means - but people who don't understand that what they're doing is mean and wrong and cruel, they need to be made to understand that.
+- I grew up in New York City. We used to diss Long Island and Jersey. Every big city has its own suburb like that.
+- I spend a lot of time hanging out with kids in their early twenties who feel like they've messed up and have really screwed up in a lot of ways. We spend a lot of time talking to them and saying, 'You can change that.'
+- One thing you learn about doing nonfiction is that you've got to get it right, fact-check, do your research. You've got to not only get the facts right but represent the subject to the world in a way that insiders feel like it's an access port and outsiders can access it. If you're too insider, you block access to anyone else.
+- I'm from New York City. I grew up in the city. Suburban life was very odd to me.
+- The less you know about the person, the more you fill in the rosiest details.
+- The Juan McLean is great.
+- 'In the Grace of Your Love' is a beautiful, eerie dance song.
+- I'm a documentary filmmaker, I know what it means to craft a story, especially when you've shot a lot of material.
+- One thing we see a lot is this - the idea kids have now that they don't have to go to college. They don't have to get a real job. They feel they can become 'Internet famous' by taking selfies. They think they can become a star through social media. We see that a lot. You can succeed. But it takes time and persistence.
+- I have long been a fan of Holy Ghost! and think they've got the best dance grooves around.
+- On 'Catfish,' I'm a co-host and onscreen cameraman, maybe the second onscreen cameraman after Wes Bentley's turn in 'American Beauty,' which is funny and ironic. But before that, I'd been doing a lot of creative nonfiction.
+- We've seen the worst that human beings are capable of. We've seen what happens when leaders abandon common decency in favor of rage and hate. Through the lens of history, the Holocaust happened yesterday, the civil rights movement was this morning, so we are not as out of the woods as we might have thought.
+- I think with social media and Instagram, people are able to see what's over the fence of everyone else, and it all seems within reach.
+- I find reggae is really nice in the morning.
+- I was actually cyberstalked twice.
+- I often wonder if I should adopt a cause to call my own or start tweeting inspirational messages. And when tragedy strikes and the world takes to social media, is it now my responsibility to respond with #RIPs and #prayfors?
+- Getting everyone on the same team is a form of hustling.
+- In documentaries, the process is that you film a lot of things, and out of what you've shot, something organically reveals itself, and there's a discovery process.
+- When you make a movie with a lot of music in it, you can't always put all the songs onto the soundtrack. They just don't all fit.
+- The traveling that 'Catfish' affords us and the cross-section of America that we see on a constant basis, I would have never gotten that living in the bubble that is Los Angeles or going home to visit my parents in the bubble that is New York.
+- No one has it easy, and to some degree, everyone feels lonely and powerless, which may cause them to make hurtful decisions.
+- This idea that in America you can be anyone you want - you can reinvent yourself. Well, I think that the Internet has maybe taken that kind of American idea and has democratized it for the world.

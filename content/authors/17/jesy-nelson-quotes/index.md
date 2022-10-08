@@ -1,0 +1,25 @@
++++
+author = "Jesy Nelson"
+title = "Jesy Nelson Quotes"
+quotes_len = "19"
+description = "the best 19 Jesy Nelson Quotes"
++++
+- I didn't want to annoy anyone or be seen as a diva.
+- I had a routine of waking up, going on Twitter, searching for the worst things I could about myself.
+- I wasn't just known as one of the singers in Little Mix, I was known as 'the fat, ugly one'.
+- Back then I just thought everyone hated me. But no, actually, they're doing it because they feel bad about themselves. So now when I look at trolls being nasty, I feel a bit sorry for them.
+- I would leave halfway through a photoshoot, because I couldn't bear looking at myself or being in front of a camera. I used to feel disgusted in myself.
+- I'd become a bit of a joke. People would make memes, chopping my head off in a group photo and putting a monster or ET on there. I'd be in live Q&As and these things would pop up and I'd have to just sit there.
+- I think because we were a girl group, there was such a stigma, so we had to engage with fans - social media was such a big part of our journey.
+- I honestly think if I had been a solo artist, it wouldn't have been as bad. Because I was being compared to three other girls, it made people have more of an opinion. If I had been on my own, there would be no one to compare to.
+- You're all beautiful in your own unique ways and there is no one in the world like you and that is what makes us special.
+- I could see that I was losing weight and sometimes I'd see a few good comments and that spiralled me to be like: 'This is how I need to stay.' No one cares whether your performance was good, or if you sounded great.
+- Remember we're all human and we all have our good days and bad days and days when we feel banging and other days when we feel absolutely rotten and that's ok.
+- As long as I'm happy with myself and mentally happy, it doesn't matter what other people think. Everyone's always going to have an opinion, you can't stop that.
+- I will never, ever sit here and say, 'Oh my God, I'm so confident now, I love myself', because I don't.
+- I think I feel like a kid myself, so it's quite a scary thought having kids. I don't think I'm ever not going to feel like a child myself.
+- I'm not really sure if I want kids. It's never really been on my agenda.
+- But it wasn't until I deleted Twitter that everything changed for me and I slowly started to feel normal again.
+- I went from someone who really wanted to perform from a really young age - that was all I knew - to going on 'X-Factor', which I thought was going to be the most incredible experience ever and it becoming the worst experience of my life.
+- I never had an issue with my weight or how I looked before 'X-Factor' or social media and then as soon as I got it, I slowly mentally started to believe everything people were saying about me.
+- I definitely want to get married, that's for sure. When that will be, I don't know.

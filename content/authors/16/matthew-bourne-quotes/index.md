@@ -1,0 +1,48 @@
++++
+author = "Matthew Bourne"
+title = "Matthew Bourne Quotes"
+quotes_len = "42"
+description = "the best 42 Matthew Bourne Quotes"
++++
+- When it comes down to it, it's giving people a good night out in a basic way and I think my company guarantees that. There's always something new and something to excite us and surprise us, and that's why people come back, I hope.
+- Keep your mind open about what you want to do and be true to yourself. So many people are governed by what's 'in' or copy something that someone else has done.
+- People strangely revere dance. They see it as another world, and dancers are somehow mysterious - just because they don't speak.
+- I saw the Nutcracker to be a dummy as I thought of its mouth moving like a nutcracker - and also find them pretty scary as they almost have a life of their own.
+- I'm very conscious that I want the dance audience to respond and respect what I'm doing, so I'm always very true to the music and I honour the music in the way I see it - I don't mess around with the music.
+- With my work, it's not possible to just cast a production and leave it. I have to nurture the group of dancers to make it happen.
+- I love Tennessee Williams; as a playwright, he's so poetic.
+- I had daydreamed through many performances of Swan Lake, thinking the dancing tutus only ever conveyed one aspect of swans: their beauty gliding on water. I wondered what it would be like to use male dancers and bring out swans' aggressive, muscular side.
+- My first boss at the BBC was Aubrey Singer. The main thing I learned from him was discipline. I also learned things about myself: namely, that I hated commuting and didn't really want a 9-5 job.
+- With any project there's one or two things that you really want to do and that's going to crack it.
+- My interest in Princess Margaret comes through Vanessa Kirby's brilliant portrayal of her in 'The Crown.' Rather than do the classic story from beginning to end, this book gives you many different glimpses. You get a much more intimate sense of the person through little incidents, stories, and gossip.
+- People know that they're going to see something which is entertaining but challenging as well because of the form it's in. It's dance theatre and it requires you to use your imagination - it's not straight forward.
+- I would like to have directed Hollywood musicals in the '40s and '50s.
+- A lot of the people who have come to know the company in the last few years will not have seen this piece.
+- The reason I think the shows I do are successful with a wider public is because they tap into something that's beyond dance and is about being told a story. That's what people want.
+- Fred Astaire is my real idol.
+- I'm very interested in storytelling and anything that plays with structure.
+- I'm a believer in presenting something that is worth paying to see. I've always felt lucky in that the work that pleases me pleases other people as well.
+- My company is known for being funny as well as moving. You get a bit of everything in these shows. I think people know they're going to have a surprising experience.
+- I'm not completely trained in any one area - I'm not a tap person or a ballet person. I don't have a big back-up of steps; I can't just fall back on what I know.
+- I've mostly had a trouble-free life.
+- I went to church as a kid, but mainly for the showbiz aspect. I remember doing a solo of 'The Little Drummer Boy' and everyone singing the rup-a-pum-pums.
+- Astaire never thought of what he was doing as balletic, but Kelly was always trying to dance with women on points. And his choreography is so showy and flashy. He always looks self-satisfied to me.
+- I once went through the dustbin outside David Bowie's house.
+- 'Gypsy' is the ultimate stage-mother story: Mama Rose is the one who should have been a star; she's the one with the talent. But she chose to have kids and put her dreams into them. The musical shows the power of showbiz and how much it can mean to someone.
+- The reason I'm travelling so much is because of reasons that weren't completely planned. Several of the shows became successful and were invited to go to other places and they've all happened at similar times.
+- I wish I was more adventurous.
+- My mum was ill when I was originally making 'Edward Scissorhands' in 2005. I was virtually visiting her every night after rehearsals, and she never got to see it.
+- My family home was a rented house in the East End of London. My parents could have bought it at one point, but they preferred to spend their money on holidays and theatre tickets. It was strange to see it handed on to someone else when my father passed away.
+- I'm a choreographer and a director, and I have no ambition beyond that.
+- My first job was at the BBC but was really dull. I was working in the BBC's reference department, where I did a lot of filing. I had always been interested in films and theatre, so I thought that getting a job at the BBC would be a good idea, but the job was really mundane.
+- Sometimes you don't know what you've got until you put it in front of an audience - and the enthusiasm for the show from the audience has been just incredible.
+- My parents were an ordinary East End family and very supportive - they would have supported me no matter what I wanted to do.
+- People get excited about things like 'Swan Lake' because they generate a personal involvement. If you set up the story properly, audiences respond to the ambiguity. People ask, 'What exactly is happening in Act Four?' and I never say. I can't put it into words, but they've got a feeling about it, and that's good enough.
+- The thrill of autograph collecting is getting close to a world you're not part of.
+- It's one of the things that looks good written down, but the reality is that you think about the pieces you're doing and try to bear in mind everyone in the audience.
+- It's one of my strongest dance pieces - having just done Play Without Words which was veering away from a lot of dance - I thought it would be nice to go back to something with almost the most dance I'd done.
+- I've always been excited by the strangeness of ballet, but I can't bear it when people just come forward and do a turn in the air for no reason.
+- I decided to go to dance school at 22, which is late for a dancer.
+- I'm constantly being approached by people who say, 'You've introduced me to a new world that I didn't even know I liked.' Even if I didn't set out to do that, I'm very proud that I have.
+- People think I got rich out of 'Swan ,but I didn't at all: it's the royalties from 'Oliver' and 'My Fair Lady' that have kept me going.
+- I was always the kid down the street who got the other kids to put on a show. But it was only when I was 19, and discovered ballet and contemporary dance, that I got interested in the fact that you could have a whole evening of dance - rather than just waiting for the dancers in a musical.

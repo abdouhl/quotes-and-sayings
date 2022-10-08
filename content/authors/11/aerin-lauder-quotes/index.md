@@ -1,0 +1,76 @@
++++
+author = "Aerin Lauder"
+title = "Aerin Lauder Quotes"
+quotes_len = "70"
+description = "the best 70 Aerin Lauder Quotes"
++++
+- Do I believe in plastic surgery? Yes, if something is wrong and you can modify it. For certain people, it's right.
+- I came from a very corporate environment, but my own style is quite approachable, warm, and very detail oriented.
+- When my boys were little, I'd throw so many toys at them, but they didn't want to play with any. Then I'd give them a truck, and they would play for hours. I believe the same thing applies to a consumer - edit their choices, and they will be more intrigued.
+- It's important to always mix the past with the present. I think that makes it feel more authentic and real.
+- I'm the only person who's uninspired by the Starbucks mocha peppermint whatever-it-is.
+- My actual first summer internship was in the design department of Clinique.
+- I have a dual role as founder of AERIN and Image and Style Director of Estee Lauder. So work is a bit of a juggling act.
+- I think it is very important to learn to say 'No.' I think it is sometimes important for brands or the creative director to learn to say, 'This might be on trend, but it is not right for us.'
+- Looking feminine is important to me. My personal style is fairly traditional. I was definitely influenced by my mother, who always looks elegant, and by Estee's classic style; she was always in Givenchy or Ungaro.
+- I stick with what I know, makeup-wise.
+- I wash my skin with Re-Nutrive Intensive Hydrating Skin Cleanser, no toner, and follow with the range's Re-Nutrive Intensive Age-Renewal and Eye Creme.
+- My mother taught me that it is important to be prepared for a last-minute polish.
+- I used to be a shopper before I had children. I'd go to Bergdorf and Barneys all the time. But now my weekends are spent differently. I go to the skating rink or the park, not the stores.
+- Growing up in New York, I loved watching my grandmother Estee put on her make-up - I always admired her sense of style.
+- Even though beauty is very much my heritage, my real passion is accessories and home.
+- AERIN is saturated with the qualities that have surrounded me my entire life, many of which came from my grandmother, Estee: passion, style, hard work, family, and, of course, all things beautiful.
+- I've always loved the beauty world. Ever since I was a child, I looked at magazines and wore fragrances and tried out samples and sets.
+- I've always liked simple. Growing up, I wore corduroys and Lacoste shirts, Maraolo flats, and maybe one gold bracelet.
+- I'm very detail-oriented, which is good and bad. Because I will wake up in the middle of the night thinking about something or seeing a mistake, thinking about it, and I immediately send an email - I'm very focused on details.
+- People always associated me with 'Vogue,' 'Vogue Living,' or 'Elle Decor.'
+- I've always loved flowers, as a little girl I'd collect flower objects and little flower books. Now I love flowers on my night table and on my desk.
+- I'm a very visual person, and I love opening beautiful books on art or design and looking through them.
+- I love market research because you really have an idea of what your consumers are looking for.
+- I have a lot of staples in my wardrobe. I love to pair a silk or lace blouse with a fitted black pant. This combination feels effortless yet put together.
+- I love both real and fake jewelry. My kids make me necklaces, and I wear those, too. Every day, I wear my gold wedding band and the Cartier watch my husband gave me.
+- It's my personality to be more quiet and reserved. I'm not going out every night to multiple things. I prefer to stay in and be with my children and do Spanish homework to make sure they get a good grade the next day.
+- My mom has always been kind of my backbone. She keeps me strong. She is a mother, a friend. She is really everything to me.
+- I used to love a well-arranged room: the furniture, the fabric, the lighting.
+- You could say that I am the Estee Lauder woman. I'm a working mother; time is valuable to me. I want a good product; I want quality.
+- I love cereals. We must have 10 to 15 boxes. But if I'm being honest, I have Fruit Loops and Lucky Charms hidden behind the healthier ones.
+- Just because something is on trend doesn't mean you have to embrace it. You can look at it and admire it, but that doesn't mean you have to wear black nail polish or red lipstick.
+- Luxury is anything that feels special. I mean, it can be a moment, it can be a walk on the beach, it could be a kiss from your child, or it could be a beautiful picture frame, a special fragrance. I think luxury doesn't necessarily have to mean expensive.
+- You can't be a major company today without paying attention to celebrities. They are the leaders in beauty and fashion.
+- The trends that last and the trends that are relevant are the ones that make you look pretty.
+- I think talented people are priceless. And I think people that are knowledgeable and experienced - and I think there's a balance of new talent and experience, which makes, I think, Estee Lauder really special.
+- I am such a bath girl: we've gone to some of the beautiful hotels in the world, and if there's a shower, I'm so disappointed.
+- A travel-size dry shampoo is the answer to many problems.
+- I usually keep my personal style simple and streamlined. I like classic colors like black, white, and beige. White and black is my favorite color combination, and I like to finish up my look with an accent of gold jewelry.
+- I leave work by 6:30 P.M. so I can spend some time with the children. Inevitably, we'll end up watching basketball or football. I live in a house of boys, and they're all sports mad, so I don't stand a chance.
+- Rose is the most beautiful flower - it and tuberose are my favourites.
+- I think people love having a person behind a brand who lives it. The idea of storytelling is really important.
+- Estee Lauder was my grandmother. She was an iconic and powerful woman, but to us, she was just Estee. She was the first person to teach me how important it is to be passionate and proud of what you do, and always talked about 'balance.'
+- I have a lot of passion. I have a lot of pride. I think I do get that from my family. But you can be driven and be nice.
+- I love going to museums, especially the Met, because there's always room for discovery, or the Neue Galerie. It's a great jewel box.
+- If you're on a night flight or are incredibly tired from jet lag, somehow a tiny bit of bronzer and self-tanner on your face, legs, and arms just makes you feel rejuvenated and refreshed.
+- Sunday is about relaxing and wearing anything comfortable. I love wearing a J. Crew shirt and jeans, which is a treat because I never wear these kinds of clothes during the week.
+- In terms of pots and pans, I just use the basics - I'm not a snob like that.
+- I'm definitely living my dream.
+- I inherited my love of gold jewellery from my grandmother.
+- I think every woman should be using a foundation, whether it's liquid or compact.
+- If you feel comfortable in what you're wearing, you'll look your best, and I think that's a really important idea. Sometimes, whether it's fashion or beauty, things are on-trend, and they look beautiful on the runway, but when I apply them to myself, it doesn't look the way it should.
+- I don't use a stylist. I know what I like, so I do it myself. I rip things out from fashion magazines. It's easy to order when the phone number is right on the page.
+- The biggest beauty myth is that everyone looks better without makeup. That's not true. Makeup is important.
+- My day typically starts with an early-morning walk through Central Park. It's a nice moment of calm before my routine starts.
+- My grandmother had a lilac bush at her home in Long Island. I always associate the scent of it with her and try to have lilacs in my home.
+- There are certain parts of the home that I think embellishment feels cozy and inviting. Then there are other environments, for example, the living room, where I don't have a ton of items on the table.
+- I like to entertain at home, to live beautifully but comfortably.
+- I love Pilates, I really do, and I do it three times a week because it works well for me.
+- I love to decorate a room - from the furniture to the objects to the books.
+- Everyone always asks, 'Did you ever rebel? Did you dye your hair blue? Did you wear black nail polish?' I mean, of course, there have been episodes when you wear weird-colored lipstick... But generally, I think I was pretty much the way I am now.
+- When we moved to Europe when I was a teenager, I really did not want to go. I was happy in my school, with my friends, but looking back on it, it was the best experience I've ever had. We traveled every weekend. I experienced incredible new cultures, museums, cities, and it really opened up my eyes.
+- I love laugh lines. It means you've had a good life. The most beautiful women - Audrey Hepburn, Lauren Hutton, Ali MacGraw - all embraced the aging process.
+- We have a house near East Hampton, and of all the beaches I've been to, I think there is something so beautiful about Long Island beaches. I love them in the fall and winter.
+- I'm never without my personalised Anya Hindmarch diary - I keep my schedule online, too, but my diary is always in my bag. It's crammed Post-its.
+- I never wear too much jewelry. I never wear a ton of pattern. Sometimes I'll go big, but it never feels right.
+- My inspiration for new products comes from moments in my life or what's happening around me.
+- As a girl, my favorite toy was my dollhouse; if I could still play with it now, I would!
+- I have always loved beauty and fashion. Some of my earliest memories are of being surrounded by fragrances and lipstick samples.
+- I've always been inspired by beautiful interiors.
+- I discovered I was passionate about the creative process, the product development, creating a concept around a fragrance or lipstick.

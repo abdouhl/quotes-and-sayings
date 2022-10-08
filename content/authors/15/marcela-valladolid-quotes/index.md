@@ -1,0 +1,106 @@
++++
+author = "Marcela Valladolid"
+title = "Marcela Valladolid Quotes"
+quotes_len = "100"
+description = "the best 100 Marcela Valladolid Quotes"
++++
+- Most Mexican restaurants serve fake, heavy versions of my home country's cuisine. But real Mexican food is full of brilliant, fresh flavors.
+- In Tijuana, because there's such a mix and match of people and regions and we're a newer city and everyone comes from some place else, I think we're just given permission to play with our food.
+- There's a design book I got years ago that had a statue of a dog with a bunch of hats on it, and I just obsessively fell in love with it. For years I searched for that dog. One day I walked into an antique shop in La Jolla and I found a white dog that I could put hats on!
+- My job is to show people that true Mexican cheese is not neon yellow cheese. We don't eat tacos all day long and we don't eat burritos stuffed with everything in the kitchen sink.
+- I love my molcajete, which is a Mexican mortar and pestle. There is no comparison in flavor to when I use a processor.
+- We don't eat nachos in Mexico.
+- I think it's important to educate kids about food and let them help a little with the cooking and cleaning. That interaction is really important.
+- For me, candlelit is the only way to have a dinner. There are always candles at my table. And I like to have Luis Miguel playing in the background.
+- In Mexico, where I grew up, women rule the kitchen. They control everything that happens; they hold the power.
+- I kind of love the idea of teaching our kids that you don't have to follow the rules to be incredibly successful and live in harmony and have a wonderful life.
+- It is very important to cook out of your heart.
+- One summer, when I was on break from architecture school in Tijuana, my aunt gave me a summer job cleaning up and peeling garlic, and I got to see her in her element. She was so passionate and such a good teacher, I decided to quit architecture school and go to culinary school in Los Angeles.
+- Honestly, I'll take a little lard over the 20 chemicals and ingredients I can't pronounce in some store-bought tortillas.
+- When summer squash is freshly picked, all it needs is a little olive oil, salt, pepper, and maybe a hit of lemon juice.
+- As a chef and avid traveler, meeting new people and sharing a meal with the intent to learn more about their culture is important to me.
+- I had a lot of female role models around me as a kid, but my aunt Marcela Rodriguez was the strongest. When she was only 26, she opened Artes Culinarias Internacionales, one of the first culinary schools in Baja. She started with six students and built up to 800.
+- I use my Le Creuset dutch oven for everything you can think of. I even fry eggs in it.
+- I hate perfect centerpieces and formal tablescapes.
+- Supermarket cherry tomatoes do serve a purpose, but the flavor is vastly different than those from your own garden. Same for broccoli and snap peas.
+- There are so many wonderful Mexican cheeses that people really don't consider when making Mexican food, or food in general.
+- I have pictures with Morimoto where I'm all embarrassed and he's so serious, it took me 30 minutes to get up the courage to introduce myself.
+- The more kids are involved, the more likely they are to eat the food. Getting them involved gets them excited, and kids are much more likely to try something that they were involved in the process of creating because it gives them a sense of accomplishment - kids always love approval.
+- There isn't anything hotter than a guy who cooks.
+- I love to shop at the farmer's market or grab something from the garden and roast that.
+- From the time I start prep to serving the food at the table, I like for the whole thing to be beautiful.
+- My boys will not only respect and admire women and see them as their equals, but they will also see them as sources of inspiration and knowledge.
+- I was a contestant on 'The Apprentice: Martha Stewart' and more than her telling me I learned from her that authenticity is key. She had a huge issue with a contestant using the phrase 'fake it 'til you make it' and fired her that same episode. She taught me that you can't fake being a master of your craft.
+- I want children to feel proud of their heritage.
+- I like risk takers. They're the ones that end up changing the world.
+- The combination of charred poblanos and corn is a classic one in Mexico and once added to a rich, creamy dressing and soft potatoes, it makes for the perfect summer side.
+- Herdez Salsas have always been a favorite of mine because I love the authentic taste.
+- Cannot deal with cumin. We are not friends.
+- Entertaining is much more than a reason to eat and drink; It's a reason to bond with friends and families.
+- We do two things almost every week - either grilled steaks marinated in herbs or roasted chicken. There's always a roasted vegetable, like Brussels sprouts or sweet potatoes or broccolini - whatever's in season.
+- Quesadillas, those are my comfort food.
+- Escamoles have a cottage cheese-like consistency and have a buttery yet slightly nutty flavor. They are usually served sauteed with butter, garlic, and scallions for making soft corn tortilla tacos.
+- I'm a purist when it comes to certain foods, and al pastor tacos (known as adobada tacos to us in Tijuana) is one of those foods. I lived off them - literally.
+- Growing up in Mexico, I have many fond memories of not only celebrating posadas with my family, but also of the time spent together menu planning and prepping for decoration and entertaining activities. A lot of work goes into celebrating these traditions, but that doesn't mean they have to cost a lot too.
+- Those of us that were raised in Tijuana have so much access to San Diego. I was crossing the border every day when I was a kid, and that back and forth has a huge influence on the cuisine. So the U.S. is coming down to Tijuana, Tijuana is going to San Diego. There's this great blending, a great exchange.
+- More than anything, a lot of our family's history is tied to food. It's just one of those things.
+- We're a family with a pretty light sense of humor but, still, on the anniversary of my mom's passing we don't feel like getting 'colorful' and remembering her favorite foods. Every March 5th, the anniversary of her passing, we go to church and are sad for pretty much the rest of the day.
+- It fills my heart with pride and joy that international food writers and press have taken an interest in Tijuana.
+- On the 'Today' show, I feel comfortable because I get to interact with people. I love that interaction. I love hearing other people's stories. I would much rather have that human interaction so it feels like a real conversion than just standing there and demonstrating things to the camera.
+- Simplicity is key. Some people like really high-tech kitchens, where you have warming drawers and ice makers and storage for a million different things. Honestly, for me, I need an oven, a stove top, a fridge and a sink.
+- I don't make mole everyday nor do I cook Mexican food every day.
+- You're only as good as the people who you surround yourself with.
+- I didn't realize I was living in a very unique situation until I became a culinary professional. For me, there was nothing out of the ordinary about spending half my day in Mexico, and the other half in California.
+- I strongly believe that it's possible to conserve our heritage while making more healthful choices.
+- I'm all about simple appetizers when it comes to the holidays.
+- I'm not going to focus on the bad days. I choose to live in gratitude.
+- Huitlacoche is typically eaten as a filling for quesadillas or with any tortilla-based food. Also great stuffed in crepes.
+- Growing up, my mom was a stay-at-home mom. I knew that her entire world revolved around us, and she relished being involved in every school project and every craft.
+- My aunt was a chef and she inspired me deeply so she was a huge motivator but more than anything it was a quest for independence and freedom that lead me to an L.A. Culinary School.
+- Usually when I have a salad it's pretty hearty, balanced and healthy and a full meal.
+- My half-breed culture informs everything I do but I'm not thinking about it. I'm just doing it. Not until very late in my career did I realize that I was so fortunate to just live with this profound pride in being half Mexican without being attacked for it.
+- Growing up, I didn't realize how unique it was to live on the border of the United States and Mexico. It wasn't until I started doing interviews with the press that I actually began to appreciate just how cool it was that I would cross the international border every single day from Tijuana into San Diego to go to school.
+- I've been really fortunate and I've just tried to focus on the work and getting people to see Mexico, its food and its culture in a slightly different light. It's tricky with Mexican food because a lot of our recipes are so deeply rooted in tradition and Mexican history. That's a heavy responsibility!
+- My decisions are motivated by my life, my values, and what I stand for, not what I can gain financially from it. This has weeded out the opportunities that I don't care about and has brought on a lot of new opportunities that mean everything to me.
+- I'm usually pretty good about knowing which of my social media posts will create more excitement, but every once in a while I'll post something and be totally surprised at the response.
+- When I'm in San Diego, it's carpools and making dinner and getting the kids to bed. It's real life.
+- Typically a weekend retreat for the heart, soul and palate, brunch is the perfect way to unwind and reconnect.
+- When I heard that Capital One was fostering a conversation about natural connections that exist among all of us, bridged through our travels - I knew I had to get involved.
+- People don't realize that we're spending money throwing food away rather than feeding people.
+- Growing up, everybody would cross the border, even to just do grocery shopping. A lot of traditional American foods stuck with my parents and became part of my upbringing. This all had to do with the proximity to the border. We were an absolute mix of classic Americana, traditional Mexican, and Baja cuisine.
+- Growing up in Mexico, I know what real Mexican food is - and isn't.
+- I definitely recommend a quality chef's knife.
+- There is nothing more satisfying to me than seeing people who eat my food have smiles on their faces. It makes the experience special.
+- I cook healthy meals all the time. That's really important to me.
+- My life revolves around chipotles.
+- Tart pomegranates that pop in your mouth make the perfect counterpoint to roasted chicken and salty-creamy feta cheese.
+- I'm passionate about holding on to my heritage and sharing it with family and friends, and cooking is a great way to do this.
+- There is no yellow cheese in Mexico!
+- There's a particular quality that those of us who live on the border share; we can switch from being Mexican to being American in an instant just by scanning our surroundings. Not everybody has this superpower; it takes a very specific kind of upbringing to instill a deep pride in two very different cultures.
+- I love my fish spatula so much. I don't have many specialty tools, but that's a favorite of mine.
+- I really only eat burritos in Tijuana from street corners that come out of coolers from businesses with no name, telephone or website.
+- I love warm salads with bacon and spinach. I love the varieties of the nicoise that show up on so many menus. I love steak salads for their lusciousness and how the meat juices seep into the dressing.
+- Tijuana is a baby compared to pre-Hispanic cities like Puebla or Oaxaca, the birthplace of mole.
+- We didn't grow up with processed foods at all. I mean, I am not a nutritionist. I make enchiladas for a living, so that disclaimer needs to be there.
+- My former assistant used to tell me I have a problem with cushions and she was totally right. The reason is because I'm constantly rearranging things in my house. And if I can't move a whole piece of furniture, the easiest thing to rearrange is cushions. I like to keep things fresh.
+- People ask me all the time, 'What do you do for Cinco de Mayo?' And my honest answer is always, 'When I was growing up in Mexico, nothing. Really, nothing. It was a school day. It was totally normal.' But when I grew up and started going to San Diego and started drinking margaritas, that's when Cinco de Mayo celebrations started for me.
+- All of my dishes kind of have the same thing going on - I'm always going to give you the same things that I grew up with or that my mom used to make. I'm not going to use nitrogen in my tacos.
+- It's what makes me the happiest - to make beautiful things for the people I love, and to fill my home with love and laughter and music and food and people.
+- I surround myself with people that are supportive of our insane family dynamic, and I savor every minute of every day I have at home with my family.
+- In Tijuana, we have cuisine from every region of Mexico and cooks from all over cooking in all of the restaurants, so there is a huge influence from sources like the Yucatan, Oaxaca and Puebla.
+- Queso fresco, which is a very mild cheese, is definitely one of my favorites.
+- I hold both of them with equal amounts of pride. I feel just as strongly and equally Mexican as I do American.
+- My goal and my mission is to cook the home-style food that I grew up with - simple, straightforward, inexpensive and homemade tortillas. Nothing fancy and no cream based sauces - just tomatoes & chiles and nothing pre-processed.
+- I've been doing the 'Mexican Made Easy' show, and it's very heavy on instructions. It's me talking to the camera.
+- I know how to bring recipes down to the level where people with no experience can feel comfortable making them.
+- In an attempt to have access to everything year-round, produce has lost its magic.
+- You can invite people over or make your kids their favorite food - that usually inspires me in the kitchen.
+- San Diego, in fact, is one of the hardest places to sell Mexican food. You just cross the border into Tijuana and they have better food that's more authentic and for half the price.
+- I do the best I can to remind my family as often as possible that I love them more than life itself, and to let them know that every step I take is with them in the very front of my mind.
+- We'll do frozen pizzas and then I'll get arugula from the garden and do a fresh salad over the top with shaved Parmesan. Or we'll buy a rotisserie chicken already made, and then we'll make tacos and a fresh salsa and we'll grill some vegetables to accompany it. We definitely try to make it a little bit homemade if it's not completely homemade.
+- Our holiday table is loud!
+- Honestly, I'm not a big fan of having a salad before a meal.
+- There's no insects in American cuisine? Not one? I don't think there are. That's so sad.
+- The more you make an effort, the more life gives you things to be grateful for.
+- True success will come when you have the courage to be yourself.
+- Day of the Dead. Sounds a little spooky doesn't it? It's actually one of the most colorful and joyous of Mexican holidays.

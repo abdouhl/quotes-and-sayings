@@ -1,0 +1,16 @@
++++
+author = "Neal Patterson"
+title = "Neal Patterson Quotes"
+quotes_len = "10"
+description = "the best 10 Neal Patterson Quotes"
++++
+- We're the only western country that doesn't have a national health care ID.
+- Without a national ID and the ability to create true data that can be be safely and securely sent between individuals, we are going to introduce new systemic risk back into the system.
+- Cerner's focus over the last 20 years has been to provide healthcare, predominately healthcare providers, with advanced clinical and management information systems. Our mission is to connect the appropriate persons, knowledge, and resources at the appropriate time and location to achieve the optimal health outcome.
+- Insurance companies as they exist today are going to be eliminated.
+- We don't have a business model for health care in this country, We just have a business model for care. The way doctors and hospitals get paid is something bad has got to happen. It's a pure reactive model.
+- Cerner is a company that just celebrated its 20th anniversary in 1999.
+- I designed and developed an unbelievable number of applications early in my life.
+- Cerner has significant growth opportunities. We believe there is leverage with HNA Millennium and in our business model that can grow both our top-line and earnings during 2000 and through the foreseeable part of this decade.
+- Hell will freeze over before this CEO implements another employee benefit in this culture.
+- Siemens' health care IT assets provide additional scale, R&D, an impressive client base, and knowledgeable and experienced associates who will help Cerner achieve our plans for the next decade.

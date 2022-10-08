@@ -1,0 +1,30 @@
++++
+author = "Mithun Chakraborty"
+title = "Mithun Chakraborty Quotes"
+quotes_len = "24"
+description = "the best 24 Mithun Chakraborty Quotes"
++++
+- I get emotional when young people get nostalgic about my work. That's why it's called nostalgia. Sometimes I even cry.
+- You can't expect a man to change in one day by watching a film, right?
+- I'm not into politics. I have received offers to enter politics, but I have not been tempted so far. I can't say about the future.
+- My fan following is intact. They only like to see me in movies, which I am still doing for them. I do not need to do any long interviews or chat shows.
+- I have maintained a low profile throughout my career but have always done things in my own unique way, be it dancing or dressing up. On the dance floor, I had my own unique steps and often had to lead my choreographer.
+- Film line is all about chance. I don't think much, I just like to take chances.
+- Many Hindi films that are Tamil remakes rake in huge moolah in Bollywood.
+- My fans know me and love me the way I am. I don't want to lie to my fans.
+- People are often shy to acknowledge that they are Bengalis. They somehow take pride in saying that they cannot speak or read the language.
+- My children know I would never call anyone to give my son or daughter a break.
+- The success of the film should depend on its budget.
+- 'Dance India Dance' is family to me. I actually miss the madness whenever the season is not on air.
+- West Bengal belongs to Bengalis. We should live here like a king and not as servants.
+- You become megastars when superstars start reprising your roles.
+- Fathers always play mahagurus to their children, and I am no exception.
+- I am evergreen, and with every passing day, I am becoming younger.
+- I'm not a person who wants to die with my shoes on. I do not think I can be immortal. Maybe my deeds will be immortal. Not me.
+- I would say the film world has stopped operating as one. We have divided it into Hindi movies, Bengali movies, Tamil movies and so on. Earlier, there was only one channel and we all knew what was going on. Today, it is hard to keep track of programmes due to the advent of regional channels.
+- I'll campaign for anyone who's honest and who I like, irrespective of the party.
+- My son is a better dancer than me. I always try to encourage him in his endeavours.
+- I came into the industry as an actor. And moved on to become a star with the help of my dancing skills.
+- I would like to produce films, but I feel I am an unsuccessful producer. That's the fact.
+- Actors are born, good actors are trained. Dancers are born, good dancers are trained.
+- I like Hrithik Roshan and Shahid Kapoor. They are amazing and very hard working when it comes to dance.

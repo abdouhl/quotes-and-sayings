@@ -1,0 +1,79 @@
++++
+author = "Alan Arkin"
+title = "Alan Arkin Quotes"
+quotes_len = "73"
+description = "the best 73 Alan Arkin Quotes"
++++
+- I don't know why we have to put things in boxes of superlatives. That isolates them. Life is fluid, and the minute you start trying to put a line around something, it will deceive you and go away.
+- If you're playing a negative character, sooner or later it rubs off on you. Some people don't mind living in that state, but I don't want to be there anymore. I don't want to live in a state of depression.
+- I don't sense that I am someone's hero, though I'm happy when people like my work. I've learned how to be gracious about it, but I try to let it go by. I've seen how, if people start taking on those accolades, it can ruin them completely.
+- It's - everybody's looking at the bottom line all the time, and failure doesn't look good on the bottom line, and yet you don't learn anything without failing.
+- I can't even pretend to play golf.
+- I know that if I can't move people, then I have no business being an actor.
+- Over the years, I played with a couple of spectacular guitar players, and playing with them has made me play better than I knew how to play. I hope the same thing is true with acting.
+- I'd have to say that my favorite kind of film is serious comedy. Comedy with serious underpinning. 'Little Miss Sunshine' is like that. That's my fave genre, if I had to pick one.
+- 'Catch-22' was a huge failure, and it rubbed off on everybody connected to it. I had a bunch of lean years where I had to do things, a lot of which I wasn't wildly enthusiastic about.
+- It's murder to doubt yourself in life. It took until I was 45 to get to that point. As hard as it is in your work, it's harder in your life. But it can be done.
+- I'm used to changing a lot of the dialogue. But if I feel like the script is working, I don't want to mess with it.
+- My father was a painter. There was a lot of singing. We hung around with a lot of folk musicians. My family knew a lot of great folk musicians of the time, like Woody Guthrie, Paul Robeson, Leadbelly. They were all people we knew.
+- I did a couple of movies in Brazil, and the actors were incredibly congenial and hung out together a lot. Even the biggest stars would do radio commercials - they're not put on a pedestal like they are in the United States.
+- But one of the things I learned from improvising is that all of life is an improvisation, whether you like it or not. Some of the greatest scientific discoveries of the 20th century came out of people dropping things.
+- I love doing kids' shows, and I love working with kids. I've done a lot of it. A lot of people don't like working with children, but I love it.
+- I gotta keep busy. I'm not happy unless I'm working on two, three things.
+- I wanted to make it in New York. I thought if I went out to the Midwest, I'd be burying myself. But I was wrong.
+- That's the privilege of old age: You don't have to remember.
+- What I look for these days is that I don't have long speeches, the characters gets to sit down a lot, I don't have to learn any foreign languages, and it doesn't shoot in Minneapolis in February. That's mainly what I look for.
+- Education does not mean jamming information into somebody's head. Rather, it's that ancient idea that all knowledge is within us; to teach is to help somebody pull it out of themselves.
+- I'm very old. I haven't got time to be charming.
+- I love insane, stupid comedy, but I can only make it work if it's a character I can give some history to and make real. Like the guy I played in 'Little Miss Sunshine.' He's a maniac, but to me he was absolutely believable.
+- Unless you're doing Shakespeare or Chekhov... the written word is not sacrosanct.
+- It's not that there is a terrible morality in Hollywood. I think there isn't any. There isn't any, by and large.
+- I would rather die than do a play - 10 years in solitary instead.
+- My favorite thing about making movies is that it's the only area of human life that I've ever discovered where I can walk away from somebody in the middle of a conversation with somebody and they won't be offended.
+- No matter how much time you spend reading books or following your intuition, you're gonna screw it up. Fifty times. You can't do parenting right.
+- You have to think of your career the way you look at the ocean, deciding which wave you're gonna take and which waves you're not gonna take. Some of the waves are going to be big, some are gonna be small, sometimes the sea is going to be calm. Your career is not going to be one steady march upward to glory.
+- I used to watch the world as if it was a performance and I would realize that certain things that people did moved me, and certain things didn't move me, and I tried to analyze, even at that age, six and seven and eight, why I was moved by certain things they did.
+- I don't know what I'm proudest of. The fact that my kids still talk to me.
+- I wrote my epitaph: He started out a particle and ended up a wave.
+- Something I miss terribly from the '60s - the most important phrase in the English language was, 'I got hung up.' Somebody says they got hung up, it's unassailable, you know? You don't go near that. Whoa! I know what that can be like.
+- There have been times when I've been broke, and a job came along, and I've said, 'Yeah! Let's do it!' But I will never do something without having a feeling of knowing how to play it. I've been in projects that I felt terrible about afterwards, but I've always had something that sparked me while I was doing it.
+- I don't live in L.A. on purpose because I don't wanna be immersed in that. I have to have a real life, with real people, in order to inform what I'm doing; otherwise, it just becomes the snake eating its own tail. Vampirism.
+- I don't care about names attached to the script. That doesn't matter to me. All things being equal, I would like to work with a good script with a good director, and the part I play is of less important than those two factors.
+- A product is most easily sold when it has an identity. So they wrap you all up and put a label on you. And then that's what you have to be. But what I'm looking for is the opportunity to explore what I can do, probing the limits, learning.
+- I was terrified of being on stage, and I had to work very hard at a craft to get past that.
+- I used to have a lot of philosophies of acting; they all fell apart over the years.
+- I had to jump around in the arts for a while just to survive. I earned a little money here and there, playing the guitar at union meetings, functions. I sold some science-fiction stories. I knew there was absolutely no question of me not being connected with the arts, but I couldn't find any acting jobs.
+- I get a little upset, yeah, if a year goes by and I don't get a script. Thank God I have other interests that keep me from becoming a nervous wreck.
+- You hit a certain age, and you haven't died yet, and you become an elder statesman. I think I get a lot of applause because I'm not keeling over.
+- I was a stoopball fan. I played stoopball all the time.
+- Things have got to add up to 100 points. The script is part of it, the character is part of it, the people I'm working with is the third part of it - and any combination of the three has got to add up to 100 points.
+- I love working if it's with people who are capable of having a good time. People with a little bit of enjoyment of what they do. If it's enormous pressure, and people feel that their lives are at stake, then it's agony. So I try to pick projects where I feel like I'm going to avoid those traps.
+- NI love watching science fiction because I feel like when it's done well, it's not just monsters, but philosophy. Really good science fiction like, '2001,' for example, or the first 'Matrix.' But it takes someone who's got a brain and thinks in order to do really good science fiction.
+- I don't mind watching plays once in a while, but as long as I don't have to be in them.
+- I never had a better role than I had in 'Little Miss Sunshine.' That was one of my favorite roles ever.
+- I had a hard time treating my field as if it's horse racing, putting actors in competition against each other. I see how the industry and the studios feel it's important, but I don't really have a feeling for being in competition. I want to feel sympathetic and close to others, not opposed to them.
+- Everybody's career has ups and downs. I like to take chances; I don't like to stand still. And I don't give a damn what the market is interested in; I want to try things.
+- Every physicist knows that things connect with each other. To isolate things is not the way the universe works - winning best actor is arbitrary.
+- If you want to be an actor and you love acting, you can do it whether you're doing something else or not. You can be connected with community theater or make your own little movies. But if you want to be a movie star, you've got a tough road ahead of you.
+- I would like to have a movie under my own control sometime, and see what could be done with it. Who knows? Maybe Hollywood will make an improvisational movie someday.
+- I'm not sure if I've learned anything from show business. Life in general has taught me if you're kind to people, everything gets easier. Being a decent person really smoothes the way for you and everyone else.
+- TV has taken reflection out of the human condition. People didn't use to have a ready answer for everything, whether they knew something about it or not. People think they have to have an answer for everything because the guys on TV have an answer for everything.
+- I don't like improvising on camera, particularly, but very often, a scene will not be working, and you rehearse it once or twice, and you realize something's missing. So I'll play with it until it makes sense.
+- All I can say is if the part doesn't delight me in some way, or I can't feel any compassion for it, I just can't do it.
+- A director without a vision is a catastrophe.
+- Marriage requires searing honesty at all costs. I learned that from my third wife.
+- I'm as old as I am, and I don't try to hide it. It's not a big deal.
+- Success has nothing to do with box office as far as I'm concerned. Success has to do with achieving your goals, your internal goals, and growing as a person. It would have been nice to have been connected with a couple more box office hits, but in the long run, I don't think it makes you happier.
+- I don't believe in competitions between artists. This is insane. Who has the authority to say someone is better?
+- I gotta make a living. I make no bones about that. Most actors do. But within that context, I've never not tried to make something as fresh and alive as I possibly could make it.
+- No matter what you do or where you are, you're going to be missing out on something.
+- I want to feel like I'm doing something creative and trying different things, putting different hats on and playing. I don't know what's the point otherwise; otherwise, it's just a job. You punch a time clock.
+- The years I spent paying my dues are in the background, and so are my concerns about whether my performance is good or bad.
+- Filmmakers, they tell me they want to make movies. I say, 'Good, go out, buy a $500 camera, get some friends and make a movie. Don't go to Hollywood. Stay wherever you are.'
+- People think that the people in Hollywood have some master plan. They just make the movies that people go to see. I think it's that simple. I promise you if people were lining up around the block to see a Bible movie, they'd make Bible movies from now to the end of time.
+- I don't believe there's anything in life you can't go back and fix. The ancient Vedas - the oldest Hindu philosophy - and modern science agree that time is an illusion. If that's true, there's no such thing as a past or a future - it's all one huge now. So what you fix now affects the past and the future.
+- For everybody, the tide comes in, the tide goes out - if you're an actor, particularly.
+- The last time I heard real screaming in the theatre was when I went to see a movie I did years ago, called 'Wait Until Dark.' Now, my mother was the least emotional person on the planet, but when I got killed in the movie, she stood up and screamed, 'That's my son!' At Radio City Music Hall in New York!
+- I've always been an improviser. I was one before I knew even what the word was... And acting, that I've been doing since I was 5.
+- My favorite thing is to be working with people I enjoy working with. I've reached the point where, emotionally, I don't need to act any more. Financially, I do. But emotionally, it wouldn't matter to me if I never acted again.
+- I'm an actor. My life as an actor depends on who sends me what. I'm just taking the best stuff that I can find that's sent my way, regardless of how big or little the paycheck is.

@@ -1,0 +1,90 @@
++++
+author = "Albert Ii, Prince Of Monaco"
+title = "Albert Ii, Prince Of Monaco Quotes"
+quotes_len = "84"
+description = "the best 84 Albert Ii, Prince Of Monaco Quotes"
++++
+- F1 has to keep appealing to sports fans and not only to motor racing fans but to possibly a wider public... I don't know if it's only social media or different electronic devices that will do that. How to establish more of a personal link to the drivers and to the teams - these are things that you have to think of.
+- You know my mother during her lifetime was unable to set up a foundation for the arts. She always had that idea and did help the arts in many other ways but never was able to set up her own foundation, so we did it in her name after her passing.
+- Our health depends on the health of the environment in which we live.
+- The promotion of international tolerance, reconciliation and education for which we must work are, in my view, of paramount importance in order to build a balanced world showing solidarity.
+- It will be very difficult for whoever will be with me, not even in marriage, whoever goes out with me seriously. Even if she doesn't look remotely like my mother, she will be compared to her.
+- We're an independent sovereign country and that's very important to Monaco.
+- Creating wealth is not an end in itself. It needs to be shared by all.
+- Even if you are a small country, as we are, that doesn't prevent you from having big aspirations.
+- The British community is very active and very generous in many different areas. I can only have high praise for them.
+- One isn't considered a bobsledder if he hasn't crashed.
+- Something deep inside me lives by challenges.
+- Certainly, when I started bobsledding I didn't think of being in the Olympics some day.
+- The Red Cross Gala is unique. There's great history there. It's the highlight of the summer in terms of social and charity events.
+- Oceans, in their beauty and mystery, unite human beings whatever their situation, nationality, or faith.
+- You know, the Monaco Grand Prix is the grandfather of all street races.
+- I came to bobsledding quite by accident. I was on a skiing holiday in St. Moritz and took a guest ride. I liked it. I thought it was a thrilling experience. It is scary. I'd be lying if I didn't say I was apprehensive at first.
+- I am delighted to see that the issue of coral reefs is receiving the attention it deserves.
+- There's no miracle formula but we have to move towards a lower carbon economy. We don't have any other choice.
+- It is together that we will be able to save our biodiversity. This is a principle of effectiveness. But it is also a principle of humility; none of us can act alone.
+- I'm straight and always have been. When our family gets together, we joke about it or throw our hands up in desperation because there is very little we can do. If we make a big fuss about correcting these rumors, it just creates more attention and turns the whole thing into a soap opera.
+- It's not easy for anybody in a position of responsibility... There are some very unpleasant meetings. I try to think what nice things will come after my meetings are over... having a nice glass of wine.
+- Those of us who were fortunate enough to know my mother - her family and friends - knew her to be a genuine, warm and loving woman - a woman who always put her family first.
+- I've practiced a lot of different sports. I stopped counting after 15.
+- Oceans are a family heritage, because of my great-great-grandfather, but also my father, who spearheaded different initiatives to better protect the Mediterranean. He was very instrumental in setting up the Pelagos Marine Sanctuary, which is a sanctuary for marine mammals between Italy, France and Monaco.
+- I consider myself a private person most of the time so it's hard to perform in a very public situation and have to do... public appearances and speeches depending on what it is and what the situation is.
+- You can rest assured that I will marry... And I will also create my own family.
+- Jews are an important part of our kingdom, and I am happy you chose to gather here in our country.
+- I really wanted to address different issues of protection of biodiversity, water management issues that I knew were pretty severe in most countries, and then of course climate change.
+- Everything happening at the South Pole, like the North Pole, has repercussions everywhere on the planet.
+- I have always respected the freedom of expression. But the dissemination of false information is lamentable and subject to criminal penalties.
+- I want to place morality, honesty and ethics at the center of my government's preoccupations, of its councilors or all the principality's decisions.
+- I want to be recognized for my performance as an athlete and not because of who I am.
+- Within all of us, there is a little child. Why not enjoy life?
+- I think is very important that Formula E can apply its technology to everyday cars and everyday usage just as F1 is sort of a testing formula for improvement in road cars.
+- Winning has become too important in all sports, with too many commercial rewards.
+- I want the full Olympic experience.
+- We are a small country and we have limited influence so we are neutral.
+- Bobsledding has made me a more confident person.
+- I can't say that every day is wonderful bliss and enjoyment.
+- I kissed my first girl when I was 13.
+- I guess every athlete has in the back of his mind being good at a sport and making it big.
+- Monaco's neutrality is one of our main attributes - the role of small countries is to act as go-betweens between big nations.
+- I'll never grow up. I'll always be a child at heart.
+- We depend on nature to survive... it is our responsibility also to take care of our home, planet Earth.
+- Electric cars are the future.
+- The IOC presidency has been suggested to me.
+- The Paris agreement represents a huge step forward. It would have been preferable, of course, to start the process many years earlier, and a lot of question marks remain on how nations will ratify it, adhere to it and report their carbon reductions. But this is a remarkable ray of hope for our planet.
+- I'm tired of seeing the press equate Monaco with money laundering.
+- We may be small in size but we have a lot to offer. Visit us - that would be great. Live in Monaco if there is room - that would be wonderful.
+- I've always tried to protect my private life as much as possible, and that is the hardest part because that is what a lot of media are more interested in - the private aspect more than the official side of things.
+- We try to create as safe an environment as possible for our citizens and for our visitors. That's one of the main positive features of Monaco. In an ever-changing and difficult world, it's a tremendous asset.
+- That's been the key to the good success of Monaco - the closeness between the Grimaldi family and the Monegasques.
+- It's true that Ferrari and Monaco are the two most important things to F1.
+- I monitor very carefully, in the automobile sector in particular, the development of new technologies which help to limit negative effects on the environment by influencing human actions.
+- Monaco has a vocation to embrace other cultures. Should this be forgotten, the European and American origins of my family are there to remind us.
+- Charlene has a very strong personality and I have no doubt of her desire to get involved in things alongside me.
+- Mothers are always sending me pictures of their daughters.
+- I think very early on, my sisters and I understood the value of nature and what it can do for us, and that we are part of nature. Even if we are all seemingly intelligent beings and we're at the top of the food chain, that doesn't mean that we have to remove ourselves from nature.
+- Bringing anyone into royal circles is a pretty tough act. Especially in the British royal family, which is scrutinized by the press as no one's been.
+- You have to protect your personal life, your family and their intimacy as much as possible, whenever possible. Especially when you're a public figure with appearances to attend. Of course, that's harder to do than to say.
+- My father gave me this poster from National Geographic back in the very early 70s, so I was a young teenager. It showed how man polluted his world. And the issues that they talked about, whether it was water pollution, air, or terrestrial... The issues that they talk about on this poster are still very much present today.
+- Money and virtue must always be combined.
+- I like women but I want a meaningful relationship.
+- We will never harm the Jews.
+- Protecting the environment is just as important a priority as the economic imperatives.
+- There are some people in Monaco who aren't thrilled at the idea of me going down an ice track in a sled going 90 miles an hour. But they've accepted it.
+- It means a lot to be accepted as an athlete as I have and I can be myself.
+- Climate change has far-reaching consequences for our own survival on this planet. As an issue, it overrides everything else.
+- We are faced with an incredible challenge to curb our greenhouse-gas emissions around the globe. Everyone has to realize this and come to terms with this.
+- If I were to write my epitaph... Epitaph? Hey, shut-up Albert. I'd want to be remembered as someone who loved his sport and tried his best.
+- Tokyo is unbelievable. They have loads for kids, and the range of activities they can propose for young kids is incredible.
+- My mother loved to take us on walks in the mountains or the hills and she would point out different species that she identified, both fauna and flora.
+- We have no choice: we must protect Arctic ice, enable it to continue to act as an essential temperature regulator for the planet, avoid the catastrophic rise in sea levels that would result from the ice melt, and stop the disappearance of permafrost releasing irreversible quantities of greenhouse gases back into the atmosphere.
+- Sometimes there's a very special relationship between a mother and her son.
+- If everyone that has agreed to the Paris Agreement wants to meet their targets they are going to have to make renewables part of the equation. There's no other way out of it.
+- Time is running out if we want our next generations and the generations after that to continue living on this beautiful planet.
+- The simple fact that half of the oxygen that we breathe is produced by the oceans should be reason enough to mobilize around the issue of better protecting our oceans.
+- I appreciate versatility.
+- On various occasions we have been able to host almost all Monegasques on the palace square... It feels like a big family.
+- Just being with some of the best athletes in the world is a marvelous experience.
+- I did my first speech when I was 17, well, my first formal speech. So I've had time to deal with it, and to adjust to it, but I can't say I'm like gung-ho on public speaking or interviews for that matter.
+- The protection of biodiversity and, therefore, of endangered species is an issue to which I attach a great deal of importance.
+- There is such a history and such a mystique around the name of Ferrari and the success that it has had. The whole imagery and legend of the red cars and what they mean to the world of automobiles and racing itself. It is hard to imagine F1 without them.
+- It never ceases to amaze me how art can touch and inspire people.

@@ -1,0 +1,34 @@
++++
+author = "Juan Diego Florez"
+title = "Juan Diego Florez Quotes"
+quotes_len = "28"
+description = "the best 28 Juan Diego Florez Quotes"
++++
+- I played the guitar. When I was 14, I composed songs - Paul McCartney-style things. I had a rock band - we'd compete in festivals.
+- I don't think I am even the best I can be. I like to listen to other singers and learn from them, but I'm always working on myself, trying to improve, trying to be very tough with myself.
+- You are born with a voice. And in a way, you don't choose what you want to sing. It's the quality of your voice that matches a certain repertoire, and that's what you're going to sing.
+- I created a foundation for poor children called Sinfonia por el Peru, where they play in orchestras and choirs, learn values and get away from the bad life, become better citizens in every aspect.
+- I don't like to fill up my schedule. It's easy to do, but then that year arrives, and you find that you have no time, so you are desperately trying to cancel something. I have to think of my family.
+- I don't push my voice; I try to keep a good technique, a natural way of singing, to sing from the breath, which is the main thing.
+- I'm lucky because my repertoire is so specific, and theaters are interested in me singing my repertoire because it is not done so much. I'm pretty well settled in my repertoire. I like what I sing. My voice is high, and there is not much in baroque opera for higher tenor.
+- I think spontaneous and free reactions are the most natural.
+- I have always been pretty flexible. I could always jump and do all kinds of dangerous movements. In opera, I like to do it because it's fun, as long as it fits the role.
+- Some people might hate someone who is successful, but in Peru, they love it! It makes them feel they can be successful, too. That's a good state of mind for a country that wants to come out of poverty.
+- In my concerts, people love when I sing a Latin encore with guitar.
+- With El Sistema, you can create orchestras everywhere; then they can decide whether they want to become professional musicians. The aim is not only to create musicians, but to create people.
+- I didn't grow up with classical music. My father was a folk music singer.
+- In Peru, there is no theatre that produces an annual opera season, and though there is one orchestra in Lima, it's always struggling to survive. We shouldn't have just one orchestra, we should have 15, we should have 50! And you should start to build this from the children.
+- I always feel I sing better if I have been playing a lot of tennis or football.
+- I would love to bring the children from my foundation Sinfonia por el Peru to play with some of the best musicians in the world.
+- When I'm doing sports, I always think of how it's related to singing, and when I watch tennis, I learn a lot for my singing: how the players are focused, how they use their technique, and, in the case of Roger Federer, how effortless it is and how beautiful it is to watch - like bel canto, in a way. That's how singing should be.
+- Little by little, when I was doing auditions in New York, I discovered I was good. People there were enthusiastic.
+- I wouldn't be me if my repertoire wasn't bel canto.
+- My parents never really wanted me to be a musician at all, because in Peru you don't earn any money that way. But when they realised it was genuinely what I wanted to do, they supported me always.
+- I now have plans to create a school for singers in Vienna, and I would love to found one in the Middle East, too, if possible.
+- Yes, I wrote songs. I was becoming kind of an Enrique Iglesias kind of a singer, with those ballads and cheesy romantic things.
+- Even if change in a voice is light, and people maybe don't notice it, that slight change is, for singers, a bit of an earthquake.
+- Around age 38, there was a slight change to my voice, and very much in the center. That made it possible to start thinking about certain roles: Guillaume Tell, Romeo, Edgardo. These roles require a fuller center.
+- Sometimes at my performances, I see Peruvian flags in the audience. I've never seen, when an Italian sings, people with Italian flags. But with Peru, it's different: because there are not many famous people, they really celebrate the ones they have.
+- I went to school to learn guitar, solfeggio, and harmony. I wanted to know more about music, how it works. I wanted to take voice lessons, too, and that's when I discovered what I could do with my voice. At the beginning, I thought I would do classical and pop, but then I learned that I really liked the classical music.
+- I grew up listening to popular music. My father was a Peruvian folk singer. He played the guitar at home. He sang songs with a waltzing rhythm, yet you can still hear the Spanish influences. I accompanied him to his performances.
+- I concentrated on Rossini when I began, and I never really felt any competition. I sang in the best houses, and I believed I was always a first choice. I was lucky in a way - I never felt there was someone else who was getting the roles in another theatre and that we were competing.

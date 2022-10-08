@@ -1,0 +1,106 @@
++++
+author = "Kate Nash"
+title = "Kate Nash Quotes"
+quotes_len = "100"
+description = "the best 100 Kate Nash Quotes"
++++
+- I once got asked in an interview: 'Does it annoy you that the majority of your fans are teenage girls?' I was insulted and angry because it was sexist and ageist.
+- I would like to think that an artist's mental health is taken into consideration more now.
+- As a woman there's probably 20 people in your life that have underestimated you or will. Whether that be in your career or in your personal life and you've just got to battle it.
+- A lot of men just don't understand what it's like to be a woman and how much our bodies mean and what they can be and how much power they can yield, and how much we're shamed for them.
+- I want to be in a Tarantino movie, more than anything in the world.
+- You have to be cynical because this is a business. Everyone is making money out of you.
+- The physical and the emotional are really connected. Although we know that, you kind of forget it.
+- For me, music is my art and what I have dedicated my life to. For fashion designers, clothing is art. Just as much as a piece of music that I might write is a piece of art. Being able to merge the two industries on stage or at an event is really fun.
+- Even though I'm super into tarot and astrology, I don't believe in knowing too much about the future.
+- Filming 'Glow' helped with my confidence.
+- My mum's got morals and principles, and I've been brought up with those ideas and beliefs.
+- When I first started, in 2006, it was an exciting time. Independent, cool, weird artists were being successful, and magazines were writing about them, and people were getting played on radio that were, like, really good.
+- When you're a woman, you have such a strange relationship with your body because - especially when you're in the public eye - you're constantly being judged.
+- Sometimes it's funny for me to just pretend I'm a movie character, and think what would you do if this was a movie? Or, what would you do if you were one of your icons?
+- When I was young I was listening to the Spice Girls and Destiny's Child. I was singing 'Independent Woman' and 'Survivor,' and it was all about Girl Power and being with your friends. I don't think I was singing, 'Don't cha wish your girlfriend was hot like me?'
+- Simplicity is the key for me. I can't write clever songs; I just can't do it.
+- I would say that I'm opinionated and clumsy and I am definitely led by my heart over my head.
+- As many problems as there are with Hollywood, I feel so much more protected because if there's a serious issue, I have someone I can talk to. Where's that in the music industry? We need it.
+- I've become aware of being in a very male-dominated industry where a door opens and it's like, 'Oh hello, it's 12 men and me. Again.'
+- I'm just really inspired by women and, for me, it's really important to work with someone who can relate to the female experience, especially in music.
+- I like to take care of people, I love looking after my friends and stuff.
+- I never do anything just to be crude or in your face.
+- A lot of young girls look up to me and it's amazing.
+- I need to be someone who didn't break because of what I've been through.
+- It's great to be able to find a way to release your music and do what you want to do artistically and not have to just worry about being accepted by the major label industry.
+- I've met so many young women who are interested in being involved in music and I think, 'Why are you not actually doing it?' And I hope that if I tell my story, about the setbacks I had, they might not be afraid.
+- I got £30 for my first gig, cash in hand.
+- When you're on tour, you know exactly what you're doing and what's required of you. There's a routine.
+- When I was younger, I'd always cry on Christmas Day, and I didn't know why. Now I know it's because I was just overwhelmed by the togetherness.
+- Songwriting is my craft now, and it's more than something I just enjoy.
+- I like being girly. I used to wear jeans all the time and tracksuit bottoms but then I was like, really all I want to be like is Marilyn Monroe so why am I wearing these?
+- Being a person is really hard, obviously depending on your background for some people it can be much harder, but mental health and how we feel about ourselves is so key to changing the world in a positive way.
+- I formulate my style based on a range of influences from books to films and my moods.
+- Well, I don't like everyone. I don't want everyone to like me.
+- The Trachtenburg Family Slideshow Players are the most wonderful creatures.
+- One day when I was 14 I put together a makeshift CV and walked into this weird boutique in Pinner, near where I lived, to ask if they needed a Saturday assistant. They didn't, but the owner took me on anyway.
+- A woman's body and a woman's image is a very political thing, so I trust another woman to understand what that's like and how to portray it in a way people can relate to.
+- When you earn your own money you feel much better about yourself.
+- The Walking Dead' is my show. I download it from iTunes so that I can watch it the second it comes out. It's a show that I've got really involved in, emotionally.
+- MySpace was so punk.
+- I love 'Grace and Frankie!' Oh my God, it's the best show.
+- I come from a big Irish family who force-fed me as a kid, so not eating was never an option.
+- I love punks!
+- I think imagination can be an incredibly powerful tool and it can help you get more confidence.
+- I just wanna be an artist, like someone like Bjork and Kate Bush and Regina Spektor. These are people that have saved people, I think, by being what they are.
+- I never wanted to be like: 'Oh, just because I'm a singer I can be in films now.'
+- Sometimes it's hard for me to dress for normal situations. A lot of the time I'm either performing or travelling - so what I wear is either really fun or just really comfortable. For anything in between I think, 'Oh God, I don't know how to dress myself. But when I get on stage I'm just like, 'I can wear anything I want!'
+- My parents would, like, argue in front of us and it wasn't a big deal, whereas I know some people's parents who, if they argued, it was like, 'Oh, my God.'
+- I didn't feel like I was allowed to be a songwriter. I thought I had to be a really intelligent lyricist, like a poet.
+- I always felt like an outsider of the industry, and now I feel quite comfortable as an independent artist.
+- There were so many weird shows when we were younger. 'Clangers.' 'Button Moon.' 'The Moomins.' All very weird, but very cool too.
+- Hair is so important and emotional. I dyed mine black and blond after a breakup - there's something really powerful about changing your hair when you're in a weird place.
+- I wouldn't mind working in restaurants again because you build up a relationship with the customers. I'm really inspired by the mundane - it's often the most ordinary-looking people who have the best stories - and you can watch diners and study their idiosyncrasies without them being aware of it.
+- There are certain things I would never write about - anything that's too distasteful. I think that you can withhold information.
+- I've always been really private.
+- I think Berlin is always inspiring. I love being in Berlin. It feels like such a cool city, with so much culture and art and independence everywhere.
+- When we're in London my family goes to mass on Christmas Eve. The next day Dad cooks the turkey on the barbecue, standing outside in the freezing cold.
+- I get a bit overwhelmed by the number of shows I haven't seen, that are still on my bucket list.
+- I find it really easy to write on the bass, because you kind of get straight to the point: you do lyrics and melody without thinking about decorating the song until after you've finished it.
+- People are fragile. Our brains are fragile and you can only abuse them for so long.
+- I'm quite forgetful.
+- I got into punk at 17 after discovering an all-girl band from Long Island on the Internet called The Devotchkas - four crazy-looking girls with fast, driving basslines and high-pitched gang vocals who shared the same dress sense as the punks I used to eye up curiously in Camden.
+- If you're on an indie label, you're not getting enough money. And if you're on a major, you're not getting enough support.
+- Everyone has self-esteem issues when they are a teenager, but I think you have to accept who you are, because otherwise you are going to have a really unhappy life.
+- Forgiving yourself will help with giving yourself strength.
+- I love any excuse to dress up; my wardrobe's a bit like a fancy dress box.
+- My biggest crush when I was 13 was Leonardo DiCaprio. After I watched 'Titanic' I was completely in love with him.
+- I definitely want to be acting and I'm really happy that I found the opportunity to do it.
+- I think if you're going out with someone you should be inspired by them. That's why you like them - because they're exciting and they're smart.
+- I'll always be playing shows. Even when I'm a crazy granny wearing weird old granny clothes and wandering around with dementia, I'll still be playing. Whether anyone else will turn up is another question.
+- On tour it's hard to be vegetarian, especially in Europe because vegetarianism is basically unheard of. They think you're either joking or mad.
+- I'm worried about being pigeonholed as an artist, especially a female one, but I think, essentially, it's the music which people judge you by.
+- I love skeletons and bones so much.
+- As you get older, you start to realise negativity is really bad.
+- I love throwing parties and being sociable and dancing. But I also have this other homebody side and can become quite isolated and anxious.
+- I always wear red lipstick.
+- I have really bad anxiety and OCD. I get afraid of everyone I know dying.
+- Punk may have helped me find my voice and made me realise that I had the right to have one, but it was riot grrrl that helped me sustain that voice and shout a little louder.
+- I think I was probably overworked. I was doing huge tours and having two days off and then going out again. It burned me out.
+- I started my own zine, and riot grrrl became a huge part of my identity.
+- The worst date I've been on was in L.A. with this guy I didn't want to be on a date with - he was just trying to take me to all these places and impress me but it was so cheesy.
+- I had heart surgery when I was 17.
+- Artists often have mental health issues. And their lifestyles are unstable because of all the travelling and the media commentary on their lives.
+- British summers give me a really happy feeling.
+- Listening to Bikini Kill's Kathleen Hanna gave me the confidence I needed to get up on stage and be photographed every night on tour.
+- People have said I'm too fat to be a pop star.
+- I just want to be someone who stands up for being herself.
+- I really recommend it, to build a new physical relationship with yourself, and just do it on your own terms, and your own time, it can just give you a different sense of self-worth, and then help with your mental health too.
+- I've been really inspired by my roots - my ancestors and Irish history.
+- When I'm not touring I really enjoy the ease of cooking at home.
+- I can't even begin to grasp concepts like the multiverse.
+- I first got into punk music at 17, The Adverts, just from being a bored teenager.
+- I've a tiny little scar on my chin from when I fell over on stage, bust my chin open and bled everywhere.
+- I've literally been in sessions with producers, writing for other people, and they're like, 'We need a song for this artist, and we need it to sound like this song.' They're literally saying, 'Rip off this song that was no. 1 last week,' and that's just so uninspiring.
+- I never thought I could do certain things like somersaults and jumping off the ropes and flips. When you actually learn to do it, you're really amazed with what your body can do.
+- It is really amazing what you can do with your body and learning that your body has skills and a purpose, as a woman you are always taught that your body is like in the way, too big or just not perfect.
+- My first real foray into fashion was the discovery of vintage. Vintage dresses really suit my body type, so the discovery was both wonderfully eye-opening and liberating.
+- I've got quite bushy eyebrows and brown eyes.
+- It's really important to be a strong role model. It's one of my main things because I feel I've been exposed in such an extreme way to a lot of sexism.
+- I grew up in Harrow, London, with two sisters. I am the middle child and a natural ginger, so fiery by nature.

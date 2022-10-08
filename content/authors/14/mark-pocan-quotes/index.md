@@ -1,0 +1,15 @@
++++
+author = "Mark Pocan"
+title = "Mark Pocan Quotes"
+quotes_len = "9"
+description = "the best 9 Mark Pocan Quotes"
++++
+- As we celebrate the considerable progress we've made toward full equality in our military, we cannot forget about those who continue to suffer because of the discriminatory policies of our past.
+- We know that to compete for the jobs of the 21st century and thrive in a global economy, we need a growing, skilled and educated workforce, particularly in the areas of science, technology, engineering and math. Americans with bachelor's degrees have half the unemployment rate of those with a high school degree.
+- I had hoped all of Congress would recognize that it is imperative for our health, economy, and national security that we address the effects of climate change before they get even worse.
+- By making college unaffordable and student loans unbearable, we risk deterring our best and brightest from pursuing higher education and securing a good-paying job.
+- I joined the Safe Climate Caucus because I believe in leaving a safer planet for future generations.
+- It seems like every week we are considering bills that would make it harder to limit the amount of carbon we are dumping into our atmosphere, and prevent implementation of clean technologies. The voters who sent us here deserve better.
+- A well-educated populace is the backbone of our middle-class.
+- More than ever, a college diploma unlocks economic opportunity, provides students with a wealth of new skills and knowledge, and encourages innovation and growth. But more than ever, it also comes with a mountain of student loan debt.
+- I believe that climate change represents one of the greatest threats to our national security and our planet.

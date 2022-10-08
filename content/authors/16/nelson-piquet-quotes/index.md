@@ -1,0 +1,14 @@
++++
+author = "Nelson Piquet"
+title = "Nelson Piquet Quotes"
+quotes_len = "8"
+description = "the best 8 Nelson Piquet Quotes"
++++
+- The Lotus is a couple of years newer than the Williams was, and as the pace of development in F1 cars is so quick, I expect it to be another completely different experience, but still one that I know I'm going to enjoy.
+- In two years, I'll be making more than Michael Schumacher.
+- Events like this mean we can give something back to the people that support us, and hopefully everyone will have a great day and we can put on a good show for them.
+- It is going to be special to drive in the Netherlands because it means I can take part in a Formula One demonstration in a country where I have a lot of family and friends.
+- I am really looking forward to driving another of my father's car at the show in Rotterdam.
+- I have quite a lot of fans in Holland because that is where my mother is from, in fact I have a fan club there, and the fans don't always get the chance to see us drive the cars because getting to races across Europe isn't always possible for them.
+- Through F1, I bought my own boat. I learned to fly my own plane and helicopter. And my job with my company is a reflection of everything motor racing taught me.
+- After hurting myself like that, I could not go back immediately to racing. I was in no condition, mentally or physically. That helped me to strengthen myself to go through the hard times that were ahead with my business, and to be successful.

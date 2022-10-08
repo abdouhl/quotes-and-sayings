@@ -1,0 +1,24 @@
++++
+author = "John Dos Passos"
+title = "John Dos Passos Quotes"
+quotes_len = "18"
+description = "the best 18 John Dos Passos Quotes"
++++
+- Display advertising and the movies, though they may dull the wits, certainly stimulate the eyes.
+- The mind cannot support moral chaos for long. Men are under as strong a compulsion to invent an ethical setting for their behavior as spiders are to weave themselves webs.
+- Love is cheap. You can buy it anywhere. Lives are cheap. It's money that's dear. You have to work days and sit up nights thinking how to make money.
+- We work to eat to get the strength to work to eat to get the strength to work to eat to get the strength to work to eat to get the strength to work.
+- What is the use being a big man if you are wrong?
+- A satirist is a man whose flesh creeps so at the ugly and the savage and the incongruous aspects of society that he has to express them as brutally and nakedly as possible in order to get relief.
+- The creation of a world view is the work of a generation rather than of an individual, but we each of us, for better or for worse, add our brick to the edifice.
+- Sex is a slotmachine.
+- Breaking with old friends is one of the most painful of the changes in all that piling up of a multitude of small distasteful changes that constitutes growing older.
+- If I were sufficiently romantic I suppose I'd have killed myself long ago just to make people talk about me. I haven't even got the conviction to make a successful drunkard.
+- Accidents will happen in the best regulated families.
+- The only way to find out anything about what kinds of lives people led in any given period is to tunnel into their records and to let them speak for themselves.
+- People don't choose their careers; they are engulfed by them.
+- It's almost worth having been in the army for the joy your freedom gives you.
+- If there is a special Hell for writers it would be in the forced contemplation of their own works.
+- Women is fine once you got em pinned down, boss, but when they ain't pinned down they're hell.
+- A man's got to work for more than himself and his kids to feel right.
+- U.S.A. is the speech of the people.

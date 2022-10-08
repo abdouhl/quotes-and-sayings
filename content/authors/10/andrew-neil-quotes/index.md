@@ -1,0 +1,99 @@
++++
+author = "Andrew Neil"
+title = "Andrew Neil Quotes"
+quotes_len = "93"
+description = "the best 93 Andrew Neil Quotes"
++++
+- With each step away from communist constructivism to Hayekian capitalism, China has been richly rewarded.
+- When one English person speaks, another one immediately classifies him. No class system in the world is so audible, which is also why it is so pernicious and enduring.
+- I'm proud to have played a major part in destroying Fleet Street, a corrupt cartel of unions and proprietors that operated against the public interest.
+- If I had a pound for every former editor who hadn't cut the mustard advising me what to do, I'd be a very rich man.
+- It is actually getting much harder for someone from an ordinary background to break through the ranks. In the period from 1964 to 1997, every single Prime Minister - from Harold Wilson to John Major - was the product of a state school.
+- Newspapers are what matter in this country, not magazines.
+- The Tea Party isn't out to be a third force in American politics. Instead, it has infiltrated the Republicans and remoulded them in its own image.
+- On the far left, just as there is on the far right there is a dislike of Israel, not just a dislike, a hatred of Israel.
+- With sad, depressing predictability, the children of today's underclass become tomorrow's criminals and dropouts.
+- Ever since I left the 'Sunday Times' there has been a group of scribes waiting for me to fall on my face, and having a go at my commercial record, looking to pick holes in it.
+- I travelled through the night in a bus with the Kentucky Tea Party en route to a massive rally in Washington. For the most part I found them decent, self-reliant, regular Americans who feared the American Dream was now over, not just for them but for their children and grandchildren.
+- You have to live and breathe Scotland if you're 'Scotsman' editor.
+- Well, we all make mistakes, and I've made some; getting involved in a price-cutting campaign in Scotland when the biggest slump in advertising history was just around the corner was a mistake.
+- The English, in their ignorance, still have the romantic notion that Scottish schools are superior to English ones; they are at least a generation out of date.
+- WMR is wholly devoted to acquiring and exploiting rights. We're not a production company, and we're not a broadcaster.
+- Now, I bow to nobody when it comes to estimating the influence of 'This Week.'
+- My mentor is Alastair Burnet, the greatest news anchor Britain has had.
+- I'm a bit of a loner.
+- The Spectator' has to be managed and people have to report. We all have bosses in this world and that's true of 'The Spectator' too.
+- I am not an insider - definitely not... but I don't think you could call me an outsider.
+- Donald Trump's grip on the Republican parties stronger than ever post the Mueller report.
+- No-one in their right mind would buy the 'New Statesman' and change it from being a left-wing to a right-wing magazine.
+- When I was at Paisley Grammar we were equipped to compete with the private-school kids - and encouraged to do so. The sky was the limit, provided we had ability, ambition and a capacity for hard work.
+- I spend a lot of time in New York.
+- I would not rule out Rupert Murdoch once again having control of 'Sky News.'
+- If a journalist comes to you with a great story, one of the first questions you ask is how did you get it. How you got it is relevant to judging its accuracy and preparing yourself for any legal challenge.
+- The Scotsman' is a cheerleader for devolution.
+- I always wanted to have a career in print and as a broadcaster.
+- The Margaret Thatchers of this country made it through - like I did - because of the grammar school system, which gave the opportunity of a lifetime to working-class kids. It put them on a level playing field with the privately educated kids, and opened up the top universities to them.
+- When you have variety, you have freedom.
+- During the Blair-Brown decade social concerns - what kind of society we have become - have gradually replaced economic worries. People fear that we have become an increasingly fragmented, boorish, more violent society.
+- I don't even read 'the Sun' and it's my job to read everything that's politically important. I think that's a symbol of the declining power of the mainstream media.
+- Many U.S. Sunday papers are monopolies, and their contents can be an extension of the daily.
+- Whereas people increasingly get their news from the Internet, magazines have a different atmospheric to them. A magazine is something you sit down and relax with.
+- Memo to self: never again try to travel by train in Britain on a Sunday.
+- My favourite sport's cricket and one of the key things in cricket is to know when to declare.
+- The sucking sound of capital being pulled out of Europe and into East Asia is almost deafening.
+- I am a better journalist than I am a businessman.
+- I recently passed through Mumbai airport. I cannot claim it was a pleasant experience. But if I had a choice between Mumbai airport and Euston on a Sunday afternoon, I'd take Mumbai any day.
+- People know more about my views than they do about most BBC presenters because I had a life before becoming a BBC presenter.
+- You know, Rupert Murdoch I've said is like an Italian when it comes to negotiations.
+- Those who claim to be in the know say Baros is nothing out of the ordinary as Maldivian islands go - that Reethi Ra is far more fashionable, Soneva Fushi more eco-compliant. Truth to tell, they all look pretty much alike from a distance.
+- You don't really appreciate how much you are going to miss your parents. I keep thinking of all the times I should have made the effort to go up and see them but didn't.
+- Well, one person whose company I enjoy is Charlie Whelan. He and I get on really well together.
+- In the highly unlikely event that the 'Telegraph' was to be sold again, then 'The Spectator' doesn't go with it.
+- With growing economic prowess comes, of course, military power.
+- The Sunday paper is an odd British cultural tradition.
+- The Sun' and the 'News of the World' fell in line behind New Labour in the run up to the 1997 election, 'The Times' stayed broadly neutral and 'The Sunday Times' unenthusiastically Tory. After the election, 'The Times' quickly fell in line as the New Labour house journal.
+- I get nervous if the bath is too deep.
+- I read more bloggers now than mainstream columnists, because they've got more interesting things to say.
+- Sometimes, I think 'The Spectator' is calculated to embarrass me.
+- If 'Spectator Business' works, we will continue this brand extension strategy and look at everything from 'Spectator Arts' to 'Spectator Style and Travel' or 'Spectator Connoisseur.'
+- Britain is now living with the consequences of allowing an underclass to take root and fester.
+- Every house has to have rules - even 'Animal House.'
+- It's probably the journalist in me, but I'm naturally suspicious about consensus and always feel an impulse to confront it.
+- Journalists always want publishers or editors to leave. They're creative troublemakers - that's why you hire them.
+- I've got a house that's only 45 minutes from Monte Carlo.
+- I do not regret working with Rupert Murdoch. But there is a nasty undertone to a lot of what he does which does not exist with the Barclays.
+- This is the only country in the world where you can be criticised for trying too hard. That's a put-down in London.
+- That's the only time when newspapers have some influence, when they are pushing the British public in a direction they are already minded to go.
+- The only exception to the demise/struggles of the European centre-left is Macron, in French presidential and parliamentary elections 2017.
+- Not all Republicans in the class of 2010 owe their seats to the Tea Party. But many do.
+- I don't fall in love easily... But I do fall in love.
+- Muslims are not our enemy.
+- Rupert Murdoch has been around since the dinosaurs. He knows how to get around any independent board - as he did with me, and as he's done with other editors as well.
+- Like all populist movements, the Tea Party will eventually peter out. It won't succeed in returning America to the minimalist state of the 19th century.
+- Britain's great postwar meritocratic experiment was broad-based, but it was in politics that the change was most dramatic.
+- I never set out to get married and the way things have worked out I never have.
+- I made it clear when the Barclays took over the 'Telegraph' that I wanted no editorial position there. There is no way I could take a high-level editorial position at the papers. I have my work for the BBC, and that would be compromised if I did.
+- There are two ways you can buy an education in this country. You can pay the fees. Or you can cheat and buy a house in an area where there's a good school.
+- Americans have this patrician attitude that they have a God-given right to produce these boring newspapers and not be challenged to do it. 'The New York Times' really thinks it's the BBC.
+- The old Establishment has always preserved its position by not being too exclusive - it has been wily enough to absorb the up-and-coming and convert them to their attitudes and mannerisms.
+- Class and the snobbery it provokes still matter far too much in Britain, but we are a far more mobile society than we used to be.
+- The English are a tolerant bunch and, outside elements of the London elite, never much minded the rise of the Scottish Raj: after all, we were British, well-educated, reasonably cultivated and spoke with clear, classless accents.
+- As class barriers tumbled and Britain became a more meritocratic society, young, well-educated Scots were best placed to exploit the new social mobility.
+- If the traditional British elite had made a great success of running my country, as successful, say, as the elites of Germany, Japan and America, then maybe it would be a club worth joining.
+- I'm not arguing for a return to the grammar school system, but there must be a way of identifying bright kids from ordinary backgrounds and giving them a world-class education.
+- The Business' has been an editorial success, with a core audience that loves it. But commercially it has never been a success as a newspaper. It just gets crowded out on a Sunday.
+- I don't think the standard of our politicians is very high. And when you get good ones, world-class ones, like a Blair or a Brown or a Thatcher, then they do stand out - they are head and shoulders above everybody else.
+- No one can be in any doubt that Britain is becoming more like Europe, though few in an increasingly economically illiterate media seem to realise it.
+- No, you see, unlike some interviewers, I love politics... overall I am not anti-politicians at all. I recognise they are more important than me.
+- There's even less to do in Umea at Christmas than there is in Stockholm.
+- Most children of the underclass are born out of wedlock; relationships are fleeting and unstable (which ensures that what is born into the underclass stays in the underclass). This is a world in which there are almost no worthwhile male role models, which is a disaster when boys turn to youths.
+- Don't forget that Rupert Murdoch has always regarded the Op Ed pages of 'The Wall Street Journal' - as he's said to me - as a cup of strong caffeine that gets you going in the morning and tells you what to think.
+- When I went up to Glasgow University in 1967, student life was dominated by 13-hour debates on Fridays, when one of the student political clubs would form the 'government' for the day and attempt to push through a piece of legislation, which the other clubs either supported or opposed.
+- I don't say for a moment that the far right is no longer a problem. We have seen the neo-Nazi nutters in Charlottesville in America.
+- Look, I don't want to edit the 'Scotsman.' I have too many other things going on. I have four newspapers to run and two dot com companies going gangbusters.
+- When I was growing up the obvious antisemites were the knuckle-draggers in the National Front.
+- I haven't got a family. I live to work.
+- Since the Holocaust, anti-Semitism is no longer respectable. It was in the 1920s and '30s, but the Holocaust obviously changed that.
+- As one of the grammar-school generation, I grew up as part of a postwar meritocracy that steadily infiltrated the citadels of power.
+- There's a substantial difference between dumping 100 copies of the 'Telegraph' at a Connex South Central station and giving away copies of the 'Business' with the 'Mail on Sunday.' 'This kind of circulation is valuable and enhances the brand. Leaving them anywhere willy-nilly devalues the brand.
+- If you're on the pull, a hen party gaggle, a gang of rowdy chavs or a group of braying snotty bottys, then Baros is not for you - which means it's just grand for the rest of us.

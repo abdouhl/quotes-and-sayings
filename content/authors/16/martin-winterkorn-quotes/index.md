@@ -1,0 +1,42 @@
++++
+author = "Martin Winterkorn"
+title = "Martin Winterkorn Quotes"
+quotes_len = "36"
+description = "the best 36 Martin Winterkorn Quotes"
++++
+- Volkswagen has been, is, and will always be my life.
+- The Volkswagen Group has proved that it can remain firmly on track even when the terrain is slippery.
+- The automotive year 2013 was, especially for European car makers, extremely challenging.
+- Audi has fewer problems with electronics than any other company.
+- People who, like me, grew up in the 1950s and 1960s after World War II, grew up with cars.
+- MoMA is one of the world's most admired cultural institutions.
+- Americans are as they are. We have to accept this. Lots of Europeans forget that.
+- Volkswagen must continue to attack and make good use of its opportunities.
+- 2008 was a good - a very successful year for Volkswagen.
+- The hybrid engine costs a lot of money, and customers are hardly willing to spend so much more for a car.
+- I have always been driven by the ambition to solve every problem I face, whether as a scientist, engineer or entrepreneur.
+- VW's future is increasingly being decided in China, Russia, India, the Americas and Southeast Asia. This is where we will generate most of our growth in future.
+- It is important to exhaust the potential of existing markets. But it is equally important to open up new markets.
+- Taking the third step before the first would be fatal.
+- The violations of these diesel motors by our company go against everything that Volkswagen stands for... at this time, I don't yet have the answers to all the questions. I'm utterly sorry that we have damaged trust in this way. I offer my deepest apologies to our customers, the authorities, and to the public at large for our misconduct.
+- If you want to be promoted into the first league of carmakers, then you can't just follow suit.
+- The United States will remain one of the most important markets for VW.
+- India is and will remain an important strategic growth market for the Volkswagen Group. We are convinced that VW will take on a key role in the Indian automobile market in the long-term.
+- Combining their operating business will make Volkswagen and Porsche even stronger - both financially and strategically - going forward.
+- The Volkswagen Group offers the world's largest low-CO2 fleet.
+- I clearly say yes to Big Data, yes to greater security and convenience, but no to paternalism and Big Brother.'
+- VW grows with the challenges. We continue to do, even when times are tough.
+- Politicians are fond of criticizing others.
+- The U.S. market has the highest priority for Volkswagen.
+- Growth in the Chinese automobile market has exceeded everyone's expectations.
+- We want to be the volume number one, but also we want to have 8 percent in operating profit.
+- I am an emotional person, and soccer is sheer emotion. For me, it is the best way to unwind.
+- As CEO, I accept responsibility for the irregularities that have been found in diesel engines and have therefore requested the Supervisory Board to agree on terminating my function as CEO of the Volkswagen Group.
+- Regardless of whether we are in an upturn or a downturn, our goal is to ensure the Volkswagen Group reaches the top of the automotive industry.
+- I would like to thank Wolfgang Schreiber for his successful work with Bentley and Bugatti and the consistent further development of the two brands.
+- When a customer sits inside the car, then they have to have the feeling that it's an Audi - whether it's the leatherwork or the bodywork. All these things must be typically Audi.
+- The integrated automotive group of Volkswagen and Porsche is a certainty.
+- The European auto industry made a commitment to reduce carbon dioxide emissions by an average of 140 grams per kilometer. But then there was a significant change in what customers wanted in their vehicles.
+- There are always opportunities one cannot pass up.
+- The two inventions of the century, the car and the computer, are gradually coming closer together.
+- We procrastinated in the U.S., it's true. And we are changing that.

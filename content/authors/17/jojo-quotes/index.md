@@ -1,0 +1,30 @@
++++
+author = "Jojo"
+title = "Jojo Quotes"
+quotes_len = "24"
+description = "the best 24 Jojo Quotes"
++++
+- If anyone will listen I will continue to sing.
+- I was looking through a newspaper and it was an audition for 'Kids Say the Darndest Things,' so I tried out. One thing led to another and I appeared on 'The Rosie O'Donnell Show' and 'Oprah.'
+- I was raised in a mostly white neighborhood. I was this little white girl jamming out to Ella Fitzgerald and Bobby Brown.
+- I'm afraid of animals.
+- I've been singing since I was two. Music was my first passion and I love writing, singing, creating and being creative.
+- I've been through a lot, both personally and professionally, and the album that I started to record two and a half years ago is a different album from the one that exists today. I even changed the album title. First it was 'All I Want is Everything,' and now it's 'Jumping Trains.'
+- When I was 4 or 5 and I could put complete thoughts together and really feel them, I remember watching the Grammy's or something like that and getting real emotional because I wanted to be up there.
+- Everything I listen to is influential in some way.
+- I think every little girl is fascinated with mermaids whether you are familiar with 'Splash' or 'Little Mermaid' or things like that. I did remember the film but I didn't watch it going into 'Aquamarine.'
+- I think we should all come together, and that race and color or social demographics really don't matter.
+- I bite my fingernails. That's probably not a good thing.
+- Only in acting I'm going by Joanna JoJo Levesque. In singing, just JoJo. But the reason we wanted to go with JoJo Levesque is most people know me as JoJo. People that are familiar with me would still be like, 'Oh, that's JoJo.'
+- Music is something that I have to do on a regular basis. It really is my life and I absolutely love it. It's a part of my day-to-day. So if I had to choose, it would be music. But I love acting too.
+- I'm lucky to have a great support system in my friends and some of my family. If you have those people that you trust, go ahead and fall back into them and let them be your hammock and cocoon and let them embrace you.
+- I don't attend an actual school but I'm still following through with high school. I do work with a tutor for about six hours a day. It's hard core but definitely worth it, and it's my main focus now - finishing up high school before I release my new album and apply to college.
+- I feel like I am a real artist and I want to be able to feel what I am singing about. So when I sing, 'Leave (Get Out),' I have been through that. I think it is just a new generation, whether people are ready for it or not. Teenagers are dating.
+- You can be young and still have views and opinions.
+- I love being creative.
+- I would love to work with Nickleback. I think they're an incredible band. One of my favorites.
+- I've been acting since I was six. I actually played a boy when I was six in 'Tommy.' I played Tommy and they put a wig on me. They put up my hair and put this little boy wig on me and that was my first acting experience. Then I did some other professional theater. I did Shakespeare when I was older.
+- I look up to people who succeed in accomplishing their dreams.
+- It's easy to fall into a funk and not want to exercise, or to really want that second piece of chocolate cake. I have to say, I fight against those feelings all year. But I try not to let myself sit in a rut like that.
+- I was inspired by Colin Farrell in the fact that he's Irish and has freckles but with black hair. I'm a bunch of different things, Irish, Polish, Native American, and French, but I wanted to tap into that Irish side and be freckle-y with black hair, so that's what I did.
+- I think every little girl is fascinated with mermaids.

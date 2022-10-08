@@ -1,0 +1,46 @@
++++
+author = "Andrew Lincoln"
+title = "Andrew Lincoln Quotes"
+quotes_len = "40"
+description = "the best 40 Andrew Lincoln Quotes"
++++
+- I just do my day job and go home and plant trees.
+- People are always invading your personal space on set, especially on 'The Walking Dead.'
+- If you love a character that gets killed, it's agony.
+- Robert Kirkman can't bear it when I wear flip-flops. He takes pictures of my flip-flops and keeps sending them to me, like, 'What are you doing? Rick Grimes is not a flip-flop kind of guy.'
+- There's a whole generation in England who think I'm American, thanks to 'The Walking Dead.' It's an interesting phenomenon of being an actor longer than 25 years because you can tell what people know you from.
+- Guilt is never very far from Rick Grimes' shoulder. It comes with the package. He's a man who takes his responsibilities very heavily, not lightly.
+- I think my wife has always been aware, whatever country we have been in, of my dramatic leading man status; a little too dramatic she would probably say.
+- I dispute the idea that we turn into our parents. These children who have come into my life are unique beings. I don't think I am teaching my children anything, frankly. I think they are teaching me.
+- The thing that I love about Rick Grimes is that he pulls himself off the canvas even when he has been pummeled to the ground so many times. And either he gets up by himself - he drags himself up - or he is helped up by loved ones around him.
+- I would find myself getting deeply distressed if I lived in hindsight all the time.
+- The whole vanity aspect of building up different muscles - I have no interest.
+- I'm much more indecisive and a people-pleaser than someone who's willing to step into the firing line.
+- When I was at drama school I wanted to do classical theatre. It just so happened that I did a film when I came out and I moved that way.
+- I love acting. I just love it. It's in my bones.
+- When I see a friend play Hamlet or see an inspirational performance, I absolutely get excited by the idea of changing things up.
+- I don't feel that fear is a good incentive on a film set.
+- Having children was a revelation - it's like going through a doorway, and everything is different forever.
+- I like to think that I've got determination, and I'm fiercely protective of the people I love.
+- My parents saw their job of parenting as their most important role in life, and I aim to aspire to that.
+- History turns me on. I was terrible at it at in school, but as I get older, I get more and more into it.
+- You never think about your own mortality. At least not until your back gives way when you're 40.
+- I wasn't a great student. My brother is 18 months older than me, so he sort of forged the way for me at school.
+- My No. 1 responsibility when I'm not slaying zombies is being a parent.
+- I've always wanted to work in America because of those brilliant east-coast political movies of the '70s and '80s - great scripts, wonderful performances, gritty urban parable.
+- Just to have the opportunity to play an American in America is a dream come true for me.
+- Even though I'm an actor, I'm a very bad liar.
+- There is nothing like mortal fear to galvanize a friendship.
+- Guilt is an emotion that is never very far away from Rick Grimes. He's a man that shoulders the responsibility, and it's one of the forces that keeps pushing him on.
+- I always want to go to the movies and watch something and be moved by something or feel things.
+- I'm not going to pretend I'm some saint, because I'm not.
+- I don't really have any regrets because if I choose not to do something there is usually a very good reason. Once I've made the decision I don't view it as a missed opportunity, just a different path.
+- Atlanta is an incredibly cool city.
+- I'm like a magpie. I use lots of different things to build a character.
+- In western culture, we have ignored death. We're running the other way - everything is about life and youth. So, there's something resonant about walking around with our own death masks. Zombies are the visible embodiment of death staring at us with our own faces.
+- I spend my working life pretending to be someone else.
+- I love science and that time in history when science and the humanities were the same thing.
+- Changing diapers is one of the most leveling things that has ever happened to me.
+- When you are an actor every day kind of morphs into one as there is no set structure to my job.
+- That's what I always hoped for when I became an actor - that you would do something that people can escape to, find identification with and excitement in and be able to talk about it in bars, restaurants, and workplaces.
+- If a fantasy, if a story can help you feel something, I think that's really cool.

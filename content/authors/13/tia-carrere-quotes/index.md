@@ -1,0 +1,34 @@
++++
+author = "Tia Carrere"
+title = "Tia Carrere Quotes"
+quotes_len = "28"
+description = "the best 28 Tia Carrere Quotes"
++++
+- Beauty lasts five minutes. Maybe longer if you have a good plastic surgeon.
+- I'm concentrating on the positive, on all the wonderful things I'm doing now.
+- I'm not really this rock'n'roll chick.
+- Having the Stitch character, the villain that becomes a hero, coming from outer space, it took a very difficult and complex story and put it into a simpler, kinder time.
+- Doors open because you're beautiful, but I wouldn't cultivate beauty to the exclusion of brains.
+- The reporter claimed he was going to write the article from my point of view. Instead, he made me sound like a little idiot. It made me never want to do another interview again.
+- I'm of Filipino, Spanish, and Chinese descent, and was raised on Hawaii.
+- I play a female Indiana Jones, a professor who hunts down precious objects, like a bowl that belonged to the Buddha. They tailored the role to me: I wanted to be smart, funny, and to kick some ass.
+- I like theme parks. The fastest roller coaster I've ever been on is at a casino in Nevada.
+- I can't stand when people say, 'Don't hate me because I'm beautiful'. OK, how about I hate you because you said that.
+- I had been gullible, naive, soft, pliable. That's why I got taken advantage of. To survive, you have to have a tough skin.
+- When I first came here, Hollywood was very closed-minded.
+- I slipped at a bus stop; I went one way and my hair went the other. That was the end of my wig.
+- I was very young. I thought I knew a lot and I really didn't. I trusted the wrong people.
+- When I first met my agent, I said, If something comes up and it fits my age range and personality, I would like you to send me up for it, even if it specifies blonde or brunette.
+- As an actress, you're already disregarded for a lot of the parts by the people who are setting up those shows. You don't need your agent to be doing the same.
+- That's always at the heart and soul of Disney's features, the feeling of a family values.
+- Did you know hemp is a natural fiber'
+- Jason Lee is the most famous actor from Hawaii I can think of.
+- This is a Disney animated feature; it's eternal, it's history. What's there to think about'
+- I love to sing, so I just figured that I was going to sing or something.
+- The kids all knew me from Wayne's World. The grown-ups knew me after True Lies.
+- People want me to do the strangest things. They want me to sign their arms or chests.
+- I wanted to be a part of the Disney history.
+- If there's a Disney animated feature based in Hawaii, I knew I had to be part of it. I'm very proud to be from Hawaii. There was no question the role was mine.
+- I act and perform in hopes of getting attention and admiration.
+- I can't sit on grass without a blanket.
+- I kind of fell into acting, but I have sung and trained since I was in the eighth grade.

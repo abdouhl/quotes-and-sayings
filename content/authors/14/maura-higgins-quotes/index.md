@@ -1,0 +1,106 @@
++++
+author = "Maura Higgins"
+title = "Maura Higgins Quotes"
+quotes_len = "100"
+description = "the best 100 Maura Higgins Quotes"
++++
+- I got jumped on by eight girls in my first year at secondary school. I was 11. I was going down to the shop for lunch, I didn't know them, and it was for no reason. I stood up for myself. I wasn't hurt, but I lost some hair.
+- My first memories of make-up aren't great! I remember having a bright orange face and a white neck, I didn't know how to use make-up.
+- I think as women, self love and confidence is something we should embrace and take ownership of.
+- The most important beauty product for me is fake tan.
+- I was very independent, and I moved out when I was 18.
+- I'm getting the flutters about joining This Morning.' I can't believe it. It's beyond my wildest dreams!
+- My mum always told me if I wanted to do Playboy' she'd support it.
+- I've nothing against cosmetic surgery or anything like that, and I feel like for anyone that wants to have surgery, if it's going to make yourself more confident, then do it.
+- If I had taken everything offered to me I wouldn't be happy today.
+- Walking into my hometown where I grew up with crowds of people waiting for me to get pictures, it just didn't seem real.
+- Every boy that I wanted at school, I got.
+- I never realized I was a feminist.
+- I only open up to people close to me.
+- Make-up makes you feel so much better on the days when you're feeling a bit slumped.
+- One Valentine's my date texted me in the evening saying: 'Oh there's a buy-one-get-one-free deal at Domino's tonight,' and I genuinely thought he was joking. But no, it wasn't a joke. We got a buy-one-get-one-free Domino's because there was a bargain on. Oh, and I had to pay for it as well.
+- God help the next man I meet, I'm not sure he'll be able to put up with me!
+- I actually stormed out of the villa and said, I want to go home, I can't do it any more, I can't find a man.' I'm so proud that I got the strength to stay and carry on.
+- I love romance.
+- I don't have any regrets. It's like, I go for what I want, I say what I want.
+- I've never struggled with boys.
+- God I just hate exercise but feel amazing afterwards.
+- I would be a nervous wreck on a date, which sounds crazy because I'm a confident woman but I wouldn't know what to do myself.
+- I don't show it but I'm actually quite a softie deep down.
+- I want to move over to London because that's where all of my work is going to be based.
+- I've never cheated. I've been cheated on.
+- Since turning 30 I'm more broody. My best friend back home just had a baby and honestly my ovaries are not able to cope.
+- Not everyone's always going to like you, that's what my mammy always taught me.
+- I actually used to say it to my mother and my sister all the time. I used to say, 'I just know I am not doing what I am meant to be doing. I know there is something more.'
+- I'm not working out as much as I was, I ended up losing too much weight.
+- At the weekends I eat what I want and during the week I obviously try my best to eat healthier foods.
+- I'm a relationship type of girl. I hate being single.
+- During the day I still go full coverage but I normally go light on the eyes. That said I tend to wear a cat-eye liner look and I never leave the house without my lips on!
+- Being 30, I think it's very important to look after your skin.
+- I'd probably do I'm a Celeb' but I just reckon that I wouldn't be very good at it because I'm terrified of everything.
+- I'm after joining the 'This Morning' family, so I'm going to be doing a bit of presenting. I'm going to be taking some phone calls, like an agony aunt type thing, I'm going to be taking on some challenges, they want me to do a skydive and drift a car and things.
+- Someone will say something to me and it was like I wasn't there. I was there in body but not in mind, which is quite scary.
+- I've never jumped back into a relationship and I've never had a one-night stand, so even if lockdown hadn't happened, I don't think I would have been with any guys.
+- Time is the best healer and there is someone out there for everyone. Not that I've ever been heartbroken. I've always done the dumping.
+- I've always been misjudged, my whole life.
+- When Inglot approached me to collaborate with them, I didn't even have to think about it!
+- I openly say I've had my lips done, I've been getting my lips done for years now.
+- I've worn Inglot for years and now there's over 30 products with my name on them - it's a dream come true.
+- I'm 29 and I've been on one date! When I think of it like that it's quite scary.
+- If you're happy in a relationship it puts everything into perspective really.
+- But I think the main thing is when a guy is really good with kids, I find that really attractive.
+- Driving around the back roads and doing a donut around a cone, that was my life growing up.
+- I'd like to have a child some day and I do want a big wedding.
+- I'm my own brand. I don't need anyone, there's no point denying it!
+- I think people look at my Instagram and think of me as a completely different person - because when I meet people out, they always say, 'You're so much nicer than I expected.'
+- I've always been very, very confident.
+- I'm so excited - Bellamianta is a product I've used for years and years. I actually worked with Bellamianta even before Love Island so I'm really excited to have my own collection with them now. It is a dream come true really.
+- I want to do what the Kardashians do and use my social media channels to sell the products. I'm not just putting my name to the make-up collection, I've actually done a lot of hard work.
+- My nickname at school was Casper.
+- It's still one of my biggest fears, childbirth, but I'll definitely, definitely want a baby some day.
+- I'd like to say I don't respond to trolls but, yeah, sometimes I do. I don't even know why.
+- I'm so excited to be the presenter of the first-ever Glow Up Ireland.'
+- The world would be a strange place if everyone liked each other.
+- My first ever date was my ex-boyfriend, the guy I was with before Love Island.'
+- My dream date would be what Christian Grey does in the Fifty Shades Of Grey' movie.
+- Sometimes, I wouldn't even bring my school bag home. I'd just leave it there. That's really bad, I know, but I thought, 'I am spending all day in school, I'm not going to go home and start going into books again - no way.'
+- To be honest though I've never really been one for dating. I'm not used to it at all.
+- It's kind of a kick in the teeth that I've been cheated on by my last two boyfriends, but I will be stronger for this.
+- When my friends have been heartbroken, I give them a shoulder to cry on and some brutal advice.
+- I could send my mum anything and she would be so happy and proud of me - it doesn't matter what.
+- I think a lot of women are afraid to talk about sex, but it's a natural thing.
+- I eased off the exercise and upped my calories and stuff.
+- I tend to get over someone in my head before I actually dump them.
+- My go-to take away order would be Chinese, pizza or sushi.
+- I'm so proud of this opportunity I've been given by Boohoo. It's a brand that I've loved since I was a young girl so partnering up with them is a very surreal feeling for me and I'm so grateful.
+- I'm not a good cook.
+- I was living out of a hotel for weeks with nothing but a case full of Love Island' bikinis.
+- A strong sense of confidence can often divide opinions so when I came out of the Love Island' villa it was great to see women supporting me with some of the topics I had been open about.
+- I'd probably say Bryan Adams I'm Ready.' I love that song, I want it played at my wedding, whenever I get married if I get married!
+- I just felt like I'm 29 and I want somebody that I can see a future with. I'm not getting any younger.
+- I take every day as it comes.
+- People think photo shoots are easy but they're actually very, very hard, you're not only holding your body position but you're thinking about not looking cold in freezing water, your body looking good, my face and everything - it's tough but I love it.
+- Growing up, Mammy always said, 'Never back down from someone you defend yourself.' And that's what I did. I was never afraid.
+- I would definitely look for someone who is really honest and a very confident guy, but not arrogant and definitely someone who makes me laugh.
+- I see all of my facial expressions and I think 'Wow!'
+- 'Bridesmaids' is my favorite movie - I laugh every time.
+- I was always the one in my family that was into make-up and I was always the one teaching my family and friends.
+- I fall in love quickly, but I fall out of love even quicker.
+- Nothing is ever good enough for some of these people, you know? You're either too big, too small, your makeup isn't right, your hair's not right, all the rest but that's the world we live in.
+- If I'm stood besides any man, I'm going to be accused of flirting.
+- I always used face wipes to take off my make-up and slept in my make-up all the time.
+- My biggest worry going into Love Island' was that I am so pale and I don't get a color.
+- I don't want to get anything done to my body.
+- If I'm in a relationship with someone, I'm loyal.
+- I've experienced women, but I feel like growing up it's good to experience things when you're young.
+- I will trust someone until they do something wrong to me, I'm very much like that.
+- I think when you're younger and you start off experimenting with make-up and it's very different to when you get older and you learn how to do your own make-up; you learn what suits your own face.
+- I'm a massive Greggs fan! I never actually knew about Greggs when I lived over in Ireland but the minute I came over everyone was talking about Greggs sausage rolls so I had to try them and I'm just obsessed.
+- There's no filter with me, sometimes I say things I shouldn't be saying but I mean, why hide it?
+- I don't know if people question my sexuality.
+- I cry all the time, I just don't cry in front of other people. Only those closest to me, and even that's hard.
+- I know who I am and other people's opinions don't matter to me as long as I am true to myself.
+- I look into the future and see myself with a family.
+- I was feeling really, really good about myself and then I was papped and this picture went online and I remember seeing a comment saying she needs to lose weight' and I was like are you joking?'
+- I want someone that's caring, funny, who's similar to me - who doesn't take life too seriously - keeps their private life private and is mature!
+- I've got a flat bum and I'm just going to have to embrace it.

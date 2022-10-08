@@ -1,0 +1,18 @@
++++
+author = "Nell Freudenberger"
+title = "Nell Freudenberger Quotes"
+quotes_len = "12"
+description = "the best 12 Nell Freudenberger Quotes"
++++
+- I think that the practice of writing every day was what made me remember that writing doesn't have anything to do with publishing books. It can be totally separate and private - a comforting thought.
+- It's usually easier for me to begin writing in a character's voice if that person is different from me in some significant way.
+- If somebody says your story is only published because you look nice in the photo, that maybe spurs you on to write.
+- Research for fiction is a funny thing: you go looking for one piece of information, and find something altogether different.
+- I've always been a little bit more of a novel reader than a short story reader. I think the first books that made me want to be a writer were novels.
+- Alice Munro is a particular kind of short story writer in that she writes long, character-driven short stories.
+- I'm not a big Woody Allen fan, but thought 'Husbands and Wives' was great.
+- I like it when someone gives me a new book of poetry by a poet I haven't read.
+- I can't listen to music when I'm writing. I like music best in a car or on the train.
+- Most good fiction also has a character the writer seems to know more deeply than anyone can actually be known in life, but a few unusual writers can make something great without that.
+- I think, in general, it's better not to respond to reviews of your work.
+- I think the few writers who influenced me most in writing short stories are Alice Munro and Grace Paley. They're very different, and I can't do what they do, but reading them gives me hope that I'll learn something from them.

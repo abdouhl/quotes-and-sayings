@@ -1,0 +1,45 @@
++++
+author = "Neale Donald Walsch"
+title = "Neale Donald Walsch Quotes"
+quotes_len = "39"
+description = "the best 39 Neale Donald Walsch Quotes"
++++
+- As the new spirituality begins to become the pervasive spirituality of the planet, we'll find that we have abandoned our philosophy of contradictions in which we say we're all one but continue to try to win.
+- The new spirituality is that it will produce an experience in human encounters in which we become a living demonstration of the basic spiritual teaching 'We are all one.'
+- I think that things happen individually first, and then collectively. It's not the other way around.
+- A great many people experience the movement from one century to the next, but a minuscule number of people experience the movement from one millennium to the next.
+- God is in the sadness and the laughter, in the bitter and the sweet.
+- I'm calling my book series the 'with God series.' And this next 'with God' book is Friendship with God, which comes out in November. This books challenges us to bring about the end of 'better' on this planet.
+- It's a very small and select slice of all the people who have ever been born. I believe we've come back during this time, those of us who are here now, specifically to experience it. And to cause a 'quickening of the spirit.'
+- There is a divine purpose behind everything - and therefore a divine presence in everything.
+- It is the great sadness of our species that we have not found a way to eliminate the conflict and to eliminate violence as a device to resolve our conflicts throughout the entire history of the human race.
+- We've seen in the last half century an incredible shift. This is just an extraordinary time to be alive.
+- The Roman Catholics teach that unless you're a Roman Catholic you do not go to heaven.
+- If we win, someone else loses. But if someone else loses, we lose. Which is a point we're not getting. The new spirituality will make this just painfully obvious.
+- Beyond the Catholic exclusionary paradigm is a larger one which is the Christian one. Christians claim that if you don't believe in Christ, you can't get to heaven. Well that eliminates two thirds of the world's population!
+- Because our choices are largely based on survival. But if life is eternal, life is not a question.
+- I was told to challenge every spiritual teacher, every world leader to utter the one sentence that no religion, no political party, and no nation on the face of the earth will dare utter: 'Ours is not a better way, ours is merely another way.
+- I think the new spirituality will be a spirituality that's not based on a particular dogma. And that steps away from the old spiritual paradigm that we have created on this planet, which comes from a thought that there is such a thing as being better.
+- It'll become obvious that we've really been working against ourselves.
+- Because we believe that our ethnic group, our society, our political party, our God, is better than your God, we kill each other.
+- A life lived of choice is a life of conscious action. A life lived of chance is a life of unconscious creation.
+- The new spirituality will also base itself on a third very large spiritual understanding, which is that life is eternal. Most religious people claim to believe that, but very few people actually live as if that were true.
+- And in which we say that life is eternal but continue to struggle to survive.
+- They may not use the word better. But they certainly believe that they'll go to heaven and Jews will not.
+- I think that's a result of just a general increase in speed of the vibration of life itself.
+- The world is starving for a new spiritual truth - a truth that works in sustaining life, not a truth that brings an end to life.
+- Life begins at the end of your comfort zone.
+- And because we are, somehow, better than they, we get to go to heaven and they don't. Christians will tell you outright that they believe that.
+- Nothing has done more to separate and divide human beings one from another than exclusivist organized religion.
+- One either has to believe in a God who's terribly prejudiced, or disbelieve the teachings of such exclusionary theologies. Religions have taught us that 'we are better than they.'
+- The sad part about our past is that religions, ironically enough, are responsible for creating the most destructive idea that has ever been visited upon the human race: the idea that there is such a thing as 'better.'
+- The new spirituality will bring about what I'm calling the 'end of better.' And that is in fact what is called for in the next of the series of books that I've been writing.
+- I think in metaphysical terms, I would call that increasing the speed of the vibration of life.
+- The new spirituality will step away from dogma, will step away from 'We're right and you're wrong.'
+- Glorify who you are today, do not condemn who you were yesterday, and dream of who you can be tomorrow.
+- It graduates to 'our state is better than your state', and 'our nation is better than your nation.' And it circles all the way around to where it started: 'Our God is better than your God.'
+- As we move into the 21st century, there's what the Bible calls a 'quickening of the spirit.'
+- And we're seeing a higher level of consciousness and many more opportunities for people to challenge their present ways of thinking and move into a grander and larger experience of who they really are.
+- There's no way you can misunderstand the teachings of the Qur'an, there's no way you can misunderstand the teachings of the Bible, there's no way you can misunderstand the teachings of the Bhaghavad Gita, or of the Book of Mormon, or of the other sacred texts of many of those religions.
+- You'll find individuals agreeing on this, but when they get into collective societies and larger groups they find it difficult to achieve group agreement.
+- As told in Friendship with God, if we simply decided to believe and act as if first, we're all one, and second, life is eternal, it would render virtually everything we've done all our lives pointless.

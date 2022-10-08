@@ -1,0 +1,109 @@
++++
+author = "Napoleon Bonaparte"
+title = "Napoleon Bonaparte Quotes"
+quotes_len = "103"
+description = "the best 103 Napoleon Bonaparte Quotes"
++++
+- The first virtue in a soldier is endurance of fatigue; courage is only the second virtue.
+- The torment of precautions often exceeds the dangers to be avoided. It is sometimes better to abandon one's self to destiny.
+- The French complain of everything, and always.
+- Water, air, and cleanness are the chief articles in my pharmacy.
+- It is the cause, not the death, that makes the martyr.
+- The best way to keep one's word is not to give it.
+- Respect the burden.
+- Skepticism is a virtue in history as well as in philosophy.
+- Medicines are only fit for old people.
+- Great ambition is the passion of a great character. Those endowed with it may perform very good or very bad acts. All depends on the principles which direct them.
+- War is the business of barbarians.
+- Death is nothing, but to live defeated and inglorious is to die daily.
+- In politics stupidity is not a handicap.
+- I can no longer obey; I have tasted command, and I cannot give it up.
+- It is my wish that my ashes may repose on the banks of the Seine, in the midst of the French people, whom I have loved so well.
+- One should never forbid what one lacks the power to prevent.
+- The herd seek out the great, not for their sake but for their influence; and the great welcome them out of vanity or need.
+- Nothing is more difficult, and therefore more precious, than to be able to decide.
+- Courage is like love; it must have hope for nourishment.
+- If they want peace, nations should avoid the pin-pricks that precede cannon shots.
+- I am sometimes a fox and sometimes a lion. The whole secret of government lies in knowing when to be the one or the other.
+- We must laugh at man to avoid crying for him.
+- The best cure for the body is a quiet mind.
+- What is history but a fable agreed upon?
+- A leader is a dealer in hope.
+- When small men attempt great enterprises, they always end by reducing them to the level of their mediocrity.
+- He who fears being conquered is sure of defeat.
+- The strong man is the one who is able to intercept at will the communication between the senses and the mind.
+- The human race is governed by its imagination.
+- Riches do not consist in the possession of treasures, but in the use made of them.
+- Among those who dislike oppression are many who like to oppress.
+- The army is the true nobility of our country.
+- In politics... never retreat, never retract... never admit a mistake.
+- You must not fight too often with one enemy, or you will teach him all your art of war.
+- A true man hates no one.
+- Ten people who speak make more noise than ten thousand who are silent.
+- A revolution can be neither made nor stopped. The only thing that can be done is for one of several of its children to give it a direction by dint of victories.
+- The infectiousness of crime is like that of the plague.
+- The people to fear are not those who disagree with you, but those who disagree with you and are too cowardly to let you know.
+- There is no such thing as accident; it is fate misnamed.
+- Take time to deliberate, but when the time for action has arrived, stop thinking and go in.
+- I have only one counsel for you - be master.
+- Ability is nothing without opportunity.
+- It requires more courage to suffer than to die.
+- If you want a thing done well, do it yourself.
+- An army marches on its stomach.
+- To do all that one is able to do, is to be a man; to do all that one would like to do, is to be a god.
+- The act of policing is, in order to punish less often, to punish more severely.
+- Let the path be open to talent.
+- I am the successor, not of Louis XVI, but of Charlemagne.
+- Power is my mistress. I have worked too hard at her conquest to allow anyone to take her away from me.
+- Victory belongs to the most persevering.
+- All religions have been made by men.
+- England is a nation of shopkeepers.
+- Women are nothing but machines for producing children.
+- The great proof of madness is the disproportion of one's designs to one's means.
+- Men are moved by two levers only: fear and self interest.
+- The truest wisdom is a resolute determination.
+- I made all my generals out of mud.
+- Music is the voice that tells us that the human race is greater than it knows.
+- A soldier will fight long and hard for a bit of colored ribbon.
+- Throw off your worries when you throw off your clothes at night.
+- History is the version of past events that people have decided to agree upon.
+- Four hostile newspapers are more to be feared than a thousand bayonets.
+- A man will fight harder for his interests than for his rights.
+- Religion is excellent stuff for keeping common people quiet.
+- A revolution is an idea which has found its bayonets.
+- There is one kind of robber whom the law does not strike at, and who steals what is most precious to men: time.
+- Men are more easily governed through their vices than through their virtues.
+- The surest way to remain poor is to be an honest man.
+- He who knows how to flatter also knows how to slander.
+- The battle of Austerlitz is the grandest of all I have fought.
+- Imagination rules the world.
+- If you wish to be a success in the world, promise everything, deliver nothing.
+- There are only two forces that unite men - fear and interest.
+- A throne is only a bench covered with velvet.
+- Religion is what keeps the poor from murdering the rich.
+- If I had to choose a religion, the sun as the universal giver of life would be my god.
+- History is a set of lies agreed upon.
+- Doctors will have more lives to answer for in the next world than even we generals.
+- In order to govern, the question is not to follow out a more or less valid theory but to build with whatever materials are at hand. The inevitable must be accepted and turned to advantage.
+- Ambition never is in a greater hurry than I; it merely keeps pace with circumstances and with my general way of thinking.
+- From the heights of these pyramids, forty centuries look down on us.
+- Men take only their needs into consideration - never their abilities.
+- A Constitution should be short and obscure.
+- There is only one step from the sublime to the ridiculous.
+- There are only two forces in the world, the sword and the spirit. In the long run the sword will always be conquered by the spirit.
+- Glory is fleeting, but obscurity is forever.
+- Soldiers generally win battles; generals get credit for them.
+- France has more need of me than I have need of France.
+- A man cannot become an atheist merely by wishing it.
+- You must not fear death, my lads; defy him, and you drive him into the enemy's ranks.
+- I love power. But it is as an artist that I love it. I love it as a musician loves his violin, to draw out its sounds and chords and harmonies.
+- Forethought we may have, undoubtedly, but not foresight.
+- With audacity one can undertake anything, but not do everything.
+- The battlefield is a scene of constant chaos. The winner will be the one who controls that chaos, both his own and the enemies.
+- Public opinion is the thermometer a monarch should constantly consult.
+- A celebrated people lose dignity upon a closer view.
+- Never interrupt your enemy when he is making a mistake.
+- The extent of your consciousness is limited only by your ability to love and to embrace with your love the space around you, and all it contains.
+- Impossible is a word to be found only in the dictionary of fools.
+- When soldiers have been baptized in the fire of a battle-field, they have all one rank in my eyes.
+- One must change one's tactics every ten years if one wishes to maintain one's superiority.

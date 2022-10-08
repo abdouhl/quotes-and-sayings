@@ -1,0 +1,16 @@
++++
+author = "Nacho Figueras"
+title = "Nacho Figueras Quotes"
+quotes_len = "10"
+description = "the best 10 Nacho Figueras Quotes"
++++
+- I think the concept of polo that people had in the 1920s and the 1930s was much more accurate, when going to a polo match was seen as a great day out and great fun on a more popular level.
+- Polo is the most inviting sport I've ever seen.
+- There are many guys out there who look like me - you know, brunettes with long hair. There are thousands. But I think the difference is that I am a real polo player, who does endorsements for Ralph Lauren on the side, and I've always looked at it that way.
+- I do believe that using fragrance is a plus. It's one of our senses and it's be a waste not to use our sense of smell. I also think smell is something that tells a lot about a person.
+- Polo is a great thing to do with your kids and your family - it is a great day out. And to me, horses are amazing creatures that give you this cable to Earth and put you in contact with nature.
+- When I go to the gym, stretching is very important. For polo, you don't need too much strength so you don't want to build yourself up too much. It's all about flexibility.
+- I was born in Argentina where polo is popular, and my father always loved horses, so he encouraged me to play. He's the main reason I started to play polo and get involved with the sport.
+- My real passions are horses and playing polo. I care a lot about that and staying fit and in shape.
+- I always say that polo, for you to pursue a career, mainly any sport, you have to be born in the right place. If you're born in Hawaii, you surf. If you're born in Austria, you probably will ski. If you're born in Argentina, you most likely ride horses and have a chance to play polo.
+- When I was 14, I decided that I really wanted to pursue polo more, so I asked my parents if it would be okay for me to go live on a farm outside the city so I could play.

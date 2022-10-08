@@ -1,0 +1,20 @@
++++
+author = "Antoine Rivarol"
+title = "Antoine Rivarol Quotes"
+quotes_len = "14"
+description = "the best 14 Antoine Rivarol Quotes"
++++
+- Man spends his life in reasoning on the past, in complaining of the present, in fearing future.
+- Reason is the historian, but passions are the actors.
+- Oblivion is the rule and fame the exception, of humanity.
+- It is, no doubt, an immense advantage to have done nothing, but one should not abuse it.
+- The only thing wealth does for some people is to make them worry about losing it.
+- Gold like the sun, which melts wax, but hardens clay, expands great souls.
+- Memory always obeys the commands of the heart.
+- Vices are often habits rather than passions.
+- Of every ten persons who talk about you, nine will say something bad, and the tenth will say something good in a bad way.
+- Generally speaking, there is more wit than talent in the world. Society swarms with witty people who lack talent.
+- It is the dim haze of mystery that adds enchantment to pursuit.
+- Speech is external thought, and thought internal speech.
+- To lose one's self in reverie, one must be either very happy, or very unhappy. Reverie is the child of extremes.
+- Ideas are a capital that bears interest only in the hands of talent.

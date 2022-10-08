@@ -1,0 +1,57 @@
++++
+author = "Michelle Pfeiffer"
+title = "Michelle Pfeiffer Quotes"
+quotes_len = "51"
+description = "the best 51 Michelle Pfeiffer Quotes"
++++
+- I look like a duck. It's the way my mouth curls up, or my nose tilts up. I should have played Howard the Duck.
+- I said, going into acting, 'I'm never moving to L.A.,' because it scared me. But there was no way you could build an acting career in Orange County.
+- Even though I don't feel I need approval, it's still important to me to give a good performance. I'm hard on myself.
+- I used to smoke two packs a day and I just hate being a nonsmoker... but I will never consider myself a nonsmoker because I always find smokers the most interesting people at the table.
+- There is no question that the older you get, the fewer good roles there are.
+- I do find comedy difficult. I don't know why. Maybe I think about it too much. There's a tremendous amount of pressure to be funny.
+- People make a lot of jokes about the empty nest. Let me tell you, it is no laughing matter. It is really hard.
+- I guess I sort of just feel like I am lucky.
+- Being a parent is the hardest thing in the world... the psychological toll it takes on you because these lives are in your hands. I take it very seriously.
+- I probably would like to do more than I do, because I love working, but I can't work more than I work because I have to do some facetime with the family, and the work that I do is just all-encompassing.
+- My walk is consistently made fun of.
+- I'm a perfectionist, so I can drive myself mad - and other people, too. At the same time, I think that's one of the reasons I'm successful. Because I really care about what I do.
+- I don't know if it's naivete or just narcissism, but I start out with this notion that I can do anything. It's not until I get into it that I realize what I've thrown myself into, and then I will do anything not to humiliate myself. And that, I think, is the secret to my success.
+- I worked so hard for so long - I did a lot of movies. I also worked a lot when my kids were smaller, before they were in school.
+- I act for free, but I demand a huge salary as compensation for all the annoyance of being a public personality. In that sense, I earn every dime I make.
+- The whole celebrity thing never is normal and I think the fuller your life is, the more you are able to just kind of call a truce with it on a good day.
+- When I was very young I never thought I was attractive, because I was a tomboy and I was always the biggest girl in the class.
+- Where I came from, the idea of going into show business was just ridiculous; in fact I didn't tell anybody because I knew people would laugh at me. So I sort of snuck around and got some pictures and got a resume together and, of course, lied and said I did all kinds of things I didn't do.
+- There's always an imbalance with actors and actresses in the industry. And I think because there are just fewer movies overall being made, it's that trickle down effect.
+- Everybody is vulnerable to being in relationships where they get fooled. I'm no different. It's just human nature.
+- Somewhere along the line I made the switch and was able to look at the bight side rather than the dark side all the time. Now I look at everything I have and think how lucky I am.
+- And I'm a really happy person, I enjoy life. I think you see that on people. I think there's nothing more aging than misery.
+- I have days when I just feel I look like a dog.
+- The value of a good education has never left me.
+- My kids would probably say that I'm too strict. They probably would say that, and I try not to be, but I'm probably more on the conservative end of that. At the same time, I know full well that ultimately I don't really have control over them.
+- I'm good at disguising my feelings.
+- For me, getting comfortable with being famous was hard - that whole side of it, the loss of anonymity, the loss of privacy. Giving up that part of your life and not having control of it.
+- I feel less pressure to dress youthfully. I'm 50 and everyone knows I'm 50 - who are you kidding? Jeans are my uniform. I have about 15 pairs.
+- Like all parents, my husband and I just do the best we can, hold our breath and hope we've set aside enough money for our kid's therapy.
+- I've never met a person who has more integrity than my husband. I respect that. There's his humor and intelligence, too, and he's really cute, all those things - but if you don't respect your partner, you'll get sick of him.
+- I like understanding what's underneath, what's really motivating people. When I was younger, I wanted to be a psychiatrist, so I think it has to do with that.
+- First of all, plain and simple, you have no real idea of what it means to be famous until you become famous. It's a double-edged sword. Obviously there are a lot of amazing things about fame, but there are also a lot of challenging things about it.
+- I do portraits. I usually do live models in a class environment, but I've been painting at home more. I really love the human form, and I love faces. I've tried to do landscapes a few times.
+- Just when you think you've got your kids figured out, they change on you. For somebody who's controlling, you can't control it. Of course, I don't think I'm controlling, but that's what I've been told!
+- I'm a Taurus. To the bone.
+- Ultimately, I believe the only secret to a happy marriage is choosing the right person. Life is a series of choices, right?
+- When I wasn't working I didn't know what to do with myself and sort of didn't exist, in a way, when I wasn't working, so I was like two different people. I am not like that anymore.
+- Just standing around looking beautiful is so boring.
+- It takes years for me to trust; I know that about myself. A lot of it is because I am so private, and so reluctant to make myself vulnerable.
+- I was kind of surprised to learn how controlling I am. I never thought of myself in that way. I think the root of the control issues is usually fear, because you want to know what's going to be happening at any given moment.
+- Well, I'm very stubborn. I think I have common sense; I'm probably at times a bit tunnel-visioned, but I'm strong.
+- I've been painting off and on since I was in sixth grade. I don't paint when I'm acting - I'm not really able to split my focus that way. I do it intensely when I'm doing it, but I'm reluctant to take myself too seriously as a painter because that would mean there would be pressure to be better than I am.
+- Acting's an odd profession for a young person; it's so extreme. You work, and the conditions are tough and the process is so immersive, and then it stops, and then there's nothing. So you have to find ways of making you feel productive when you're not actually producing anything. For a young person, that's really challenging.
+- My grandmother raised five children during the Depression by herself. At 50, she threw her sewing machine into the back of a pickup truck and drove from North Dakota to California. She was a real survivor, so that's my stock. That's how I want my kids to be too.
+- There have been people in my life who have told me I have to put myself out there more. But it's so hard for me to do that.
+- You know, when I am working, I take really, really good care of myself. I eat really well, and I exercise, and again, I have this team of people pulling me together every day.
+- This is the thing I've learned, after a lot of couch time: There are always red flags. You need to look for those red flags along the way so you don't continue to make the same mistakes with another person.
+- I say really stupid things sometimes. When I go back and watch some of my old interviews from when I was younger, I just cringe.
+- It's harder to live the way I live. There are certain places I like to shop and eat where I simply don't go. The paparazzi follow you.
+- I do think that, at one time, being an actress was the equivalent almost of being a prostitute. It garnered roughly the same respect. That's changed a lot, thank goodness.
+- You know, the more you can meet people from different walks of life, the better it is for you. I think the more you can create situations and experiences that give you new perspective, the better.

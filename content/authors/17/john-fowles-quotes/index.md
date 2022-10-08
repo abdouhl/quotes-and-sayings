@@ -1,0 +1,22 @@
++++
+author = "John Fowles"
+title = "John Fowles Quotes"
+quotes_len = "16"
+description = "the best 16 John Fowles Quotes"
++++
+- Duty largely consists of pretending that the trivial is critical.
+- The supposed great misery of our century is the lack of time.
+- We all write poems; it is simply that poets are the ones who write in words.
+- Content is a word unknown to life; it is also a word unknown to man.
+- That is the great distinction between the sexes. Men see objects, women see the relationships between objects.
+- In essence the Renaissance was simply the green end of one of civilization's hardest winters.
+- There comes a time in each life like a point of fulcrum. At that time you must accept yourself. It is not anymore what you will become. It is what you are and always will be.
+- I don't think the English like me. I sold a colossal best seller in America, and they never really forgave me.
+- The most important questions in life can never be answered by anyone except oneself.
+- There are many reasons why novelists write, but they all have one thing in common - a need to create an alternative world.
+- In some mysterious way woods have never seemed to me to be static things. In physical terms, I move through them; yet in metaphysical ones, they seem to move through me.
+- Men love war because it allows them to look serious. Because it is the one thing that stops women laughing at them.
+- Our accepting what we are must always inhibit our being what we ought to be.
+- There are only two races on this planet - the intelligent and the stupid.
+- Most marriages recognize this paradox: Passion destroys passion; we want what puts an end to wanting what we want.
+- An answer is always a form of death.

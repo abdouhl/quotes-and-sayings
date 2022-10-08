@@ -1,0 +1,101 @@
++++
+author = "James Lankford"
+title = "James Lankford Quotes"
+quotes_len = "95"
+description = "the best 95 James Lankford Quotes"
++++
+- There is a way for the IRS to be able to have a double check to make sure individuals don't file on your Social Security number early and try to get a tax return and make it chaotic for you to file your own taxes. That's not been done.
+- The number of fighters that are ISIS fighters wouldn't fill up most American football stadiums. This is not a large group of individuals, but they're tenacious, and they rule with absolute terror.
+- The different Washington, D.C.-based groups and the different special interest groups, they all want to be able to pick who they want to be a senator. They don't speak for everyone, and they definitely don't speak for Oklahomans.
+- We've overmedicated kids. Quite frankly, some of the overmedication of kids are because welfare moms want to get additional benefits, and if they can put them on SSI through maintenance drugs, they can also put them on Social Security disability and get a separate check. That is wrong on every single level.
+- The only way to make government more efficient is to make it smaller and to make it more local.
+- Let's set aside our political and ideological differences and take a moment to love our families, hug our children, parents and grandparents and through love and respect, strengthen the bonds that made us the greatest nation on Earth.
+- Race and sexual preferences are two different things. One is a behavior-related and preference-related and one is something inherently - skin color, something obvious, that kind of stuff.
+- I don't see people who are eager for shutdowns. While some people have a romantic ideal about shutdowns, the vast majority of Republicans and Democrats believe you have to try to work problems out rather than having a shutdown.
+- The vast majority of Americans believe you don't discriminate. You don't. We honor each other. We don't all see life the same way. We don't. We're Americans.
+- We still have a major problem in debt with America that we have to find efficiencies in government to get us back to a balanced budget.
+- I understand the significance of being one of 18 senators in Oklahoma history.
+- I believe that conservative solutions can help families of every race, every economic background, and every town in Oklahoma.
+- Religion that is contained only within a church building is a weekend hobby, not a personal faith.
+- Race and sexual preferences are two different things. One is behavior-related and preference-related, and one is something inherently - skin color, something obvious, that kind of stuff.
+- Quite frankly, Oklahomans are pretty smart. They know how to choose candidates.
+- I still strongly support a full repeal of Obamacare.
+- Marriage is a unique cultural relationship that has a long-standing tradition and societal meaning, which should not be redefined by the courts.
+- I just don't believe that being conservative means all you do is throw stones and poke people in the eye.
+- There's a Biblical mandate to reach out to those who are the orphans, the widows in their distress, to take care of the stranger in your land. But that does not mean citizenship.
+- I believe that being conservative means you try to get in to the middle of the fight and try to solve the problem.
+- Every person is also a citizen of some country. In their country, they have rights and responsibilities. In every other country, they are a guest.
+- We're facing serious issues. We can either complain about it or try to step in and solve it.
+- If you are going to replace somebody off of one of the bills - which I have no problem with a lady being on one of the bills - that you would replace the 20.
+- ISIS has leadership, just like al Qaeda has leadership. It's important to be able to eliminate the individuals that are leading the organization.
+- There is no one leader that's going to unify all of Syria that suddenly everyone is going to go, 'Yes, that's a logical place.' They're not unified. They don't have a setup succession like we do in the United States.
+- The joy of Christmas causes hundreds of radio stations around the country to play Christmas music all day, and people will exchange millions of gifts to remember the first gift of Christmas, the infant Jesus.
+- I'm not a 'messiah' coming to change Washington. I don't come with a political background, so I think it's part of my responsibility to raise my hand and say 'Why?' Folks don't just want smaller government; they want an efficient small government.
+- It's very difficult for the family members of ICE agents, and it's very difficult for ICE agents to know what's right and what's wrong and why should I get engaged and go out there and enforce the law when I don't know what it means any more to have consequences.
+- Centralized national decision-making on education reduces the role of the parent and the local districts.
+- There is only one person in the State Department that can sign off on State Department personnel being in a facility that doesn't meet security standards, and it's the secretary of state.
+- I firmly believe the Senate should see more voting and debate and less standing around and waiting for backroom deals.
+- At times, conservatives become defined by their volume rather than by their ideas.
+- As a Christian, Israel has a very special place in my heart. There's no question about that. I grew up with a Bible, and the back of the Bible has all these pictures of Israel in it. And so all these locations are incredibly significant to me personally in my faith.
+- The Health Care Compact simply gives a state like Oklahoma the option to create a customized system that better meets the needs of Oklahoma families.
+- There's a lot of middle school behavior in Washington, D.C. I look at that and I say, 'I've seen that before,' it was just with a 14-year-old.
+- The Health Care Compact is a way for states to protect their residents from the top-down, one-size-fits-all health care 'solutions' that have been imposed from Washington D.C., including Obamacare.
+- Broken families not only affect the people involved, but they have an impact on public policy decisions in Washington, D.C., and state capitols around the nation.
+- We have two programs dealing with bulletproof vests, two different systems of actually distributing bulletproof vests from the federal government. Two sets of applications, two different sets of personnel to approve those applications.
+- If we are going to remove someone, which I have no problem with doing, then let's do the 20, not the 10, the very first secretary of the Treasury, Alexander Hamilton.
+- Christmas is a great time to recommit to each other and our communities.
+- We have a lot of great hospitals in America, across the country.
+- My focus has always been: I can be an incredibly conservative, principled idea person, but that doesn't mean I have to shout at people.
+- Certainly, every student and school ought to have standards and evaluation, but who sets those standards, and who writes the test? Whoever controls the test controls the school.
+- We must go through every area of the federal budget to isolate waste and abandoned projects.
+- No matter where I travel in the state, people want to talk about education.
+- What they have done, ISIS is very well outspoken about how much they hate our freedom, who we are as Americans.
+- The recent, single-year influx of unaccompanied minors from foreign countries into the United States is a direct result of President Obama's policies of encouraging amnesty and failing to enforce existing immigration laws.
+- Government on its own is always inefficient.
+- Personally and politically, I'm extremely conservative for who I am, but I'm also very careful in my tone. I don't believe just because you're a conservative that you're angry. I can be plenty frustrated and not have to constantly portray myself as upset and angry at the world.
+- I find it completely irrational to say someone who stands up for life for children is taking the life of adult. It's completely inconsistent with the values of the pro-life movement that are very passionate about protecting life, not taking life.
+- The wind industry has made major strides over the past two decades, and they have proven their industry to be efficient and self-sustainable. There is no need for the taxpayer to continue to subsidize a wind start-up tax credit.
+- I can be plenty frustrated and not have to constantly portray myself as upset and angry at the world.
+- My wife and I come from a Christian worldview.
+- I keep Reagan's 11th Commandment that I don't run down other Republicans.
+- Hillary Clinton has her own issues with just her own arrogance as a leader; that has been well known for a long time.
+- For the millions of Americans, like my family, who believe that there is a creator God who can be known personally, Christmas is a celebration of Jesus' offer of love and forgiveness for all people.
+- As we see thousands of public and private Christmas trees and nativity displays around the country, they remind us again of the powerful American value built into our Constitution: our freedom of religion.
+- I am proud to join the many state legislators, governors, businessmen and hard-working Americans who have worked to build support and momentum for the idea of the Health Care Compact, and I am proud to introduce the common-sense bill for this sensible solution.
+- We basically ran the Henry Bellmon campaign.
+- It is a bipartisan gathering to be able to pray for the needs back in our districts, for our families and each other. Another thing the prayer caucus does is to address religious liberty issues around the country as they arise.
+- Every generation has to protect every one of their rights, whether that's freedom of the press, freedom of speech, or freedom of faith. You have to remain diligent.
+- Personally and politically, I'm extremely conservative for who I am, but I'm also very careful in my tone.
+- If we care about life and the dignity of all life, then we care about the dignity of all life, and that includes the human life of children.
+- It's ironic, isn't it, that one day you're one of the most conservative members, and then some individual gets mad at you, and they decide to throw millions of dollars against you because you didn't vote exactly the way they want every day.
+- Assad has to be removed, and then you have to actually put someone in that is a qualified leader that can start to build some trust in that area.
+- Every person is created in the image of God and has value. Every person. Every person is to be treated with respect. Every person is also a citizen of some country. In their country, they have rights and responsibilities; in every other country, they are a guest.
+- The Constitution provides that all Americans enjoy the right to live a life in accordance with their convictions of faith.
+- I'm very, very pro-defense.
+- Our nation stands at the crossroads of liberty. Crushing national debt, rampant illegal immigration, insane business regulations and staggering national unemployment are pushing our nation into unchartered territory.
+- Assad has to go. I mean, the way that ISIS can recruit, and the rebels that are in the north, and all the chaos that's happening through a lot of Syria circles around a lot of people that do not like Assad.
+- When a president makes up law as he goes, no one knows what the law is anymore.
+- The goal of federal regulations should be to promote health and safety, but regulatory enforcement must be balanced with common-sense policies and assistance for businesses.
+- The First Amendment is first for a reason - it cannot be ignored by the D.C. City Council.
+- I'm in favor of dealing with Iran and dealing with the nuclear issue, but I'm not in favor of a bad deal.
+- I don't believe just because you're a conservative that you're angry.
+- You talk about leading Republicans. That's no easy task on just like you were trying to lead Democrats on the other side. We all have independent thoughts and independent ideas.
+- Most businesses believe regulators intend to fine them rather than help them protect their workers. Serious violations should bring real consequences, but minor violations should only incur warnings that encourage compliance.
+- I'm one of those folks that look and say the Old Testament laid out clearly the path for Christ to come, but when He came, every scholar at that time missed it.
+- I don't want to go home and tell my wife and my girls, 'I was gone last week because I had to do a press release.'
+- Americans honor and respect each other's faith, and we honor those that choose to have no faith.
+- The future of our nation is dependent on the future of our families.
+- I am a fan of an all-of-the-above energy strategy, and I certainly support wind as a large part of that goal.
+- President Obama and I disagree on policy with Israel. He seems to say... 'We want peace, but we want to act like Switzerland. We're going to be a neutral party to everyone.' I think that's negotiating from weakness.
+- The Congressional Prayer Caucus has worked successfully to advocate for and protect values that are fundamental to the fabric of our nation, and I'm honored to serve as co-chairman.
+- I see myself as more of a student, that I love to get down into the weeds of different problems and try to go through that. I don't mind messaging, but I'm going to default back to the research side of things.
+- America is strongest when families take care of each other and walk with one another through need and loss.
+- Al Qaeda likes to coordinate, have a central command to be able to send out emissaries around that they have highly trained and say, 'This is the moment we're going to do a large-scale attack.'
+- We have a very structured process for taking in refugees. It takes almost two years to transition from another country into the United States through the refugee process.
+- Spanish Explorers celebrated Christmas in 1539 in the area we now know as the State of Florida.
+- What I love to do is the policy. The politics, I'm brand-new at.
+- Every schoolteacher will tell you that there is no substitute for engaged parents in the education of a child.
+- One of the hardest areas is duplication; everyone knows there's lots of duplication in government. But when you ask someone, 'OK, name two programs that are duplicative,' typically there's a long pause.
+- This is why it's bad to run a country by executive order: because our nation runs on laws - when everyone knows the law, and everyone knows what it is, you know both the law and the consequence, and you get that.
+- I think people see the social media numbers, and the assumption is made that we're running a campaign that is just social media, but I think we're running a very old-school campaign.
+- A lot of the issue that is happening in Syria is Assad is still there. And after years now, the administration, of saying Assad has to go, the pressure is not being applied to Russia, to Iran - the folks that are propping up Assad - and Assad himself to be able to actually be removed there and to transition to another leader.

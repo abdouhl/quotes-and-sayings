@@ -1,0 +1,24 @@
++++
+author = "Kel Mitchell"
+title = "Kel Mitchell Quotes"
+quotes_len = "18"
+description = "the best 18 Kel Mitchell Quotes"
++++
+- I did a lot of theater in the South side of Chicago.
+- He felt like the invisible boy. When he got to be part of the mystery Men he felt like he had a purpose.
+- We didn't know anything about comedy duos - Abbot and Costello, Martin and Lewis - we didn't know anything about that. Kim Fields showed us a tape of Martin and Lewis and their old shows and they come through the curtain so we started doing research on them.
+- Being a role model, you just got to watch what you do.
+- Mystery Men you can take grandma, you can take everyone to see this film.
+- You could do a scene that takes 15 hours, but in the movie, it's only 10 minutes. The scene where they put the sauce poisoning in; it took eight hours.
+- After that, I started going downtown and doing a lot of theater shows in Chicago. When you go downtown there, it's like you're in New York, it's like going to Broadway.
+- If it wasn't for my drama teacher, I wouldn't be here right now.
+- After that I got an agent and went on like a million auditions. You win some, you lose some.
+- I was a drama major also so it's cool to cuss for meaning, but for no apparent reason, no.
+- I passed up a lot of work 'cause a lot of movies that may be out there right now I passed em up because there may have been a lot of cussin' in 'em.
+- Every movie I do, or when I'm on the sketch comedy show, I don't really get into it until I have an outfit or something funny with my head or face or something.
+- I was always the class clown.
+- I was the Pink Pansy or whatever, wearing this crazy thing.
+- Invisible Boy was fun. Everybody else's character, they knew where they were at already as a superhero. But invisible boy's character, you kind of grow up with him within the movie.
+- I'm doing music, and we both want to do some drama.
+- I loved Spider-Man, Spider-Man was the man.
+- Where I'm from, they'll beat your head until it gets back down to normal size.

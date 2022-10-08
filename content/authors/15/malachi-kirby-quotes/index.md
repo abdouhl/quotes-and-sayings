@@ -1,0 +1,42 @@
++++
+author = "Malachi Kirby"
+title = "Malachi Kirby Quotes"
+quotes_len = "36"
+description = "the best 36 Malachi Kirby Quotes"
++++
+- I never got picked for the athletics team for about three years. I was in my third year, and I really wanted to join, and I kept basically knocking on the door of the PE coach. 'Can I join? Can I join?' He's like, 'No... No.' And then one day, he's like, 'Okay, you want to race? Cool. We have a free spot for you. You're gonna be doing the 400.'
+- I believe it's important to have equal opportunities as a black actor. My way of fighting for it is through my art, by not accepting that there are roles that aren't for me.
+- One of the biggest things that I took from playing Kunta Kinte was where his strength came from in knowing where he was from.
+- Charlie Brooker is crazy.
+- Kunta Kinte's strength derives from the knowledge of where he comes from, but it struck me that I don't know where I come from. I understand that my last name is Kirby, that I was born in London, third-generation Jamaican, and at some point along the line, that name was changed. I didn't know my history past my grandparents.
+- I don't think I've ever spoken to anyone who's told me that the story of 'Roots' isn't important.
+- I wasn't raised Christian. I certainly had to seek Him out and find Him, and it's changed my life. I'm so glad I did.
+- I was 22 when my mother gave me the original box set of 'Roots' and she said, 'I want you to watch this.' I watched the whole thing back to back in the span of 24 hours. It had a profound effect on me. It felt like my story.
+- There are stories I wanted to tell, and they are not defined by what I look like.
+- My roots go back to West Africa, but my last name is Kirby, which is not an African name.
+- Playing Kunta Kinte is an emotional, physical, spiritual, and mental journey.
+- I found that there were things that God could reveal to me that I could never get myself physically.
+- At first, I had this huge desire to play a superhero, that little kid in me. Then I realized it wasn't actually a superhero I wanted to play: it was someone fighting for a cause that's bigger than themselves, which can go into all sorts of things.
+- My dad passed when I was 6. I found out when I was about 21 that my dad always said acting would be the making of me. Where he got that from, I have no idea.
+- Kunta Kinte is the closest thing I've ever seen... to a superhero. He's amazing. He's inspirational.
+- Even around my family, I hardly spoke. I was very reserved.
+- Schoolkids - black and white - would call me Kunta Kinte as a cuss. If ever my hair was particularly messy, if ever I looked scruffy at school, I would be called Kunta Kinte. My first impression was that it was bad to be African and bad to be associated with him.
+- Kids under, I'd say, 14 are still maturing; they are still growing. They are still understanding themselves. To hit them with something like 'Roots,' to hit them with this particular period of time, it's important to discuss the matters beyond the program itself.
+- My knowledge of my ancestry, like a lot of black people not living in Africa today, is very vague.
+- I was taught about slavery, but it was the ancient Egyptians. That's the closest I got to African history.
+- When I was in school, my first acknowledgement of 'Roots' was Kunta Kinte.
+- If you're good enough to play a role with emotion and universal human elements, then you'll get others coming to you.
+- I was thinking, 'What is it about Kunta Kinte that allowed him to live such a long life?' For me, what came down to it was his spirit and his knowledge of self.
+- There are many people still ashamed of their roots because of the negative connotations that come with being an 'African.' That sentiment exists many places around the world - in England, in the U.S., everywhere.
+- I haven't experienced a lot of prejudice in my life, but I'm not naive to what goes on in the world.
+- It's really cheesy, but basically, 'Roots' got me to find out my own roots.
+- My mum is... interesting. So, like, she's very expressive and loving, but even if she does get excited about any of my achievements, she won't show it... There's something about her that wants to keep me humble.
+- You're always going to have typecasting, especially with TV.
+- I think about Shakespeare. Because there have been hundreds of variations of Shakespeare's plays since they've been written, and I believe it's because they're important. They're still relevant today. 'Roots' is still relevant today. The idea that we shouldn't tell this story again is very strange to me.
+- I was the shiest person you could think of. I didn't really speak. I was an only child, so most of my life I spent in my bedroom playing with toys by myself, speaking through them.
+- When my dad passed, I felt like I had to grow up very quickly.
+- There was a period when I had apple pie as a treat every day of the week. I mean, like, a family apple pie.
+- I was acting before I had given my life to Christ. But the effect that God has had on my actual career itself is now completely different.
+- When I heard that 'Roots' was being remade, my first response was, 'Seriously?' I was a bit skeptical. Then I had an audition in early 2015. I didn't know how to feel about it. I was a little scared of the responsibility of telling the story again with the weight of the first one behind me - I was scared of comparisons.
+- 'Roots' focuses on a particular group of people who defy the odds and win, eventually, even if it isn't in their lifetimes. This is, for me, a very positive story and a very empowering one, if only we have that perspective on it.
+- Mum used to say that when I went out of the house, I represented her. I took that seriously. So I didn't get involved with a lot of things. I held myself in a particular way.

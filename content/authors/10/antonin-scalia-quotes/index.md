@@ -1,0 +1,79 @@
++++
+author = "Antonin Scalia"
+title = "Antonin Scalia Quotes"
+quotes_len = "73"
+description = "the best 73 Antonin Scalia Quotes"
++++
+- A search is a search, even if it happens to disclose nothing but the bottom of a turntable.
+- Society's mores have changed, and what used to be thought not to be cruel and unusual now is thought to be cruel and unusual.
+- As a general rule, I do not think it appropriate for judges to heap either praise or censure upon a legislative measure that comes before them, lest it be thought that their validation, invalidation, or interpretation of it is driven by their desire to expand or constrict what they personally approve or disapprove as a matter of policy.
+- If you are sentenced to torture for a crime, yes, that is a cruel punishment. But the mere fact that somebody is tortured is - is unlawful under - under our statutes, but the Constitution happens not to address it, just as it does not address a lot of other horrible things.
+- A good, hard-hitting dissent keeps you honest.
+- Power tends to corrupt. But the power in Washington resides in Congress, if it wants to use it. It can do anything - it can stop the Vietnam War, it can make its will felt, if it can ever get its act together to do anything.
+- What secret knowledge, one must wonder, is breathed into lawyers when they become Justices of this Court that enables them to discern that a practice which the text of the Constitution does not clearly proscribe, and which our people have regarded as constitutional for 200 years, is in fact unconstitutional?
+- A journalistic purpose could be someone with a Xerox machine in a basement.
+- I watched 'The Sopranos,' I saw a couple of episodes of 'Mad Men.' I loved 'Seinfeld.' In fact, I got some CDs of 'Seinfeld.' 'Seinfeld' was hilarious. Oh, boy. The Nazi soup kitchen? 'No soup for you!'
+- By formally declaring anyone opposed to same-sex marriage an enemy of human decency, the majority arms well every challenger to a state law restricting marriage to its traditional definition.
+- Why can't the state accede to the public's wishes?
+- Many Americans do not want persons who openly engage in homosexual conduct as partners in their business, as scoutmasters for their children, as teachers in their children's schools, or as boarders in their home. They view this as protecting themselves and their families from a lifestyle that they believe to be immoral and destructive.
+- Winning and losing, that's never been my objective. It's my hope that in the fullness of time, the majority of the court will come to see things as I do.
+- Indeed, follow your star if you want to head north and it's the North Star. But if you want to head north and it's Mars, you had better follow somebody else's star.
+- It's not up to the courts to invent new minorities that get special protections.
+- And what I would say now is, yes, if a state enacted a law permitting flogging, it is immensely stupid, but it is not unconstitutional. A lot of stuff that's stupid is not unconstitutional.
+- The only way to eliminate any government choice on what art is worthwhile, what art isn't worthwhile, is to get the government totally out of the business of funding.
+- It's absolutely clear that whatever cruel and unusual punishments may - may mean with regard to future things, such as death by injection or the electric chair, it's clear that - that the death penalty, in and of itself, is not considered cruel and unusual punishment.
+- I do accept that, with - with respect to those vague terms in the Constitution such as equal protection of the laws, due process of law, cruel and unusual punishments. I fully accept that those things have to apply to new phenomena that didn't exist at the time.
+- I spent my junior year in Switzerland. On the way back home, I spent some time in England, and I remember going to Hyde Park Corner. And there was a Roman Catholic priest in his collar, standing on a soapbox, preaching the Catholic faith and being heckled by a group. And I thought, 'My goodness.' I thought that was admirable.
+- A law can be both economic folly and constitutional.
+- As a young man, you're dazzled by the power of the White House and all that. But power tends to corrupt.
+- I try to be an honest originalist! I will take the bitter with the sweet!
+- I am something of a contrarian, I suppose. I feel less comfortable when everybody agrees with me. I say, 'I better reexamine my position!' I probably believe that the worst opinions in my court have been unanimous. Because there's nobody on the other side pointing out all the flaws.
+- The Constitution that I interpret and apply is not living, but dead, or as I prefer to call it, enduring. It means, today, not what current society, much less the court, thinks it ought to mean, but what it meant when it was adopted.
+- The Court today completes the process of converting Title VII of the Civil Rights Act of 1964 from a guarantee that race or sex will not be the basis for often will.
+- Wringing your hands about states' rights, forget it. They're gone. Basically, the federal government can do whatever it wants. Who's going to protect the states? My court? Ha - we're feds!
+- My view is regardless of whether you think prohibiting abortion is good or whether you think prohibiting abortion is bad, regardless of how you come out on that, my only point is the Constitution does not say anything about it. It leaves it up to democratic choice.
+- Like other human institutions, courts and juries are not perfect. One cannot have a system of criminal punishment without accepting the possibility that someone will be punished mistakenly.
+- Like most rights, the Second Amendment right is not unlimited... It is not a right to keep and carry any weapon whatsoever in any manner whatsoever and for whatever purpose.
+- But I'm not pro death penalty. I - I'm just anti the notion that it is not a matter for democratic choice, that it has been taken away from the democratic choice of the people by a provision of the Constitution.
+- I'm nervous about our civic culture. I'm not sure the Internet is largely the cause of it. It's certainly the cause of careless writing. People who get used to blurbing things on the Internet are never going to be good writers.
+- I'm a law-and-order guy. I mean, I confess I'm a social conservative, but it does not affect my views on cases.
+- If there's anything you absolutely hate, why, it must be unconstitutional. Or, if there's anything you absolutely have to have, it must be required by the Constitution. That's where we are. That is utterly mindless.
+- You could have 50 different states having 50 different regulations... until they were all litigated out.
+- I think Thomas Jefferson would have said the more speech, the better.
+- If you think aficionados of a living Constitution want to bring you flexibility, think again. You think the death penalty is a good idea? Persuade your fellow citizens to adopt it. You want a right to abortion? Persuade your fellow citizens and enact it. That's flexibility.
+- Some people are inherently likeable. If you're not - work on it. It may even improve your social life.
+- I used to say that the Constitution is not a living document. It's dead, dead, dead. But I've gotten better. I no longer say that. The truth is that the Constitution is not one that morphs. It's an enduring Constitution, not a changing Constitution. That is what I've meant when I've said that the Constitution is dead.
+- The main business of a lawyer is to take the romance, the mystery, the irony, the ambiguity out of everything he touches.
+- Why in the world would you have it interpreted by nine lawyers?
+- There exists in some parts of the world sanctimonious criticism of America's death penalty, as somehow unworthy of a civilized society.
+- More important than your obligation to follow your conscience, or at least prior to it, is your obligation to form your conscience correctly.
+- To allow the policy question of same-sex marriage to be considered and resolved by a select, patrician, highly unrepresentative panel of nine is to violate a principle even more fundamental than no taxation without representation: no social transformation without representation.
+- There is nothing new in the realization that the Constitution sometimes insulates the criminality of a few in order to protect the privacy of us all.
+- I attack ideas. I don't attack people. And some very good people have some very bad ideas. And if you can't separate the two, you gotta get another day job. You don't want to be a judge. At least not a judge on a multi-member panel.
+- Burning the flag is a form of expression. Speech doesn't just mean written words or oral words. It could be semaphore. And burning a flag is a symbol that expresses an idea - I hate the government, the government is unjust, whatever.
+- In a big family the first child is kind of like the first pancake. If it's not perfect, that's okay, there are a lot more coming along.
+- I think I'm a pretty nice fella.
+- I love to argue. I've always loved to argue. And I love to point out the weaknesses of the opposing arguments. It may well be that I'm something of a shin kicker. It may well be that I'm something of a contrarian.
+- If you're going to be a good and faithful judge, you have to resign yourself to the fact that you're not always going to like the conclusions you reach. If you like them all the time, you're probably doing something wrong.
+- I'm an originalist and a textualist, not a nut.
+- There are those who contend that it does not benefit African-Americans to get them into the University of Texas where they do not do well, as opposed to having them go to a less-advanced school, a slower-track school where they do well.
+- If we cannot have moral feelings against homosexuality, can we have it against murder? Can we have it against other things?
+- Originalism is sort of subspecies of textualism. Textualism means you are governed by the text. That's the only thing that is relevant to your decision, not whether the outcome is desirable, not whether legislative history says this or that. But the text of the statute.
+- It is not rational, never mind 'appropriate,' to impose billions of dollars in economic costs in return for a few dollars in health or environmental benefits.
+- If I had to choose, I would always take the less dynamic, indeed even the lazy person who knows what's right than the zealot in the cause of error. He may move slower, but he's headed in the right direction.
+- Being a good person begins with being a wise person. Then, when you follow your conscience, will you be headed in the right direction.
+- Until the courts put a stop to it, public debate over same-sex marriage displayed American democracy at its best. Individuals on both sides of the issue passionately, but respectfully, attempted to persuade their fellow citizens to accept their views.
+- If we're picking people to draw out of their own conscience and experience a 'new' Constitution, we should not look principally for good lawyers. We should look to people who agree with us. When we are in that mode, you realize we have rendered the Constitution useless.
+- I'm not a scientist. That's why I don't want to have to deal with global warming, to tell you the truth.
+- The court makes an amazing amount of decisions that ought to be made by the people.
+- Originalism says that when you consult the text, you give it the meaning it had when it was adopted, not some later modern meaning.
+- The American people have determined that the good to be derived from capital punishment - in deterrence, and perhaps most of all in the meting out of condign justice for horrible crimes - outweighs the risk of error.
+- A man who has made no enemies is probably not a very good man.
+- If you condemn someone who has committed a crime to be tortured, that would be unconstitutional.
+- Because values change, legislatures abolish the death penalty, permit same-sex marriage if they want, abolish laws against homosexual conduct. That's how the change in a society occurs. Society doesn't change through a Constitution.
+- I would not like to be replaced by someone who immediately sets about undoing what I've tried to do for 25-26 years.
+- With each decision of ours that takes from the People a question properly left to them - with each decision that is unabashedly based not on law, but on the 'reasoned judgment' of a bare majority of this Court - we move one step closer to being reminded of our impotence.
+- What is a moderate interpretation of the text? Halfway between what it really means and what you'd like it to mean?
+- We have laws against torture. The Constitution says nothing whatever about torture. It speaks of punishment; 'cruel and unusual' punishments are forbidden.
+- If I have brought any message today, it is this: Have the courage to have your wisdom regarded as stupidity. Be fools for Christ. And have the courage to suffer the contempt of the sophisticated world.
+- Words have meaning. And their meaning doesn't change.

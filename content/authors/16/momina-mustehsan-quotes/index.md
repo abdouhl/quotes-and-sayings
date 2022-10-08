@@ -1,0 +1,50 @@
++++
+author = "Momina Mustehsan"
+title = "Momina Mustehsan Quotes"
+quotes_len = "44"
+description = "the best 44 Momina Mustehsan Quotes"
++++
+- My song 'Afreen Afreen' which I performed with Rahat Fateh Ali Khan was the most international heard track and it received over 93 million views. So, with every new season Coke Studio is doing a great job.
+- The vision that Islamabad United have for social issues, particularly with their Empowerment Programs is something that I feel strongly about, and look forward to contributing to.
+- I feel as a singer and musician, it's my responsibility to talk about social issues, and you will hear about them in my music as well.
+- Coke Studio is a big platform for music in Pakistan and I really feel honored to be a part of it.
+- If I can do something about it and won't because I want to hog the limelight, then I really have no right to talk about women's empowerment.
+- If you go out for a jog you feel threatened because all of these men start following you, cat-calling and whistling at you.
+- I love making music and I've always been doing that, I just didn't make it commercial.
+- I am supremely humbled to receive the 40 Under Forty honor by Stony Brook University in the category of Civil Service and Activism.
+- When I started learning the violin, my choir teacher thought I could sing. But when I first got on stage, I froze!
+- It's time Pakistani women are able to stand up and hold their oppressors accountable, no matter how strong or influential they are. Don't be scared. They are strong because we are weak - lets change that.
+- Women face discrimination in sport the world over. The reason we don't have more Serena Williams is because we don't really have the same facilities and coaching for women that we do for men.
+- I realized that everyone was only complimenting me for the way I looked. More than my voice, people focused on how pretty I am.
+- There was a time in my life where I was very depressed, I had lost all self-esteem. I came to a point where I couldn't even look at myself in the mirror, I had gained weight.
+- I got a call for 'Aaya Na Tu' the same day that Forbes featured me in their list of 30 under 30. That day, I knew I had established myself as more than just a singer.
+- As feminists, we have to become more tolerant of each other's differences because we are essentially working towards the same goal.
+- There's a downside to glamour and since I know that, I think that's why I have been able to stay grounded.
+- I stand by all the women who have had to deal with inappropriate behavior of any sort.
+- The LUMS Olympiad back 10 years ago gave me a boost to sing songs where I first met with amazing Uzair Jaswal who did not sing cover songs but his original songs.
+- To be honest, I didn't even know my smile could be such a big deal.
+- I don't mind being in the public eye as long as I am doing something substantial.
+- When I started college, I wrote a song 'Pee Jaun,' with a friend. I never intended to make mainstream music, but that song did really well and I got some recognition.
+- Only if you love yourself, only if you're happy with yourself and only if you know your own worth will you ever be happy.
+- I have grown up listening to Strings and they have always been a source of inspiration to me.
+- The growing reach of Coke Studio Pakistan is mostly evident in the Middle East and the sub continent but with the passage of time it is rising across Asia as well as the west.
+- I've always loved maths, so in college when I started engineering, I had applied math and I really liked it, so I overloaded my courses and did two degrees.
+- Music was never a priority for me, and I seriously do not know how I got so big.
+- You cannot write-off someone and consider them inferior in any way based on how much money they make.
+- 'Muntazir' has a very feel-good vibe to it. It's Strings' signature composition, especially the pre-chorus. I thoroughly enjoyed lending my vocals to it.
+- As an artist, it is heartwarming to see other artists appreciate your work by making covers and renditions of your original track.
+- I haven't moved to Pakistan, but I love it here and I always keep extending my trips.
+- So many people have done Coke Studio but my song broke all records. I think I was highlighted too much after CS.
+- I am not about glamour, fame and all that comes with it, so now that people know me so much, I think I have a responsibility to give them back and set a good example.
+- A song is essentially an 'asset' after its creation and release because it can be traded, sold or rented. This makes it the backbone of earnings in the 'music ecosystem.'
+- In my opinion, a woman's body is not her only asset.
+- I've been personally attacked for respectfully expressing my take on women's empowerment.
+- In South Asia, there is a lack of understanding of the term 'empowerment' because majority of the people think that the definition of women empowerment is to wear fewer clothes, to renounce her culture and traditions, and that it's synonymous with immorality.
+- I want to be more than just a musician or an artist and I felt that I achieved that, with Forbes. I was ready to start a new chapter in my life.
+- The quote that helped me the most with my life was: It only gets better when you get better. That woke me up.
+- My iPhone was blowing up with notifications that I had became a superstar overnight. It changed my life and I was hiding after that to avoid unnecessary talk.
+- Empowering women in Pakistan would mean raising them equal to boys, providing them the same education, giving them the same job opportunities, equal wages and equal respect.
+- I pray that people will stand by women who have been violated and victimized.
+- Do we hate our women? I don't think so. In fact, Pakistan has more women representation in government than the U.S., and we have twice elected a female head of state.
+- Pakistan is my home; I don't want to feel harassed in my own home.
+- I started having anxiety attacks and panic attacks. I would cry myself to sleep every night and wish I could go back in time and get my life back and be a human again instead of a photo op.

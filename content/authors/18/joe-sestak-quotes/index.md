@@ -1,0 +1,106 @@
++++
+author = "Joe Sestak"
+title = "Joe Sestak Quotes"
+quotes_len = "100"
+description = "the best 100 Joe Sestak Quotes"
++++
+- My party needs to understand that business is not a bad word - especially when it has the word 'small' before it.
+- You can get so focused on a strategy and making it work that you lose sight of your larger mission.
+- I'm not beholden to one party or any special interests.
+- I don't want to be president if I have to win by outrage. I don't want to just win. I want to govern, and not just by executive order.
+- Well, you know, I kind of lived my whole life with people, on a Navy ship, and I'm son of an immigrant. And we've all - really appreciate being able to make something clear in a simple way that families quite understand.
+- I do not agree with the use of 'signing statements' to effectively act as a line-item veto, except when the President believes a law or a provision within a law is unconstitutional.In general, if a President signs a law, they are committing themselves to enforcing it. If they don't believe it should become a law, they should veto it.
+- Executive privilege is nowhere to be found in the Constitution, and thus is a very limited principle.
+- Warfare has changed so dramatically.
+- The way forward in the Middle East, as it has been around the world and throughout history, is communication. There must be direct talks between the Israelis and Palestinians, mediated by the United States.
+- Launching a ground war against Iran would require hundreds of thousands of troops for a 'regime change followed by nation-building' operation, as we attempted in Iraq. Iran has a much more modern military, more than double Iraq's population, and almost four times the landmass.
+- We were rugged individualists in the Navy, but we all had health care.
+- I really believe, if I learned anything in the military, it was that I was accountable for my actions and I like to be part of the team that kind of brings that back to Washington, D.C. - not just responsibility, but accountability and being ready to lose my job over doing what's right.
+- Everybody in the military is a Democrat. They just don't know it.
+- Created by Congress as part of the Dodd-Frank Wall Street Reform and Consumer Protection Act of 2010, the CFPB was a direct response to the financial crisis and ensuing Great Recession that began with the subprime mortgage debacle and the unraveling of Lehman Brothers investment bank.
+- Torture is and must remain illegal. Warrantless wiretapping is also illegal, as was the transfer of Guantanamo detainees to Qatar without proper notice.
+- Our country desperately needs a president with a depth of global experience and an understanding of all the elements of our nation's power, from our economy and our diplomacy to the power of our ideals and our military, including its limitations.
+- A comprehensive approach to a two-state solution is not just, we believe, in Israel's interest. It's in our interest.
+- In the Navy, I slept mere feet from a nuclear reactor, so I have no knee-jerk opposition to traditional reactors.
+- Some of the greatest national security threats we face cannot be defeated or defended by traditional military hardware, but only by greatly enhanced cyberspace warfare, including both offensive cyber-warfare and cyber-security.
+- In the face of a rising China, along with authoritarian regimes from Brazil to the Philippines to Turkey to Russia, and the constant presence of belligerent non-state actors, we need to reform our military to deal with asymmetrical threats.
+- Collectively, we must find points of leverage in order to convince China to improve their treatment of Uighurs, Tibetans, and other minority groups, to ensure the autonomy of Hong Kong, and to continue to protect democracy in Taiwan, among other issues.
+- We must end semi-automatic weapons that are used for war. We don't want those in the streets of America and that's why I've got to go to the people on this, not just the elected representatives and Senate, just like I did in my district.
+- Our enlisted are the backbone of our service, are exceptionally a bright group of men women.
+- Certainly, the JCPOA was not a perfect agreement. It did not deal with the threat from Iranian missiles, or their support for violent extremism. And it contains a 'sunset clause,' meaning it expires after a decade. But it was accomplishing the one goal it set out to achieve: stopping Iran from developing nuclear weapons.
+- To be productive and focused, the rugged individuals in our economy need health security so that our country can remain competitive and agile in the changing economy.
+- Before the CFPB, there was no single agency or entity within the federal government tasked with protecting Americans from predatory or negligent practices of banks, credit card companies, mortgage lenders, payday lenders, credit rating agencies and other financial service businesses.
+- The Democratic Party has been perceived to have a deficit of credibility on defense issues since the Vietnam War, unfairly or not.
+- If you took money out of politics, you'd solve 80 percent of all the problems.
+- People ask me if I'm liberal or conservative. I say neither - I'm pragmatic.
+- Instead of measuring military readiness in terms of overall size and numbers, we must focus on metrics of capability, particularly in technology, and positioning.
+- I fought for the rule of law in America.
+- In the military, we just don't leave fights.
+- There are too many who have not shared in the benefits of this economy.
+- For a public option, I voted for that when I was in Congress, and the Senate couldn't stand up to the health insurance industry and took it out.
+- The Democratic Party isn't any good unless they know it's about people!
+- Yes, I'll stand up to the party if they're wrong and they aren't going the right way for people in Pennsylvania. But I do believe in Democratic principles.
+- At the end of the day, Israel is its own self-determining government.
+- I want to be that President who serves the American people the way they deserve to be served.
+- You know, I had gone to war.
+- Americans know that we have more in common than we do differences.
+- When there's no light at the end of the tunnel, it's hard to keep things going.
+- We need to restore U.S. leadership to a world order that is rules-based in order to protect our American dream here at home.
+- Nobody under 40 carries a comb.
+- We only won our freedom because of our allies, and we can only sustain it because of them.
+- The citizens of this nation gave us - my wife and I - a health care plan that saved our daughter's life.
+- We must work hard to ensure that Social Security remains solvent for future generations.
+- Your U.S. military has the best child care in the nation. Full, paid family and medical leave benefits. Why aren't we doing that to empower our workforce?
+- Just as we need a productive warrior force to carry out our national defense mission, our national workforce must be equally able to carry out our economic mission.
+- Human rights in China should absolutely play a role in broader U.S. policy toward China. When we look the other way on fundamental issues of human rights, we are also responsible.
+- A President can obstruct justice and Congress has the full right to hold a President accountable for such law-breaking through impeachment. After a President leaves office, I believe they may be held accountable through the courts as well.
+- Americans want someone who is accountable to them above self, above party, and above any special interest. They want a President that has a depth of global experience to restore U.S. leadership to the world and to protect our American dream at home.
+- The greatest brotherhood, sisterhood that I was ever a part of are veterans.
+- If elected president, it will be my solemn duty to always hold myself accountable to the American people. They deserve nothing less.
+- On the aircraft carrier under my command, where the average age of sailors was 19 and a half, you could see accountability in action at all times. You especially saw it when an order was given that a plane about to launch suddenly must be switched out for another and kept on board.
+- I favor every worker having access to a retirement savings account, and there are various options for doing this. I do support states implementing their own plans, and I expect them to play an important role in increasing retirement savings for young professionals especially.
+- Having served in the military, I know that militaries can stop a problem, but they can't fix a problem.
+- Washington, D.C.'s lost the trust and faith of everyone.
+- We did more to thwart Iran's nuclear ambitions with a computer virus than we ever could have with bombs (and we did still more with diplomacy - the abandonment of which is also bad for our military, because militaries can only stop a problem, not fix a problem).
+- When all Americans believe that the people we elect deserve to be in power, that their conduct in office is worthy of respect, and that they can be held accountable for their decisions, our politics will finally be worthy of our great people.
+- I believe in national service, where you can join AmeriCorps or the military.
+- We can improve the military at less cost and with increased capability. It's not acceptable to keep investing in structure when we would be wiser to invest in dominating the new warfare domain of cyberspace.
+- How do you govern by captaining the ship? How do you win without the trust of the crew?
+- I don't think people need to worry about how I stand.
+- The Iran deal was working. As a solution to the problem of Iran developing nuclear weapons, it was actually working quite well.
+- People don't trust party leaders.
+- I believe we should be investing in the potential of nuclear technology based on thorium, to end the use of plutonium and lead to much safer nuclear power plants, less toxic nuclear waste, and less opportunities for nuclear weapons proliferation.
+- Economic mobility will fix income inequality.
+- America can't go sideways anymore.
+- Our 21st-century world is an incredibly dangerous one. Between brutal civil wars, violent extremism, spreading autocracy, rising inequality, territorial expansionism, election interference, and nuclear proliferation, our policymakers have their hands full.
+- Those who are in our military and now have retired or they left the service actually respect candor. And they respect those that speak without trying to politicize who they are.
+- One answer to transportation infrastructure funding is public-private partnerships.
+- I understand the challenge with student loans. But what about the labor force, the enlisted men and women, so to speak, of ships. Those who work with their hands and their minds. We need to do what we do in the military, is we train and retrain.
+- Amateurs do tactics, experts do logistics, as we learn in the military.
+- I want to be a public servant, not a politician.
+- I think we do stand in this nation for equal rights for everybody.
+- What people in Washington worry about - they forget about the people. They forget the mission.
+- I would immediately rejoin the Paris Accords and reassert U.S. leadership in the critical process of global diplomacy.
+- During my years in the Navy and in the White House, I was involved in assessing how a war with Iran would go. In summary: It would be ugly.
+- We need a president who will stand up for the CFPB and get it back into fighting shape. It is too important to be allowed to disintegrate.
+- I wore the cloth of the nation for over 31 years in peace and war, from the Vietnam and Cold War eras, to Afghanistan and Iraq, and the emergence of China.
+- Nuclear power can continue to help us reduce our greenhouse gas emissions, but we must do everything we can to make it safer.
+- I come from a background in the military where everyone had health care. We understood the value of education as a given. You learn a skill, earn a pension and go on to 'Be all that you can be'... You invest in people. You hold people accountable.
+- I have seen how payday lenders and check cashing outfits set up in towns around military bases to take advantage of young service members, whose starting salaries are barely over $20,000 per year.
+- The United States must ensure that Iran does not attain nuclear weapons, as this poses a direct threat to our interests, including Israel, and would in all likelihood provoke a regional arms race.
+- I'm a guy that verifies before he trusts.
+- We must make sure the stigma is removed around mental health and commanders must make it clear on a consistent basis that their door is open for everyone. Servicemembers need to know that command is there for them, to offer assistance however and wherever needed.
+- Look, it's no longer about capacity, how many ships, how many air wings, how many battalions. It's about capability. If we dominate cyber space and know and can read the other guy's mail, and with a very accurate laser-guided munitions put it in this window or that window, it's not how much, it's knowing exactly where to pinpoint a target.
+- Trade is part of our national security.
+- It's like I learned in the military: the officers always ate last. When you're responsible for people, that's how it should be.
+- I want to restore U.S. leadership within a rules-based liberal world order that collectively holds nations accountable for their illiberal behavior, whether in foreign or domestic spheres.
+- If you have a president who is really trusted, then you can move and advance those policies that actually make the American dream available to everyone.
+- What this nation most wants, most yearns for, most needs is someone where people know, all Americans know, that even when they disagree well with him, he will always be accountable to them above one's party, above self and any special interest.
+- The career politicians down in Washington don't want to be held accountable.
+- For far too long we have continued to mark our military prowess by the size of our forces: believing that numbers of ships, planes, and brigades is what most matters - just like during the Cold War.
+- We need to transform our military forces by focusing on force posture, not force structure.
+- If you lease a part of your soul in a campaign, Washington, D.C., and the establishment... will think they have an option to buy.
+- I don't look at Israel through the prism of running an election.
+- Trump is not the problem. He is the symptom of the problem where Americans no longer believe that the system works for them.
+- Look, I went to war, and we knew by survey that when I went to war that we had a certain percentage in that carrier battle group, and when I was on the ground briefly in Afghanistan, that were gay. And now we come back to America and say they don't have equal rights. I've never understood it. This is something where we have to correct this.
+- Cyberspace is the new domain of warfare.

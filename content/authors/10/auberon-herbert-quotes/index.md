@@ -1,0 +1,23 @@
++++
+author = "Auberon Herbert"
+title = "Auberon Herbert Quotes"
+quotes_len = "17"
+description = "the best 17 Auberon Herbert Quotes"
++++
+- You will not make a man wiser by taking freedom of action from him. A man can only learn when he is free to act.
+- It is the small owner who offers the only really profitable and reliable material for taxation. He is made for taxation.
+- We hold that what one man cannot morally do, a million men cannot morally do, and government, representing many millions of men, cannot do.
+- I venture to prophesy that there lies before us a bitter and an evil time.
+- The career of a politician mainly consists in making one part of the nation do what it does not want to do, in order to please and satisfy the other part of the nation.
+- The course that will restore to the workmen a father's duties and responsibilities, between which and themselves the state has now stepped, is for them to reject all forced contributions from others, and to do their own work through their own voluntary combinations.
+- How, then, can the rights of three men exceed the rights of two men? In what possible way can the rights of three men absorb the rights of two men, and make them as if they had never existed.
+- There never yet has been a great system sustained by force under which all the best faculties of men have not slowly withered.
+- The ruling idea of the politician - stated rather bluntly - is that those who are opposed to him exist for the purpose of being made to serve his ends, if he can get power enough in his hands to force these ends upon them.
+- Every tax or rate, forcibly taken from an unwilling person, is immoral and oppressive.
+- And what sort of philosophical doctrine is thi - that numbers confer unlimited rights, that they take from some persons all rights over themselves, and vest these rights in others.
+- Deny human rights, and however little you may wish to do so, you will find yourself abjectly kneeling at the feet of that old-world god, Force.
+- If government half a century ago had provided us with all our dinners and breakfasts, it would be the practice of our orators today to assume the impossibility of our providing for ourselves.
+- If we cannot by reason, by influence, by example, by strenuous effort, and by personal sacrifice, mend the bad places of civilization, we certainly cannot do it by force.
+- If you tie a man's hands there is nothing moral about his not committing murder.
+- Do you not see, first, that - as a mental abstract - physical force is directly opposed to morality; and secondly, that it practically drives out of existence the moral forces?
+- How can an act done under compulsion have any moral element in it, seeing that what is moral is the free act of an intelligent being?

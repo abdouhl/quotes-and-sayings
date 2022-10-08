@@ -1,0 +1,22 @@
++++
+author = "Nigel Kneale"
+title = "Nigel Kneale Quotes"
+quotes_len = "16"
+description = "the best 16 Nigel Kneale Quotes"
++++
+- I wanted to write a story that demanded the viewer's attention.
+- Nothing could be recorded in those days except by aiming a movie camera at the television screen. It was at least another 10 years before they had any kind of recording medium.
+- People who believe in flying saucers are the scrapings from the bottom.
+- I made a rule for myself that the only television things I would do would be my own stories.
+- The only folk I can judge are people like Woody Allen who I think is a genius, largely because I think he has beaten the system. He has his own company, and his films are all his own ideas. It's his direction, and so it comes out the way he imagined it.
+- I'm in my 80s and not a keen television fan.
+- I don't judge other people's work and I don't see enough of it either.
+- You get to Hollywood and you are in the land of big money where they don't like to see only one screenwriter's name. It's much better if you've got four or five.
+- I never really saw myself as writing science fiction anyway.
+- Something like The Haunting is not worth the slightest consideration from me.
+- You set up a story and it turns inside out and that is, for me, the most exciting sort of story to write. The viewer thinks it's going to be about something and it does the opposite.
+- All stories should have some honesty and truth in them, otherwise you're just playing about.
+- I reckon I closed down at least two films companies, one of which was in Ealing in the mid 1950s.
+- I'd never seen any television before I started.
+- The trick is the paradox - turning your story inside out. Now if it is something that appears to be of total normality and then suddenly turns inside out and is a different thing all together then that's fun to write.
+- Big Brother sounded like a silly stunt and that's what it is.

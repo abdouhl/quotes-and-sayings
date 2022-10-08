@@ -1,0 +1,17 @@
++++
+author = "Kiiara"
+title = "Kiiara Quotes"
+quotes_len = "11"
+description = "the best 11 Kiiara Quotes"
++++
+- I just want to be in the studio 24/7. Even if I'm not working on a song right then, just sit in the studio. That's what I love.
+- It's like, focus on the music. Why do you have to know where I grew up?
+- I was in my friend's apartment, and their buddy called us and was like, 'I'm in a car, and you're on the radio.' So we listened to the song. That was wild. I'm like, 'Is this real? How is this happening?'
+- I just love making music, and that's my focus.
+- I didn't just work at a hardware store. I went to college for a second, and I worked there on breaks or during the summer.
+- Writing-wise, I started when I was 17. Whatever was bothering me, I could just write about it in a song. I was in the west suburbs of Chicago, then I moved an hour south, and then I went to school up on the South Side - Saint Xavier, though I was at Purdue for a second before I dropped out.
+- I played piano, flute, and guitar.
+- I want people to be surprised.
+- When you're working with a producer, there has to be chemistry.
+- When I was younger, music was always there.
+- You don't have to answer someone's questions. That's just how I was raised.

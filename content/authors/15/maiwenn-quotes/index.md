@@ -1,0 +1,19 @@
++++
+author = "Maiwenn"
+title = "Maiwenn Quotes"
+quotes_len = "13"
+description = "the best 13 Maiwenn Quotes"
++++
+- I don't separate things out between what's personal and what's my work. My passion is personal.
+- You can watch Chanel fashion shows and watch the news. Fortunately you don't have to choose. I always vote, I go to rallies, but I also go to fashion shows.
+- There is an incompatibility between being glamorous, young and a woman and using my brain. The official version is there is no discrimination, and talent dominates, but that is not the case.
+- For me, there are always things to learn. It's like the next movie is going to be the good one, you know.
+- It is my passion to direct movies.
+- I'm not clever enough or aware enough to make a political movie.
+- The best way to direct kids is to be natural and honest.
+- I need to be in front of my obstacle. I like to have a back dialogue; I like to talk with people; I like to share ideas.
+- I don't really like to work with actors that work a lot and are very well established already. In a way, I like to nurture talent and have it burst on the scene.
+- Before I discovered moviemaking, I hadn't found anything where I could kind of galvanize or meld all of the things that I wanted to do.
+- I come from a poor family, so really, the culture I know best is the street, TV, school.
+- My real passion is to make movies, to direct. It's good for my ego to be an actress. It's like someone is saying, 'Yes, you're beautiful! Yes, you're doing fine!' But I feel like a child when I'm an actress.
+- My work is through my emotions, so everything kind of goes together.

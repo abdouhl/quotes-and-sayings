@@ -1,0 +1,16 @@
++++
+author = "Mariam Naficy"
+title = "Mariam Naficy Quotes"
+quotes_len = "10"
+description = "the best 10 Mariam Naficy Quotes"
++++
+- Unlike Etsy, which is all handmade, we print and ship the products, not the designers. We relieve the designer from having to make and ship everything, package it, and provide customer service. All the designer has to do is submit art and keep doing what they love doing.
+- At age 28, I had no retail experience, no consumer marketing experience and no real Internet experience. But I decided I wanted to work for myself. I felt starting a company would enable me to get the responsibility I deserved and that I couldn't do that within the confines of a bigger company.
+- Excellent content is available online to everyone. I like it because it's a flattening of the playing field.
+- All of the designs on Minted are crowd-sourced from a global community of independent designers. We hold monthly design and art challenges that anyone in the world is welcome to enter.
+- I founded Minted in 2007 with the desire to use 'crowd-sourcing' to bring designs from the best emerging and independent designers in the world to consumers.
+- Don't be afraid of developing a contrarian viewpoint on what type of person is perfect for your company as CTO and how you're going to find that person.
+- The name Minted speaks to the freshness of our design - the fact that we are receiving thousands of new designs each week and selling freshly minted winners from our design competitions.
+- Minted.com is both a global design community and stationery retailer. Independent graphic designers from all over the world submit designs to our ongoing design competitions, and Minted's community votes to tell us what to sell.
+- The Minted mission is to be a community that supports designers from all over the world and provides them with an opportunity to be discovered and build their careers.
+- Over the years, I observed that many talented graphic designers, including those in my own family, had difficulty getting their designs to market. I thought it would be possible to hold open stationery design competitions where all designers could participate.

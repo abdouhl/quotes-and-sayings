@@ -1,0 +1,105 @@
++++
+author = "Mark Ruffalo"
+title = "Mark Ruffalo Quotes"
+quotes_len = "99"
+description = "the best 99 Mark Ruffalo Quotes"
++++
+- The laws of nature tell us there's a finite amount of any substance on the face of the earth, and at some point, that's going to run out. And if we're smart and we have some grace and we have some willingness about our destiny, then we will take ourselves into the renewable world.
+- The sculptor Frosty Myers and I met when we were bidding against each other at an auction. He's an eccentric, a liberal with a collection of rifles, and his stuff is big art. We share a love of tractors. I'm trading him one for a piece of art.
+- I've just been more interested in doing film right now and I don't want to go away from my family for six months, which was what I would have had to have done if I did the play on Broadway.
+- For the longest time, I was Scott Ruffalo's brother. I mean, he was the mayor of Beverly Hills. He was just so beloved there.
+- All of us have got to pay into a certain system, and what we're saying is it's 100% American that every American should be able to create, store and sell their own energy as they see fit. Let's decentralize energy. Let's democratize energy.
+- I love acting with kids, cause they're great acting partners. They're totally present. Even when they're acting, they're still available and you can crack them up or something weird will happen and they'll go with it.
+- Whatever we want to think about American business - work hard, tell the truth, have morality - it's a myth. There's a lot of graft.
+- But, the relationships that I see work - As long as they're telling the truth, and saying the things that you don't ever want to have to say to another human being.
+- Literally, I think I've quit acting three or four times, only for a few days. Maybe for a few weeks.
+- I still feel like I'm trying to make it. It's hard to shed the struggling actor thing.
+- I enjoyed growing up part of my life in Virginia Beach. We had the ocean and the beach and a beautiful landscape. We were outdoors all the time and we played outside.
+- I did grow up in Kenosha, Wisconsin, around a lot of my mom's family. I had a lot of cousins and aunts and uncles around me, and my sisters and my brother. Probably the most formative part of it was that we grew up on the edge of a forest. It wasn't a big forest, but it was enough. When you're a kid, it feels gigantic.
+- What makes Hulk afraid? It's himself. It's a version of himself that's weak. It's a version of himself that's vulnerable. It's a child inside of him.
+- I remember riding my bike down the boardwalk with nowhere to go and looking at the girls. It was really innocent.
+- They would never let me be a crossing guard when I was a little kid. It would come up, I'd always raise my hand, I would never get picked . They thought I was too wild, but I knew I was responsible enough, if I was given that task.
+- I have a very dear family and very dear friends. They're my rock. These are people who knew me from the beginning, you know, as a loser in a 1972 Dodge Dart with the bumper literally duct-taped to the body.
+- My personal belief is that you carry your own water in a relationship. If you see a girl and you think she's hot, that's a very human reaction, but you don't go and tell your spouse that, you know? So in one way it's how you behave.
+- We'll engage in pretty extreme violence in the world but, you know, the one thing that comes to humans as easily as eating or breathing or sleeping, is sex.
+- I'd never taken a job purely for money - I felt that would kill me - but I was afraid that I was heading that way. Then, my brother passing away was the final thing that kicked me over. It reminded me that life is short, and you'd better do what you want while you have a chance.
+- I'm like a Depression-era person as far as acting goes. It's sort of like, grab it while you can and make the most of what's in front of you. The first 'Avengers' opened up a host of things that I've been struggling to get made for a long period of time.
+- A lot of people are living with mental illness around them. Either you love one or you are one.
+- It seems like they conflate Bruce and the Hulk. It's usually, 'Hulk!' as I'm walking across the street. But sometimes it's 'Banner!' If you go on my Twitter feed, you'll see it's mostly Hulk. I think it was pretty spectacular what we were able to accomplish with CGI with 'The Hulk,' and I can't take full credit for that.
+- When you get to be a 45-year-old man, you start to realize: 'I know who I am, and I know who I'm not. I know my shortcomings, I know my strengths; maybe some of my shortcomings are my strengths.' You start to face yourself as you truly are.
+- I'm a very hands-on father. I like being a hands-on father. I am probably more like one of my kids in my family, but the dominating kid.
+- I've never Googled myself on the Internet.
+- As an actor, you can do everything. I grew up in the theater, and you could do a musical, a comedy, a tragedy.
+- Shakespeare does a great job of taking 5,000-year-old stories and turning them into modern pieces that are true to the original essence but are completely remade.
+- People use the Method as a shield; it shields them from being vulnerable. I hear all these young actors who are like, 'I'm Method, I'm gonna go live in the house, you know, I totally get it, I've done it, I've been there', but one thing I know is it kills spontaneity.
+- Also, stick around. Don't lose your heart, just keep going, keep at it.
+- I've been having a lot of fun with the Hulk motion-capture stuff, actually. The only distinction that I hold is that I am the only actor to ever play Banner and the Hulk.
+- You have to remember that for more than half my life - probably until my children were born - acting was everything to me. I was obsessed by it, and I spent so much time just trying to get to the point where I was being paid to do it. Literally, I spent every waking moment thinking about acting.
+- Yeah, there's a tendency to get pigeonholed in Hollywood.
+- But in my heart of hearts, this is the kind of thing... this is what everyone is struggling with in their lives - relationships and family. To me, it's always an interesting area to mine. I'm drawn to it.
+- My mom was a hairstylist, but she quit doing that to raise the kids - there were four of us. There was no money.
+- I think we've all been kind of... everyone's been hurt, everyone's felt loss, everyone has exultation, everyone has a need to be loved, or to have lost love, so when you play a character, you're pulling out those little threads and turning them up a bit.
+- We're warriors, this culture, and we're very puritanical about sex and very embracing about violence and I don't know why that is.
+- It's been up, down, and sideways for me, man. I could become a huge star, or I could get cancer tomorrow.
+- Commercials that are geared towards kids. I think they should just, like, wipe them out.
+- I think where people get into trouble is hiding and feeling ashamed about what they don't have any control over in the first place.
+- I was probably 8 years old; my mom let me stay up one night. She's like, 'You have to see this movie.' It was 'A Streetcar Named Desire,' and it was on TV, and it was a big deal. And I saw Marlon Brando, and I was like, 'Oh, my God.' That's where it started.
+- Certainly, it's very easy to fall in love with cash. If you're going to make all your decisions based on cash, you're going to have a pretty naffy career.
+- I did a series of these soft-core horror movies called 'Mirror Mirror.' I got killed in 'em all - and each time, I came back as a different character. They were all straight-to-video.
+- I'd always been close to my brother. Very close.
+- My real baby is renewable energy. I feel like whoever starts to crack this nut is going to have a pretty clear shot at the White House. It's a $2 trillion business that America's being left out of.
+- I have two hammocks, one Mayan and one Guatemalan, both family size because I like to lie in them perpendicular. When I'm working on a character, I lie in them and daydream. They're the best tools for working that I have.
+- I ran to my marriage, I was happily ready to take on marriage.
+- My surfboard is a 7-foot-3-inch spoon made by Rip Curl, kind of between a longboard and a shortboard. Surfing brings me into the here and now. It's a dance with the present.
+- I woke up one morning with the knowledge that I had a brain tumor. It wasn't so much that I dreamt I had a brain tumor; it was like someone just poured the knowledge into my head. It wasn't like an image; it was just like knowing. It was so weird, which is why I paid attention.
+- People say funny things all the time during really serious moments in life.
+- 'What Doesn't Kill You' is a really great movie that was little seen but, I think, is one of my personal favorites.
+- I want to get into some television. There might be a perception about me being only a movie actor, you know, and there's this whole new sort of frontier opening up in that medium.
+- I do readings at the public library. I just did a benefit scene night for my old acting teacher.
+- It's a difficult undertaking. I've been married for four years and I see this movie as a cautionary tale about people who've gone deeply out of communication.
+- I didn't really have any interest in producing anything.
+- I don't like to go to the gym very much if I can help it.
+- The true value of somebody in this town is very hard to determine. It's all smoke and mirrors.
+- When I left my Catholic school, I was around 10 or 11 years old, and it started to unravel for me there. Kids pick up on things if you're interested and inquisitive. I was seeing things that were not in line with what I'd been taught about Jesus. It didn't jive with me.
+- I live a bourgeois life.
+- I want to do a western. Nobody does westerns anymore.
+- I love 'The Sportswriter' by Richard Ford. Ford really captures for me the bittersweetness of the quietly suffering American man. It's stoic, sad, and really beautiful.
+- My belief about acting in one foot on a banana peel and the other one in the grave.
+- If you're not yelling at your kids, then you're not spending enough time with them!
+- And my mother caught wind of this. She never had really tried to guide my career or really had any say in my life as an adult, but this was the one time she said she would never speak to me again if I quit acting.
+- As we're bombarded with the imagery that we are and now, post 9-11, it's hard not to get hardened by the world and the amount of violence that's allowed to be shown to kids these days.
+- I don't like this idea of Method. I come from that school, but what I was taught was that it's your imagination. You do your homework, and you use your imagination.
+- I never used to get photographed and people asking for autographs. I don't mind the autographs, but the paparazzi I find weird. As an actor, you want to be able to regard the world instead of having it regard you.
+- The one great thing about a continuing collaboration is that they know you. And if you're really lucky, they really believe in you and think that your talent has some unending bounds to it.
+- Every piece of geopolitical strife that's happening in the world today is revolved around energy, either trying to grab resources or people using resources to fund radical groups.
+- If I'm working in the city, then as soon as I'm home, I try to lock in on my son for a few hours. Every day. I see how important it is that he's starting to come into my world now. It's just an effort to give him that male mode of being.
+- You really can have your dreams and at the same time have a family. But it has to be a really deliberate practice.
+- I think of marriage as a garden. You have to tend to it. Respect it, take care of it, feed it. Make sure everyone is getting the right amount of, um, sunlight.
+- I normally don't have that much confidence. I usually am trying to talk to directors out of giving me a job.
+- The fracking chemicals sit in open pits, get trucked around, or sent through pipelines that can burst. What do you think happens when frack chemicals and floods and storm swollen rivers mix?
+- I like to disappear in the parts I play.
+- With indies, all they have is their script and it's very important to them. The characters are better drawn, the stories more precise and the experience greater than with studio films where sometimes they fill in the script as they're shooting.
+- The problem to me is violence. It's not cool to kill somebody or hurt people.
+- Sometimes, as an actor, you're so deeply immersed in a part that you lose control of it. If you're really lucky, a few times in your life it'll take you somewhere you never expected to go. It really blows the top off your understanding of your craft.
+- For some reason, my whole life has been, 'You can't do this, you can't do that.'
+- I don't want to feel like I'm stuck doing one-stock performances.
+- What is happiness other than a negotiation between reality and your dreams? It's understanding that you give up something for something else. I feel like that's been how I've been trying to be happy, although in my DNA there's more of a depressed person.
+- I don't know, one out of every two marriages ends up in divorce so there's a lot of great people out there who people aren't happy with.
+- Do theater. Because you'll develop a craft that you'll always have. It'll give you a chance to really learn how to act and you won't go into the world with a few measly tricks that will only carry you so far.
+- With social media, you have this new kind of way to communicate with people that's very immediate, sometimes alarmingly so, sometimes painfully so. If you could just hold some objectivity, a very direct, unfiltered, raw reflection of the way something is landing in the culture without any spin, or filtration, or anything, it's very raw.
+- When you're a young actor, and you're really fighting to have your place in the world - for me, anyway - it took a mental focus and energy and striving. It took a long time. And it was my whole life.
+- I became an actor so I didn't have to be myself.
+- I was an introverted kid; I liked my time alone. And the rest of my family is pretty extroverted, so I felt like a bit of an oddball. They're very gregarious and charming and charismatic people. I always felt like I was struggling as a young person. I think everyone was very surprised to hear that I wanted to be an actor.
+- I was bartending for a long time and going on auditions and was constantly being rebuffed.
+- I didn't apply to any colleges - I lied to all my friends and told them I was going to UCSD, because all their parents would be like, 'Mark, where're you going to college?' and I'd just lie 'cause I felt it was unrealistic to be an actor.
+- Actors, like it or not, their voices carry deeply into the culture: people look towards them for attitudes, for right or wrong, and today, the mainstream media doesn't really balance the unheard.
+- I like to think the movies that I've picked have something worthwhile to say. Something relevant.
+- I come from a traditional theater background.
+- It's imperative that we opt out of the fossil fuel endgame.
+- It's a mature thing to understand that your pictures of a lifetime together with someone were... well, the reality is not what we're taught.
+- I always like having kid energy around. I think it's good for a movie, even when you're doing dramatic stuff.
+- After the brain tumor happened, I realized I love acting, I've always loved it, I may never get a chance to do it again.
+- I don't have to be a leading man. I can be a character actor. That's really what interests me anyway.
+- My mom was a hairdresser. My aunt was a hairdresser. My brother was a hairdresser. My sisters are hairdressers.
+- I had to work on a Marlin boat, like gutting fish, like as the bait boy.
+- I have mental illness in my family. I have a lot of compassion for those people.

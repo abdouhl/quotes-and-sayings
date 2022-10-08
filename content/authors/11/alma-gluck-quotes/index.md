@@ -1,0 +1,19 @@
++++
+author = "Alma Gluck"
+title = "Alma Gluck Quotes"
+quotes_len = "13"
+description = "the best 13 Alma Gluck Quotes"
++++
+- When the student has her voice under complete control, it is safe to take up the lyric repertoire of Mendelssohn, Old English Songs, etc. How simple and charming they are!
+- The sincerity of the art worker must permeate the song as naturally as the green leaves break through the dead branches in springtime.
+- Time and again, a student will send me an urgent appeal to hear her, saying she is poor and wants my advice as to whether it is worthwhile to continue her studies. I invariably refuse such requests, saying that if the student could give up her work on my advice, she had better give it up without it.
+- One does not study for a goal. One sings because one can't help it! The 'goal' nine times out of ten is a mere accident.
+- The student who deceives himself into thinking that he is giving his life like an ascetic in the spirit of sacrifice for art, is the victim of a deplorable species of egotism.
+- French is, in many ways, more difficult for an English-speaking person to sing. It is so full of complex and trying vowels. It requires the utmost subtlety.
+- We are rich in the quantity of songs rather than in the quality. The singer has to go through hundreds of compositions before he finds one that really says something.
+- The real artist has no idea that he is sacrificing himself for art. He does what he does for one reason and one reason only-he can't help doing it.
+- Acquiring a repertoire in these days, when the vocal literature is so immense, so overwhelming, that the student with sense will devote all his energies to work and not imagine himself a martyr to art.
+- Inspired by the purse rather than the soul, the mercenary side fairly screams in many of the works put out by every day American publishers.
+- Just as the bird sings or the butterfly soars, because it is his natural characteristic, so the artist works.
+- Vocal study before age 20 is likely to be injurious, though some survive it in the hands of very careful and understanding teachers.
+- In the piano, one has the instrument complete before he begins; but in the case of the voice, the instrument has to be developed by study.

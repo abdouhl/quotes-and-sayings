@@ -1,0 +1,36 @@
++++
+author = "Amala Paul"
+title = "Amala Paul Quotes"
+quotes_len = "30"
+description = "the best 30 Amala Paul Quotes"
++++
+- After my hit 'Mynaa', big offers came to me. I didn't know how to handle things. Once you know how to handle things and you come of age, you want to do mature films.
+- I've turned vegetarian and am on an ayurvedic diet. I go to the beach every day, and I feel the creative energy of Auroville.
+- I am doing films that are content-oriented and where I have the scope to perform. Rarely do such scripts happen.
+- When people look at 'Aadai's posters and say that I've attempted something bold, it actually reflects me being secure about myself.
+- I would love to get married, have a baby and adopt one.
+- I can't drink coffee because as per Ayurveda, I have a pitta body type. This means I am fire, and coffee means more fire.
+- Once you are in the character, you should let your inner actor take over you.
+- For the movie 'Bhaskar Oru Rascal' I had to let go of a part of my agreed salary and in fact, had to lend money to the producer when he couldn't meet his financial obligations at the time of the movie's release.
+- I am not in 'O I hate relationships' phase. I will never be in that phase.
+- I was telling my manager that I wanted to quit the industry because the synopsis I was receiving from filmmakers all felt like a lie. Yes, they were heroine-centric... but the concepts were simple. Like a rape victim, her struggling against the odds and gaining revenge, or a wife who supports her husband endlessly, or a sacrificial mother.
+- Aame' is a new attempt. The entire film was shot using live sound technique.
+- I have always been a rebel without a cause.
+- Vijay is my husband but he continues to be my best friend and soul mate.
+- Kollywood allots big budget only for commercial films. Bollywood film industry is straightforward that way. When compared to Bollywood, Kollywood is fake. They keep churning out the same films.
+- At the age of 23, I got married. I think it would've worked if I married a little later on, as a person with little more maturity and little more to understand about marriage how it works. May be it would have worked, you never know.
+- About my marriage life, it has been pretty painful, pretty sad. I can't say there was no unpleasantness at all. I can't say it was smooth and happy or anything. There were lot of painful experiences we both went through.
+- Life can't be always be stable always right. There are things which are out of your control.
+- I used to think that only a mother could provide unconditional love and make sacrifices.
+- Marriage is great if you find the right person. What is nice about Vijay and his family is that they have let me be.
+- I hate being typecast and I don't want to do things that are boring for me because it would be boring for the viewers as well.
+- I grow tomatoes, spinach and melons, a pepper vine climbs my coconut tree. I have a home and kitchen of my own.
+- I went through a phase of deep introspection. I realised that while doing films back to back, I was getting burnt out and not concentrating on quality. I wasn't preparing for my role and was working like a machine. When I saw the result on the big screen, I felt that the work I'd done was horrible.
+- I've sold my Mercedes and I'll be getting something electric. I work out of a thatch shed on the roof.
+- I don't want to do films for money and go back. I want to try to at least change the world through cinema, the industry, the way cinema is conceived.
+- Be it in Malayalam or Tamil, I got to play characters who had plenty to do in the storyline and not just be a prop.
+- I always look forward to roles that excite me as an actor.
+- I want to only be part of films that are worth my time. I give my heart and soul for four-five months and I don't want that to go in vain.
+- I wanted to be a journalist so the character of a TV news person in 'Run Baby Run' was really interesting.
+- Well, I am a Malayali and I know the kind of expectations my fans have about my films. That, for me, is the biggest award. So I try and pick roles that I hope viewers will like. Malayalis want actors to be subtle in their acting and they enjoy realism.
+- We actors have a big problem. We have a lot of insecurity and we are fragile. We surround ourselves with people who praise our ego and lie to us... till that moment you realise that these people are not helping you get ahead.

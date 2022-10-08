@@ -1,0 +1,16 @@
++++
+author = "Tim Walker"
+title = "Tim Walker Quotes"
+quotes_len = "10"
+description = "the best 10 Tim Walker Quotes"
++++
+- You have to raise the bar. Give yourself a challenge. Ask yourself, 'How can one make the impossible materialise?'
+- Even the pictures I was doing at college - a little narrative based on a butterfly catcher, or a chimney sweep - the images were always telling stories. They were all scenarios and moods which I storyboarded and worked through - it's exactly what I do now.
+- Looking back at my earlier pictures, I think that the work is very much coming from the same place. I have gone through a period of challenging myself with a complicated idea to currently challenging myself with the idea of simplicity.
+- Your aim as a photographer is to get a picture of that person that means something. Portraits aren't fantasies; they need to tell a truth.
+- I've never been in love with fashion, actually; trends and catwalks don't interest me. I love clothes; I love them historically and currently. They represent a spirit of the times and the zeitgeist.
+- It is very difficult to make the ideas in my head come to life, but what is harder is making them look effortless.
+- When I was at college, the idea of fashion was more immediate to me, whereas art photography, the depth of it, was a different thing. Storytelling - fanciful storytelling - can only be told through fashion photography. It's the perfect way to play with fantasy and dreams.
+- Only photograph what you love.
+- Fantasy isn't something I put into the pictures; I don't try and inject them with a sense of play. But it's about being an honest photographer; a photograph is as much of a mirror of the photographer as it is the subject.
+- I'm very particular who I work with. I'm not interested in portraying women with a cliched, generic look. I'm interested in a model who I can take a portrait of.

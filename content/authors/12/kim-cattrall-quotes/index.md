@@ -1,0 +1,117 @@
++++
+author = "Kim Cattrall"
+title = "Kim Cattrall Quotes"
+quotes_len = "111"
+description = "the best 111 Kim Cattrall Quotes"
++++
+- I had a great time in my youth and I still feel youthful. I've no desire to look as though I'm in my 20s.
+- Theatre can't be done again and again and again and again - it's organic.
+- I have a big appetite, and staying on top of that is about knowing myself and saying, 'I can eat that today, but tomorrow I'm not going to.'
+- What would be really difficult is to be sitting on a beach. There's vacations, and there's vegetations. I don't do well vegetating.
+- My experiences in film and theatre in the States have been much more rigorous-in England there's an environment of, Let's try this.
+- I've been playing sexually aware women most of my life. At this point I expected to be playing moms and wives. It's exciting to play a femme fatale.
+- I take care of myself, which includes dieting, exercising and minimising stress. I joke that I've been on a diet since 1974, which is basically true.
+- It's easy to diet or get off a diet when you've got a juicy role to play.
+- I'm a single woman of 56 and I see a lot of men my age with much younger women or women my age with much younger men. I've done both, and I still hope that when I do find someone I want to spend time with, they think I'm the hottest thing going.
+- I am not interested in being a Barbie doll and turning myself into a sausage for the next 20 years. I want to follow actresses like Helen Mirren and Judi Dench who have lines on their faces and aren't afraid of playing their age.
+- I wanted to understand pain and the human condition, which is full of pain and regret and sadness - and some happiness, if you're lucky.
+- Tennessee Williams was so adept at portraying characters who are both fallible and vulnerable. Women were a huge influence in his life, his mother and sister in particular.
+- I'm a trisexual. I'll try anything once.
+- I've seen some women who are not particularly attractive but they have an assurance, and there's something so attractive about someone who doesn't have to work so hard.
+- There's a look people get in their eyes when you're talking to them and they're not seeing you, and you know it's because they have a movie running through their head.
+- When I see a woman who looks her age, she's radiating something, and it's life.
+- Most of your life as an actor in Hollywood, either an actress or an actor, you have to look - you have to work out, you have to look - you rarely get to play someone who's just human, who's real, who is overweight, even not grossly overweight, but who has aspects of just everyday life.
+- I have a very healthy dose of self-loathing. But I think we all have a past of being whatever our story was, of feeling not good enough. It can propel you to work harder and do more, but it can also be a tremendous trap, and you can't see beyond it.
+- In my life and career I want to embrace ageing because I think that's what's interesting.
+- I think the wonderful thing about doing theater is that it's more of an actor's medium. I think that film is more of a director's medium. You can't edit something out on stage. It's there.
+- I like movies I can relate to.
+- I never gave up believing that there was much more to life than how I was living it.
+- A successful television series can chain you to a schedule of long hours and can put your personal life on hold. But after it is all over, if you survive, then anything is possible.
+- Your dressing area should be your private space.
+- I've learned that I can't have a packed work schedule and a packed social schedule and a packed personal life; I need to just have time to myself to sit and breathe and unwind.
+- I've been dieting my whole life because I have a tremendous appetite.
+- I did a school play when I was 10 where I played a cold germ infecting a whole classroom of kids. The play was called 'Piffle It's Only a Sniffle.' I'd never had so much fun. It was a thrill.
+- I like to step outside of what people's idea of me might be. I suppose that makes me a bit of a rule-breaker. I like to take chances.
+- Since doing the show I've been so busy that I've not really had time to mope.
+- The most difficult thing about my job is that I do a lot of 19-hour days. It's really difficult to have a life, never mind a relationship. I don't have any regrets, really. I'm quite content. I'm very stubborn and persistent. I just keep working.
+- I feel I disappoint people when I am not 'Samantha.' They seem surprised when I don't have the same voice and the same mannerisms. They were booking 'Samantha,' and I would show up.
+- You know within three seconds if you're going to have a history with someone - it's a long half-hour if you've got it wrong.
+- What I wear is a reflection of where I am going and how I am feeling. If I'm in a good mood, it's got to be cashmere and jeans - just something comfy, soft and warm. When I'm down, I might find something that I haven't worn for a while that was bought for me - or wear a brooch or a pair of shoes that are like old friends.
+- I got to L.A., and they said I had to lose weight, let my hair grow and buy some dresses. I was nailing auditions with my readings, but they wouldn't hire me because I wasn't putting on the glam. It just didn't occur to me.
+- Practically all the relationships I know are based on a foundation of lies and mutually accepted delusion.
+- I'm so lucky to have a career in my fifties. And to still have the desire to do it. I don't think about retirement.
+- My film career was always to support my theater career.
+- Most people look at ageing as a disease. They do. They have prescriptions and places where you go to eradicate it.
+- A pilot is like the most extensive dress rehearsal you can ever imagine, because the writers are learning about the actors, the actors are learning about the characters.
+- I don't express a lot of things that I feel; I kind of register things.
+- Looking good has never been the most important thing to me. Maybe it's because I'm more conventionally, um, acceptable, so it's not an issue for me. I don't know.
+- I'm not expecting much work in Hollywood, to be honest. People stick to film because they tend to get offered the same roles over and over again, and it's safe. But I'm not interested in doing that.
+- There's still the part of me that wants to leap at every opportunity, but now there's the other side that says, 'Let's just wait a minute and see what happens.' That's intuition, and it comes with age and experience.
+- There are many ways to be a mother. I have a lot of young actors I mentor, and my nieces and my nephews need a lot of love.
+- I feel sometimes and in some ways like Linda Romanoli and Monica Velour; I feel marginalized because I'm in my fifties. If you went online and you look at some of the blogs, which one can do on a lonely night, it's pretty startling what people will say about you just because you're in your fifties.
+- I first wanted to be an actress after seeing a play - not a movie.
+- I don't want to be in boardrooms talking about hiring hairdressers and minivans. I'm not good at it, and I don't like to hire and fire people. I hate that. It's horrible.
+- I'm smart with my money, I invest conservatively. I don't mind paying top-dollar, but I don't want to get ripped off.
+- I always assumed that, like my mother before me, one day I would have children. When I was 5, my fantasy was to have a hundred dogs and a hundred kids.
+- I found a lot of guys my age and older were absolutely terrified of me. Younger men weren't.
+- Theatre is immediate, it's alive, you're there with the audience, it can't be done again and again and again and again, it's organic.
+- That's what life is - you follow where your heart leads you - at least I do.
+- If I only did theatre I would have had to waitress, and I didn't want to waitress.
+- I follow life's changes, continue with my time-outs, and remain curious about what's next.
+- I was a bit odd as a kid, because there were so little outlets for me. There was no theatre except for the odd community theatre and school shows. The only movie theatre was at the Canadian Forces Base nearby in Comox, so it either showed kiddie flicks for the families and restricted stuff for the men.
+- Have you seen some of the women - and the men - in Los Angeles? They pay surgeons to make them look completely different in the hope of finding their youth. But youth comes from within. If you have a young attitude, then that can show in your face, the way you walk and move.
+- I sort of have a love affair with my work. Many of us work far too hard and we don't put enough value in the epicurean, sensual part of life.
+- When I got out of my Twenties I stopped playing women that were victims. I like playing women who are strong and have a piece of mind.
+- It was difficult when I was very young because I was so separated from my family. When I was at school or acting in a play, I felt very much part of something, and then it would always change, and I would be by myself.
+- I'm not a personality actress. I never have been. I have been a character actress.
+- I don't really watch television, and I don't watch these shows that promote shows.
+- My family was going back to England to visit my mother's grandmother, who was very ill. We went up to Liverpool and I met my great-aunt, who was just a force of nature. She was an elocution teacher and a huge enthusiast for theater and the classics. I took her amateur acting class, and she was really impressed with me.
+- There is no need to feel defeated at 40, 50 or 60. I'm having the greatest time in the second half of my life.
+- I consider myself a feminist living in a post-feminist era.
+- I am no size zero or super-thin Hollywood actress. I am built for men who like women to look like women.
+- I enjoyed making people laugh. I discovered that I loved that power over them. On stage, I felt I could really express who I was for the first time.
+- I didn't want to get married, and I didn't want kids - I knew I wanted to act.
+- If you stick with a vision, it might not all work, but some of it will be absolute genius. To me, 15 minutes worth of absolute genius in a film is so much better than two hours of mediocrity. I would rather pay to see something different like that.
+- Being a gossip reporter just isn't a respectable job. It'll chew you up and spit you out.
+- I'm certainly not a prude.
+- I've realized that the most important thing I can do to look good is just treat myself well, whether it's getting a nice, long massage or just lying low and not going out every single night.
+- I feel so much at home onstage and so comfortable in my body.
+- I don't read reviews because if they're bad I'm devastated and if they're good I get a big head.
+- Having my priorities in order has really helped me look better, fresher, and more relaxed.
+- Shows like 'Sex and the City' got women involved again in a political way. They were drawn into the personal stories of the four women who together make up one complete cosmopolitan woman. We want to have community, and the show filled that void in our lives: friendship between women.
+- If I didn't work in television or film, if I didn't have the right look, I never took it personally. Because there was always the theatre. I'm not a nihilist, I'm an optimist. And that has served me well in this profession.
+- Being a biological mother just isn't part of my experience this time around. However, I am a mother who continues to give birth to ideas and ways of experiencing life that challenge the norm.
+- As I get older, I find that cardio is less important to me. What I want to do more of is intense stretching.
+- You have to be desirable. And that's why so many woman of my age or even younger are pushed to Botox and plastic surgery, all the things that people say, 'Why do women do this?' Where do you go in your 50s in your career?
+- At the beginning of every role I take, I have to start from basics and build it up. It's like a new construction.
+- When you're filming, you work 19-hour days and you know more about what's going on with your crew and co-workers than you do with your husband. You're away, you miss things. It's taxing. Relationships fail because of it.
+- If my accomplishments frighten someone, it's nothing to do with me - that's to do with them. But the men who are in my life see me as a person - as a woman - not as a character I've played.
+- I don't know many women who can relate to Sharon Stone and the kind of movies she does. I don't know a lot of guys who can relate to Tom Cruise's movies because they're on a kind of fantastic level.
+- A lot of my life has been lonely. Fantastic, but lonely.
+- Talented people are written off once they hit their 50s and 60s, and the saddest thing is, we just get better as we get older.
+- When you're filming, you work 19-hour days, and you know more about what's going on with your crew and co-workers than you do with your husband.
+- The older I get, the less jarring I want my exercise to be, and I find that a long walk is equally as helpful and satisfying as a three-mile jog.
+- I haven't played a lot of wallflowers but I have played women who have been vulnerable.
+- I've always thought that less was a lot more.
+- Once you have a child, that becomes your life, and while that's the way it should be, I sort of have a love affair with my work. Having said that, many of us work far too hard and we don't put enough value in the epicurean, sensual part of life.
+- It's your body, your life. Do what you want to do.
+- My curiosity and my appetite for evolving as an actor is one of the main components of me still working today in the business.
+- When I feel lost and can't make a decision, I just stop and get quiet. I take a time-out.
+- I like my life. It's good.
+- The roles for women in theatre are much better than they are in film.
+- I don't know many women who can relate to Sharon Stone and the kind of movies she does. I don't know a lot of guys who can relate to Tom Cruise's movies because they're on a kind of fantastic level. I like movies I can relate to.
+- Really rejoice in being yourself. Have your own drumbeat.
+- I actually think 'Sex and the City' helped share how complicated it all is, to be a wife, a mother, and working, and a sexual being.
+- Someone recently asked what I am most proud of. The thing I'm most proud of is that I'm in my 50s and I'm still a leading lady.
+- If I'm producing, I'm not acting, and it's such a long road to get anything off the ground.
+- I'm drawn to roles because they excite me intellectually and emotionally.
+- I don't speak to my brother every week - doesn't mean I don't love him.
+- I was very close to my father. At the age of ten I wanted to do plays, and my father was very encouraging. When I applied to different acting schools, he was right there and very supportive.
+- I prefer younger men. In some ways, they are much more open to a woman being stronger and independent then some of the men my age.
+- There's a positive side to film and television, the sense of feeding into the theater... Your fans will follow you, hopefully, and be open-minded to see you play other things and experience other stories you want to tell.
+- Art is an expression of who you are. Parts that I play are my sculptures.
+- I try not to listen to the shoulds or coulds, and try to get beyond expectations, peer pressure, or trying to please - and just listen. I believe all the answers are ultimately within us.
+- I always assumed that like my mother before me, one day I would have children.
+- I don't think I'm vain... but I do like to be lit well.
+- The first professional play I ever saw was The Importance Of Being Earnest, and I just fell in love.
+- I'm a good businessman. I pay my bills. Growing up in a situation where everything counted helps.

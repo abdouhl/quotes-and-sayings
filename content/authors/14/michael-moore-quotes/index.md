@@ -1,0 +1,260 @@
++++
+author = "Michael Moore"
+title = "Michael Moore Quotes"
+quotes_len = "254"
+description = "the best 254 Michael Moore Quotes"
++++
+- North Korea has taught a great lesson to all the countries in the world, especially the rogue countries of dictatorships or whatever: if you don't want to be invaded by America, get some nuclear weapons.
+- I have never owned a share of stock in my life, and the only time I've double dipped into anything is at the snack tray.
+- As far as what I do love, I love birds; I love lavender.
+- If we didn't have Social Security, our seniors would live mostly in poverty. You'd have another 18 million people in poverty.
+- How could a guy sitting in a cave in Afghanistan, have... plotted so perfectly the hijacking of four planes and then guaranteed that three of them would end up precisely on their targets?
+- I ask all Americans with a conscience to shun anything and everything to do with the murderous state of Georgia.
+- I've read stories of slave owners who were very generous. They didn't keep them in shackles, they didn't whip the slaves, they built schools and churches for them, free housing, free food, free everything. It's wrong. No matter how nice you make it look, it's wrong.
+- The idea that cinema can be dangerous is a great idea.
+- The wealthy have never liked to pay for the labor that enriches them. Ever since slavery was eliminated, they have been trying to keep it as close to slavery as they can without violating the slave laws.
+- We as Americans believe it's OK to kill people. We believe it's OK to invade a country that had nothing to do with 9/11. We think it's OK to invade a country where we think Osama Bin Laden is and he's in the other country. So we just go in and we just kill. And we have the death penalty; we sanction it.
+- All of our political parties are bought and paid for by corporate America, Wall Street, and the wealthy interests. The Republican Party more so, but the Democrats take their share of the loot, too.
+- I certainly believe that I have no right to tell another couple whether they can or cannot be married.
+- It's a lot of hard work to do a weekly TV show. It's certainly not fun.
+- There's over a billion people on this planet that don't have access to clean drinking water.
+- Listen friends, you have to face the truth: You are never going to be rich... The system is rigged in favor of the few, and your name is not among them, not now and not ever.
+- What really went wrong is that General Motors has had this philosophy from the beginning that what's good for General Motors is good for the country. So, their attitude was, 'We'll build it and you buy it. We'll tell you what to buy. You just buy it.'
+- I've never supported this concept of going after Napster. I think the rock bands who fought this were wrong.
+- 'Champagne' and 'breathmint' are the first two words all Oscar winners hear.
+- There should be no private health insurance companies operating for profit.
+- L.A. - talk about a cruel city: Patients are forcibly removed from hospitals.
+- Part of my job is to read the paper, watch C-Span and show things that haven't been shown or were buried.
+- What I'm asking for is a new economic order. I don't know how to construct that; I'm not an economist.
+- The Iraqis who have risen up against the occupation are not 'insurgents' or 'terrorists' or 'The Enemy.' They are the revolution, the Minutemen, and their numbers will grow - and they will win.
+- Wall Street, the banks, and corporate America, has been able to call the shots here. They control our members of Congress and they get what they want.
+- WikiLeaks, God bless them, will save lives as a result of their actions.
+- A sane person would think that Wal-Mart would never carry 'Capitalism: A Love Story' because it's simply not in their best interests to inform their customers of their shady past.
+- Three of the top six documentaries of all time, grossing, are made by me.
+- All I ask is that you not be naive about how the government works when it decides to go after its prey.
+- In some states, you can vote a straight party ticket, but you can't vote for individual candidates.
+- Openness, transparency - these are among the few weapons the citizenry has to protect itself from the powerful and the corrupt... and that is the best thing that WikiLeaks has done.
+- Many criminals believe what they say is true; they could pass a lie detector test.
+- All religions teach the same basic thing, that you have to stand up for those that are considered the worst.
+- Any time you got the Pope and the Dixie Chicks against you, your time is up.
+- You need to have a relationship with what you put inside you. I don't want to get all spiritual about this, but I believe our bodies are a gift, and to deface it is disrespectful.
+- It's not surprising to me that in a country born of racial genocide, the issue of race is still an open wound on the American soul. We haven't dealt with it.
+- I still believe the lessons I learned when I was raised in a Roman Catholic household. Like, it's harder for a rich man to get into Heaven than for a camel to go through the eye of a needle.
+- It really is disgusting when a guy in a ball cap with a high school education is the one asking the tough questions.
+- I personally hold Blair more responsible for this war than I do George Bush. The reason is, Blair knows better, Blair is not an idiot. What is he doing hanging around this guy?
+- I think the NRA, they got it half-right when they say, 'Guns don't kill people, people kill people.' I change it to, 'Guns don't kill people, Americans kill people.'
+- I'm not a big believer in our copyright laws; I find them way too restrictive.
+- The Justice Department needs to investigate how Goldman Sachs was able to steer things in such a manner through their former employees in the Bush administration, so that in the end Goldman's competitors have disappeared and Goldman is left standing.
+- I say stupid white men are always the problem. That's never going to change.
+- I'm not a proselytizer. I was raised Catholic. I am a Catholic.
+- The health insurance industry does not like to pay out claims, because they don't make money. The only way they can make a profit is if they don't pay for your operation. If they pay for your operation and your doctor's appointment and your pharmaceuticals, they don't make any money.
+- No decisions should ever be made without asking the question, is this for the common good?
+- There's been almost a dozen films that have been made against me. There's actually more films made attacking me than films I've made.
+- First of all, the American people are inundated with advertisement after advertisement of you buy, buy, buy. You've got to have the latest thing. The iPad 1 isn't any good anymore, you've got to have the iPad 2. The iPhone 4, now you've got to have iPhone 4S. Now you've got to have the 5b, now you've got to have the 6c.
+- I did a filmstrip on pollution in the Davison area as my Eagle Scout project and showed it around town. Businesses who were the polluters were mad at me.
+- I'm caught up probably just as much in the consumer culture as the next person.
+- I had a newspaper in Flint, Michigan called the 'Flint Voice,' and so it was a, you know, underground, alternative newspaper that I edited and put out for about ten years.
+- For my very first movie, 'Roger and Me,' I made it as part of my deal with Warner Brothers that the four people that were evicted in that film, that Warner Brothers would house - would pay their mortgage or their rent for the next two years to give them a chance to get on their feet.
+- I did not like 'The Hurt Locker.' It's a lazy way to make a movie, frankly. I could put you on the edge of your seat quite easily, and have you feel the tension for 2 hours, if every other scene practically is, 'Should we cut the red wire or the green wire?'
+- 'Zero Dark Thirty' is a disturbing, fantastically-made movie. It will make you hate torture.
+- Four hundred obscenely wealthy individuals, 400 little Mubaraks - most of whom benefited in some way from the multi-trillion-dollar taxpayer bailout of 2008 - now have more cash, stock and property than the assets of 155 million Americans combined.
+- I'm going to guess Republicans and Democrats, liberals and conservatives, all want clean air to breathe and clean water to drink. I'm sure most people think women should be paid the same as men if they're doing the same job. I think we all want good schools for our kids. If we made that list, we actually are in agreement on more things.
+- I've been encouraging documentary filmmakers to use more and more humor, and they're loath to do that because they think if it's a documentary it has to be deadly serious - it has to be like medicine that you're supposed to take. And I think it's what keeps the mass audience from going to documentaries.
+- Filmmakers and artists always thrive during more liberal times.
+- I rallied against Clinton when he was in office. I didn't vote for him in '96. I didn't vote for Gore in 2000.
+- I have a rule: I want the pilot flying me up in the air at 30,000 feet to make more than a guy working at Taco Bell.
+- The American public believes that health care is a right and not a commodity.
+- I think that there's something in the American psyche, it's almost this kind of right or privilege, this sense of entitlement, to resolve our conflicts with violence. There's an arrogance to that concept if you think about it. To actually have to sit down and talk, to listen, to compromise, that's hard work.
+- Our laws demand that a corporation have a fiduciary responsibility with shareholders to maximize profits. They are legally required to make as much money as possible, any way possible within 'the law.'
+- I don't support the troops, America, and neither do you.
+- There's politics in all aspects of our daily lives.
+- This is the crux of the problem: because the Republicans and the right wing have been successful in almost eliminating unions, everyone else has suffered as a result.
+- I think that capitalism in general is responsible, not for the worldwide recession, but for a lot of suffering, both in the United States and around the world.
+- Democracy is not a spectator sport, it's a participatory event. If we don't participate in it, it ceases to be a democracy.
+- No 22-year-old should have to enter the real world already in a virtual debtors' prison.
+- You do not have the right to take another human's life, unless it's in strict self-defense.
+- Nobody had a credit card when I was a kid. No one had credit card debt. But these big companies and banks wanted to know how to get more money out of people - get them charging things.
+- If anything, I don't have to convince the American public that we have a broken health-care system. I think the majority of Americans since they have to go through that health-care system, already know it.
+- Should such an ignorant people lead the world? How did it come to this in the first place? 82 percent of us don't even have a passport! Just a handful can speak a language other than English.
+- People like me who grew up in a working-class town, who don't have a college education, you don't usually hear from us.
+- You can't regulate child labor. You can't regulate slavery. Some things are just wrong.
+- I'm not a pundit. I'm not an analyst. I don't want to participate in the existing debate that's going on about whether or not you should be able to have as many guns as you want to have or that guns are even the problem.
+- Somehow, I don't think Jesus came to Earth to ring the bell at the New York Stock Exchange.
+- There's a gullible side to the American people. They can be easily misled.
+- Here's what I don't think works: An economic system that was founded in the 16th century and another that was founded in the 19th century. I'm tired of this discussion of capitalism and socialism; we live in the 21st century; we need an economic system that has democracy as its underpinnings and an ethical code.
+- Television has its own award. It's called the Emmy. It's a good award. I like it. I have one. But you don't see movies like 'The King's Speech' win Oscars and then go to TV and qualify for Emmys. In documentaries, some networks have been able to game the system.
+- Clinton was a pretty good president for a Republican.
+- Most Americans are very responsible.
+- The money to fund great things and innovations and programs is gone in our lifetime; it's all gone to debt. So we won't be able to solve global warming or have the transportation that we needed for the 21st century. We should be supporting people with great ideas, but it's gone, and now it's gotta be paid back with interest to banks in China.
+- If I were a capitalist I would not give my employees health insurance with no deductible, which I do, including dental, and paid pregnancy leave. That's not called capitalism, that's called being a Christian and someone who believes in democracy, so that everyone should get a fair slice of the pie.
+- But I'm not a member of the Democratic Party. If you know anything about me, anybody who's followed me, I'm the anti-Democrat. I have railed against the Democrats for a long time.
+- Back in the late '90s, I put together a humorous newsmagazine program called 'The Awful Truth' for Bravo. We helped one guy get an organ transplant whose insurance company had refused to pay. I thought, if we could save a guy's life in a 10-minute segment on cable, what could we do if we devoted a whole movie to a whole bunch of people?
+- Now that I exist in the mainstream majority, I'm not really so controversial any more, am I? Not really news.
+- Every parent wants to do what's best for their child. Whatever I can afford, I'm going to get my kid the best education I can get.
+- I don't talk in sound bites.
+- Back in the '80s and '90s, when GM was consistently posting giant profits, they were simultaneously firing tens of thousands of workers in my hometown of Flint and across Michigan.
+- My films don't have instant impact because they're dense with ideas that people have not thought about. It takes a while for the American public to wrap its head around some of the things I'm saying.
+- There's a gullible side to the American people. They can be easily misled. Religion is the best device used to mislead them.
+- I was kind of a strange child. My parents knew early on that something must have been wrong with me. I crawled backwards until I was two, but had Kennedy's inaugural address memorized by the time I was six.
+- I mean if politics was my main motivation I would be doing politics. But I'm a filmmaker.
+- If you reduce the guns and the ammo, you'll reduce the murders.
+- When the women's liberation movement began, when people began protesting against the Vietnam War, civil rights movement, at the beginning of those movements, the majority of the country was not with them, did not believe in the basic principles of any of those philosophies.
+- Halliburton is not a 'company' doing business in Iraq. It is a war profiteer, bilking millions from the pockets of average Americans. In past wars, they would have been arrested - or worse.
+- I - honestly, I don't know of a worse lie one could tell other than a lie to take a country to war. To make up things to take people to war. That's just got to be the most obscene, immoral thing to do.
+- I believe that when you provide information to people, they become less fearful and they will engage more in their democracy if they are empowered with information.
+- If you're in a diabetic or prediabetic state, it's good to have medication to go on for a period of time. But simply by making the changes - get your sleep, 35 grams of fiber and a half-hour walk - your cholesterol will come down, your sugar will come down, and your blood pressure will come down. Only the minority of people can't control it.
+- Ask anyone on Social Security if their check comes on time every month. Like clockwork. And it comes through the so-called dilapidated U.S. mail. My dad's check literally will come on the same day every month. The government has been quite good and efficient at creating a number of systems.
+- I watch way too much C-SPAN.
+- Middle class jobs prevent crime and violence.
+- I'm actually a fairly conservative person. I live a very conservative lifestyle.
+- Democrats have a history of backing away, backing down.
+- All art is about appealing to emotion.
+- The entire business world has figured out how to make huge buckets of money without hiring us to work for them.
+- I assume everything I'm saying in an email or saying on the telephone is being looked at.
+- I like America to some extent.
+- When I make a film, I'm not doing it purely for political reasons. If I just wanted to do that, I'd run for office.
+- It turns out Cuba has this incredible healthcare system for a very poor country.
+- I have enormous respect for anyone who would offer to sacrifice their life to defend my right to live. Is there any greater gift one can give another?
+- People of my age who went to college, go into college, you know what it cost back then? Nothing or next to nothing. At the most, you had to work at Dairy Queen during the summer and that would pay for your college education.
+- I remember the first time I received a cassette tape of a band called The Clash. I became an instant fan of the Clash and then bought their albums after that and went to their concerts and gave them my money... but I first got it for free.
+- Since 9/11, the Bush administration has used that tragic event as a justification to rip up our constitution and our civil liberties. And I honestly believe that one or two 9/11s, and martial law will be declared in our country and we're inching towards a police state.
+- A newspaper is a public trust, and we will suffer as a society without them. It is not the Internet that has killed them. It is their own greed, it is their own stupidity, and it is capitalism that has taken our daily newspapers from us.
+- I'm used to my films having little effect on making the world a better place.
+- Clearly I am a person who suffers from a lack of ego.
+- The majority of Americans, the ones who never elected George W. Bush, are not fooled by his weapons of mass distraction.
+- Nobody has been arrested on Wall Street for the crash of 2008. They're not paying their fair share of the taxes. And now with the Citizens United case of the Supreme Court, they get to buy politicians up out in the open.
+- I think movies are too long.
+- A lot of people on Capitol Hill don't want to talk to me.
+- I was taught from a very early age that it was probably the most American thing you can do is to question what's going on and to try to fix things that you see that aren't right. I believed that as a young person, and I believe that today.
+- Everybody gets sick; everybody has had a problem with insurance or the prescription drugs they're supposed to be taking or an elderly parent who needs care.
+- I have been aspiring to write some sort of literature for a long time.
+- There is nowhere in the four Gospels where Jesus uses the word 'homosexual.'
+- If the Founding Fathers could have looked into a crystal ball and seen AK-47s and Glock semi-automatic pistols, I think they would say, you know, 'That's not really what we mean when we say bear arms.'
+- We have to see that we're a part of each other, and we have to take care of each other. The reason why they have universal health care in Canada and Britain, these other places? Because they believe if one suffers, everybody suffers.
+- I'm a millionaire, I'm a multi-millionaire. I'm filthy rich. You know why I'm a multi-millionaire? 'Cause multi-millions like what I do.
+- I'm a religious fanatic? Yes, I am, actually.
+- I'm very blessed and fortunate that people want to go see my movies.
+- We all need to be huge supporters of the theatrical documentary.
+- Occupy has to continue as a bold, in-your-face movement - occupying banks, corporate headquarters, board meetings, campuses and Wall Street itself. We need weekly - if not daily - nonviolent assaults right on Wall Street.
+- We're never gonna get rid of crazy people. They've been around for thousands of years - they'll continue to be around; they'll continue to do horrible things.
+- One thing I've learned about death threats is that they're great, actually. You should actually be grateful for death threats because those who are taking the time to threaten you that way are getting it out of their system. That's really what they rant to do, yell at you, and they want to threaten you.
+- Capitalism is an organized system to guarantee that greed becomes the primary force of our economic system and allows the few at the top to get very wealthy and has the rest of us riding around thinking we can be that way, too - if we just work hard enough, sell enough Tupperware and Amway products, we can get a pink Cadillac.
+- We live in a time when fictitious election results elect a fictitious president. We live in a time where we have a man sending us to war for fictitious reasons.
+- I don't like to sit around whining about the corporate media, how they control everything, own everything. We already know that.
+- Any time you've got both the Pope and the Dixie Chicks against you, you're not long for the White House.
+- Greed has been with human beings forever. We have a number of things in our species that you would call 'the dark side,' and greed is one of them. If you don't put certain structures in place or restrictions on those parts of our being that come from that dark place, then it gets out of control.
+- One day there'll be no need for me. I'm actually hoping to put myself out of business.
+- Under Reagan came the idea of putting your pension plan in the stock market, which wasn't a guaranteed pension.
+- I'd feel bad if I had you come into a theater and you leave feeling ripped off.
+- Bush's presidency is revisionism-proof. We're going to be recovering from it for the rest of our lives.
+- I think there are few things more patriotic than taking the time to make your country a better place.
+- I drive an American car. It's a Chrysler. That's not an endorsement. It's more like a cry for pity.
+- I want Americans to realize that we are the owners of this country, and that one person can make a difference.
+- For a documentary filmmaker, I do very well.
+- The American media wants to pump you full of fear.
+- I don't 'support the troops' or any of those other hollow and hypocritical platitudes uttered by Republicans and frightened Democrats. Here's what I do support: I support them coming home. I support them being treated well.
+- The media love to cover black people on the front page. After all, when you live in a society that will lock up about 30 percent of all black men at some time in their lives and send more of them to prison than to college, chances are a fair number of those black faces will end up in the newspaper.
+- Transporting Americans is and should be one of the most important functions our government must address.
+- Librarians in America do something like a couple of billion dollars worth of book business every year.
+- I'll tell you who doesn't have any personal responsibility. Companies like General Electric and others who pay absolutely no income tax.
+- My dad was an autoworker, my mom was a clerk. Until I was thirty-five, I never made more than fifteen thousand dollars a year.
+- Contrary to what those in power would like you to believe so that you'll give up your pension, cut your wages, and settle for the life your great-grandparents had, America is not broke. Not by a long shot. The country is awash in wealth and cash.
+- There's not democracy in the workplace. I mean, through most of our daily lives, the idea of democracy is fairly nonexistent. And I think things work better when the people who have to work with whatever it is we're working with have a say in how it's working.
+- I get called 'controversial' all the time.
+- I made 'Bowling for Columbine' in the hope the school shootings would stop and that we would address the issue of how easy it is to get a gun in the United States, and tragically, those school shootings continue.
+- And realising that humour is the most powerful way to make a political statement and say the things that you want to say. And it's not used enough, at least not in the U.S.
+- I'm tired of this discussion of capitalism and socialism; we live in the 21st century, we need an economic system that has democracy as its underpinnings and an ethical code.
+- If the guy out in the woods with the Michigan Militia is a real estate negotiator, instead of some crackpot, and has a normal life, that's unnerving. You don't want to think it's as normal as the guy next door, hedging his lawn. It's easier to demonize or separate them off from 'us.'
+- If we say, 'The government sucks,' we're kind of saying that we suck.
+- Every fact in my films is true. And yet how often do I have to read over and over again about supposed falsehoods?
+- I take much of the attacks and the criticism toward me as being very class-based, but as Americans we don't like to acknowledge that reality.
+- There's nothing pure about capitalism.
+- Before there were unions, there was no middle class.
+- There's no violence coming from the Occupy protesters.
+- The movie theater is never going away. If that was a case why are there still restaurants? People still have kitchens in their home!
+- The purpose of art actually is, in many cases, to make you feel quite uncomfortable. Or at least to go to that place that's already of discomfort inside of you and tap into that.
+- Yeah, I think of what I do as a work of journalism. It's more like the op-ed page, though. These are my opinions. My point of view. The opinions are mine and I let you make up your own mind.
+- Capitalism is an evil, and you cannot regulate evil. You have to eliminate it and replace it with something that is good for all people and that something is democracy.
+- Documentaries are a form of journalism.
+- Sometimes it's important to vote - you know, to make a statement, to make a point; certainly, many of us who were involved in the Nader campaign in 2000 felt that way.
+- If your bank took bailout money, take your money out of that bank and put it in a credit union. Credit unions are owned by the people who have their money in the credit union.
+- If there ever is a struggle, making a good movie will always supersede the need to be noble.
+- The vast majority of the guns in the U.S. are sold to white people who live in the suburbs or the country. When we fantasize about being mugged or home invaded, what's the image of the perpetrator in our heads? Is it the freckled-face kid from down the street - or is it someone who is, if not black, at least poor?
+- A common denominator among big guys like me who are trying to take care of our health is that we're not getting enough sleep.
+- They said VCRs would kill the movies; it didn't.
+- I like BuzzFeed, and I understand the pressure that online reporters are under. But I think everyone agrees that, despite all the awesome kitten gifs, they're still obligated to be skeptical of government officials and ask the right questions.
+- I think I'm in the majority of Americans. I believe that I am in the mainstream of middle America.
+- I'm from the Midwest, and guys like me don't go on diets. We don't do well on spinning classes.
+- It should be a crime to make a profit off somebody being sick.
+- Building up the arms did not cause the fall of Eastern Europe.
+- The products built in the factories of G.M., Ford and Chrysler are some of the greatest weapons of mass destruction responsible for global warming and the melting of our polar icecaps.
+- I think if people who are attacking me or against me, if they would just watch one of my films, they would - they may not agree with me politically on all the things I'm saying. But they will know at the end of the film that I love this country and that I have a heart. And they'll have a good laugh throughout the film.
+- The motivation for war is simple. The U.S. government started the war with Iraq in order to make it easy for U.S. corporations to do business in other countries. They intend to use cheap labor in those countries, which will make Americans rich.
+- This life is a gift, and to reject that gift or abuse that gift is not human and not worthy of us.
+- One of the basic tenets of the working class is you want to get out of the working class.
+- Republicans are relentless and they're smart, too - they're not all dumb - and on Election Day, they'll be up at five in the morning.
+- Capitalism and democracy are the opposite of each other. Capitalism is a system that guarantees that a few are going to do very well, and everybody else is going to serve the few. Democracy means everybody has a seat at the table. Everybody.
+- When you come from the working class and you do well enough whereby you can provide a little bit better for your family, get a decent roof over their head and send them to a good school, that's considered a good thing.
+- I do believe that we are to love our enemies and do good to those who persecute you. I believe that there is power and strength in that.
+- You can't debate satire. Either you get it or you don't.
+- The days of using my name as a pejorative are now over. The right wing turned me into an accidental spokesperson for the liberal, majority agenda.
+- My dad was an assembly line worker at AC Spark Plug, which was a division of General Motors, and his job was to build and then inspect the little spark plugs as they came off the line.
+- The upper 1 percent, the people down on Wall Street, the corporate executives, they're the people that control this economy.
+- We should be licensing everybody with a gun. I have to have a license for my dog. I have to have a license for my car. If you're going to do my hair later you have to have a license... We don't require a license to own a firearm?
+- You know we are flawed people, so if someone is going to make a movie about me, they don't have to make it up. My real flaws are much funnier.
+- We should all spend some time of our life doing service to our country. To me, I would give up a couple of years.
+- You think history is going to remember the United States as a great democracy? No, they're going to think of us as a nation that became addicted to war. They'll call us warlords.
+- We live in the time where we have fictitious election results that elects a fictitious president. We live in a time where we have a man sending us to war for fictitious reasons.
+- I've always felt so grateful that I dropped out of school, that I never had to do a thesis. I wouldn't know how to organise and structure myself to film so that B follows A and C follows B.
+- Most liberals I know were for invading Afghanistan right after 9/11.
+- I don't want to do anything that violates my own personal code of ethics and morals.
+- I don't even like DVDs. Honest to God, in my lifetime, I might have rented a dozen DVDs, literally gone into a video store and rented a dozen DVDs in my lifetime, because I don't like to see movies that way. I like to see them on the big screen.
+- I'm a highly flawed individual, as we all are, and because I was raised by Jesuits, I'm constantly, 'What is it about me and what I can do to be better?'
+- I was a good little boy and a good student. I've never been arrested.
+- I've always been sort of confused by the trajectory my life has taken. I was supposed to be on an assembly line building Buicks.
+- I was one of the first 18-year-olds in the United States elected to public office right after 18-year-olds got the right to vote back in the early '70s. I ran for the Board of Education.
+- When I'm shooting a movie, I'm always in an invisible theater seat. I respect the fact that people have worked hard all week and want to go to the movies on the weekend and be entertained.
+- As you have fewer and fewer voices in a democracy, in a free society, it's not good to limit the number of voices.
+- There's nothing inherently or patently wrong with anybody who does well, works hard, earns a living, betters themselves. I'm not against any of these things. It's about how you make that money, and then what you do with it.
+- Nobody was talking about healthcare until 'Sicko' came out.
+- Comedy is a great slayer of rogues in power.
+- Oprah's got good politics, she's got a good heart, and she'll have us all up Jazzercising at six in the morning. This cannot be a bad thing, and reading a book while we're Jazzercising. So America would be better off if Oprah were president.
+- I and you and everyone else has to be a political activist.
+- Most people don't see themselves as Democrats or Republicans. They see themselves as Americans.
+- A majority of this country opposes this war, a majority of this country never voted for this administration.
+- Politicians never keep all their promises.
+- I'm not a pundit. I'm not an analyst.
+- I don't want to be pigeonholed into the guy who's against everything.
+- My employees, there's no deductible in your health care. No deductible, absolutely not. You get paid sick days, as many as you need, personal days.
+- The left, liberals, believe that if we just have more gun control laws, all the problems are going to go away. Well, I don't think so. I don't think so. I think - yes, it will, it will be reduced. There's no question about that.
+- Every night I watch the nightly news. It's funded by the pharmaceutical companies. Virtually every ad is a drug ad. They get their say every night on the nightly news through advertising.
+- I'm the kind of person that believes there's a part of your voting that has to be purely on principle, and there's a part that has to be on strategy.
+- I went without health insurance until 'Roger & Me,' basically - from about age 20 till about age 35. With 'Roger & Me,' I joined the Directors Guild and the Writers Guild, and since then I've had excellent health care managed by the union.
+- This book, 'Stupid White Men,' has sold now over four million copies worldwide. Probably about half of that may be in the U.S. and Canada, and the rest, overseas.
+- Capitalism is against the things that we say we believe in - democracy, freedom of choice, fairness. It's not about any of those things now. It's about protecting the wealthy and legalizing greed.
+- Healthcare should be between the doctor and the patient. And if the doctor says something needs to be done, the government should guarantee it gets paid for.
+- How do you deliver democracy to a country? You don't do it down the barrel of a gun. That's not how you deliver it.
+- I don't compromise my values and I don't compromise my work. That's why I've been kicked from one network to the next: I won't give in.
+- Diets are a scam.
+- If you're white, and you really want to help change things, why not start with yourself?
+- Because I have an opinion, I have become public enemy number one to the Fox News Channel and the right wing.
+- If you believe in equality, if you believe in standing up for the rights of all, especially for people most affected by bigotry and discrimination, then you have no choice but to be present and accounted for when it comes to standing up for gays and lesbians in our society.
+- My film about Bush didn't prevent his reelection.
+- You know, an opinion can be right or wrong.
+- Army Specialist Bradley Manning deserves a medal, not prison.
+- New York City has become a place where it's not easy for the working class to even live.
+- The No. 1 cause of bankruptcies is medical bills.
+- Capitalism would have never let me be a filmmaker, living in Flint, Michigan with a high school education. I was going to have to make that happen myself.
+- Capitalism is an evil, and you cannot regulate evil.
+- If one job doesn't pay all the bills, don't worry. You can get another one and another one and another one.
+- I respect the fact that people have worked hard all week and want to go to the movies on the weekend and be entertained.
+- There's only one movie theater in the entire city of Detroit. The entire city has one open movie theater, and it is in the - it is in the General Motors headquarters complex.
+- I'm interested to see what happens with Fox News and phone hacking. I really can't believe it just happens in Great Britain. Because really, who cares about just hacking phones over there?
+- In America, we don't, in daily discourse, use the words 'capitalism' or 'socialism.' They've been kind of nonexistent words, I would say, amongst the general public.
+- No one is entertained by economics.
+- The 'fiscal cliff' is a ruse, an invention by the right and the rich, to try and keep their huge tax breaks.
+- I don't believe that the Bush Administration had something to do with September 11th. I do believe that there were a lot of warning signals, but I don't think they were ignored on purpose - Bush just wanted to go to the ranch for a month.
+- I think as a filmmaker my first contribution would just be to make a good movie that people would love to see and leave the theatre charged, with a sense of excitement.
+- White people scare the crap out of me.
+- I tell everybody on the first day of making a movie that if anyone's here to further their career, they should leave. I'm gonna make the movie in such a way that we won't have a career when this movie comes out. Because the people who hold the moneybags are not going to want to share any of that money with us to make the next movie!
+- We reward people for making money off money, and moving money around and dividing up mortgages a thousand times over, selling it to China... and it becomes this shell game.

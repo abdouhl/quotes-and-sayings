@@ -1,0 +1,91 @@
++++
+author = "Tom Wolfe"
+title = "Tom Wolfe Quotes"
+quotes_len = "85"
+description = "the best 85 Tom Wolfe Quotes"
++++
+- The first newspaper I worked on was the 'Springfield Union' in Springfield, Massachusetts. I wrote over a hundred letters to newspapers asking for work and got three responses, two no's.
+- If most writers are honest with themselves, this is the difference they want to make: before, they were not noticed; now they are.
+- It's fortunate that I am a writer, because that has helped me understand the properties of words. They are what have made life complex. In the battle for status in the animal kingdom, power and aggressiveness have been all-important. But among humans, once they acquired speech, all that changed.
+- I would vote for Bush if for no other reason than to be at the airport waving off all the people who say they are going to London if he wins again. Someone has got to stay behind.
+- Radical Chic, after all, is only radical in Style; in its heart it is part of Society and its traditions.
+- It is very comforting to believe that leaders who do terrible things are, in fact, mad. That way, all we have to do is make sure we don't put psychotics in high places and we've got the problem solved.
+- My entire career, in fiction or nonfiction, I have reported and written about people who are not like me.
+- The surest cure for vanity is loneliness.
+- I can remember that on the shelves at home, there were these books by Thomas Wolfe. 'Look Homeward Angel' and 'Of Time and the River.' 'Of Time and the River' had just come out when I was aware of his name. My parents had a hard time convincing me that he was no kin whatsoever. My attitude was, 'Well, what's he doing on the shelf, then?'
+- I do novels a bit backward. I look for a situation, a milieu first, and then I wait to see who walks into it.
+- I had always looked down on sociology as this arriviste discipline. It didn't have the noble history of English and history as a subject. But once I had a little exposure to it, I said, 'Hey, here's the key. Here's the key to understanding life and all its forms.'
+- I have never knowingly, I swear to God, written satire. The word connotes exaggeration of the foibles of mankind. To me, mankind just has foibles. You don't have to push it!
+- It helps to know from a very early age what you want to do. From the time I was five years old, I wanted to be a writer, even though I couldn't even read. It was mainly because I thought of my father as a writer.
+- So many people in this country have a dual loyalty. They have loyalty to America, but they also are determined to have their parade up Fifth Avenue once a year... a Cuban parade or a Puerto Rican parade - many other countries. So they really don't forget.
+- I used to enjoy using dots where they would be least expected, not at the end of a sentence but in the middle, creating the effect... of a skipped beat. It seemed to me the mind reacted - first!... in dots, dashes, and exclamation points, then rationalized, drew up a brief, with periods.
+- If I had my choice, I would be writing by typewriter. I worked on newspapers for 10 years. I typed with the touch system, and unfortunately, you can't keep typewriters going today. You have to take the ribbons back to be re-inked. You have to - it's a horrible search to try to find missing parts. So I went to the computer.
+- In the 1930s, all the novelists had seemed to be people who came blazing up into stardom from out of total obscurity. That seemed to be the nature of the beast. The biographical notes on the dustjackets of the novels were terrific.
+- People complain about my exclamation points, but I honestly think that's the way people think. I don't think people think in essays; it's one exclamation point to another.
+- In the U.S., the term 'general aviation' means its exact opposite, the way 'public school' does in England. An English public school is private and, on top of that, exclusive. Likewise, general-aviation airports in the U.S. are for everyone but the general public.
+- Love is the ultimate expression of the will to live.
+- Most people don't read editorial pages. I think I must have been 40 before I even looked at an editorial page.
+- The notion that the public accepts or rejects anything in modern art is merely romantic fiction. The game is completed and the trophies distributed long before the public knows what has happened.
+- There is no motivation higher than being a good writer.
+- God, newspapers have been making up stories forever. This kind of trifling and fooling around is not a function of the New Journalism.
+- I used to go through the dictionary looking for unusual but nontechnical words. At one time, I thought the greatest word was 'jejune' and I would throw it into every piece because something about it appealed to me.
+- I don't think journalists should talk about whom they're voting for.
+- I wrote a number of pieces in the year 1966 that were so bad that, although I'm a great collector of my own pieces, I have never collected them.
+- We are now in the Me Decade - seeing the upward roll of the third great religious wave in American history.
+- I'm a great believer in outlines.
+- That's mostly what the Internet is, just passing the time. But unfortunately you are dealing with words that can have meaning.
+- The greatest promotion I ever had on a newspaper was when 'The Washington Post' suddenly promoted me from city-side general assignment reporter to Latin American correspondent and sent me off to Cuba. Fidel Castro had just come to power. It was a very exciting assignment, but also very serious.
+- A cult is a religion with no political power.
+- To me, novels are a trip of discovery, and you discover things that you don't know and you assume that many of your readers don't know, and you try to bring them to life on the page.
+- Miami is a melting pot in which none of the stones melt. They rattle around.
+- I've never met an American who wanted to build an empire.
+- By the 1950s The Novel had become a nationwide tournament. There was a magical assumption that the end of World War II in 1945 was the dawn of a new golden age of the American Novel, like the Hemingway-Dos Passos-Fitzgerald era after World War I.
+- You never realise how much of your background is sewn into the lining of your clothes.
+- My idol is Emile Zola. He was a man of the left, so people expected of him a kind of 'Les Miserables,' in which the underdogs are always noble people. But he went out, and found a lot of ambitious, drunk, slothful and mean people out there. Zola simply could not - and was not interested in - telling a lie.
+- 'No Hands' art goes straight back to Warhol. He was the first to use elves.
+- I think of evolution as a myth, like the Norse myths, the Greek myths - anybody's myths. But it was created for a rational age.
+- On Wall Street he and a few others - how many? three hundred, four hundred, five hundred? had become precisely that... Masters of the Universe.
+- Even hostile parodies admit from the start that the target has a distinct voice.
+- At the outset, at least, all three groups had something else to recommend them, as well: They were headquartered 3,000 miles away from the East Side of Manhattan.
+- There was a time in the 1930s when magazine writers could actually make a good living. 'The Saturday Evening Post' and 'Collier's' both had three stories in each issue. These were usually entertaining, and people really went for them. But then television came along, and now of course, information technology... the new way of killing time.
+- The modern notion of art is an essentially religious or magical one in which the artist is viewed as a holy beast who in some way, big or small, receives flashes from the godhead, which is known as creativity.
+- Nonfiction is never going to die.
+- Working on newspapers, you're writing to a certain length, often very brief pieces; you tend to look for easy forms of humor - women can't drive, things like that. That's about the level of a lot of newspaper humor. It becomes a form of laziness.
+- By the time I received my doctorate in American studies in 1957, I was in the twisted grip of a disease of our times in which the sufferer experiences an overwhelming urge to join the 'real world.' So I started working for newspapers.
+- I still believe nonfiction is the most important literature to come out of the second half of the 20th century.
+- The 'New York Honk,' as it was called, was the most fashionable accent an American male could have at that time, namely, the spring of 1963. One achieved it by forcing all words out through the nostrils rather than the mouth. It was at once virile... and utterly affected. Nelson Rockefeller had a New York Honk.
+- I have no idea who coined the term 'the New Journalism,' or when it was coined. I have never even liked the term. Any movement, group, party, program, philosophy or theory that goes under a name with 'new' in it is just begging for trouble, of course.
+- Vietnam was really an idealistic thing to stop the spread of communism, which, incidentally, it did. It was a pretty costly way to do it, but it achieved its goal.
+- Everyone is taught the essentials of writing for at least 13 years, maybe more if they go to college. Nobody is taught music or tap dancing that way.
+- I hate stories in which a person has an occupation and you never see him working at it, like all those marvelous Cary Grant movies where he's a surgeon, and you never see him in the operating room.
+- To me, the great joy of writing is discovering. Most writers are told to write about what they know, but I still love the adventure of going out and reporting on things I don't know about.
+- Television reporters aren't really called reporters. They are called researchers. And that's really all they are.
+- There are some people who have the quality of richness and joy in them and they communicate it to everything they touch. It is first of all a physical quality; then it is a quality of the spirit.
+- The attitude is we live and let live. This is actually an amazing change in values in a rather short time and it's an example of freedom from religion.
+- It's not just that reporting gives you a bigger slice of life, gives - lends verisimilitude to what you are doing - it's that it feeds the imagination.
+- There has been a time on earth when poets had been young and dead and famous - and were men. But now the poet as the tragic child of grandeur and destiny had changed. The child of genius was a woman, now, and the man was gone.
+- Once you have speech, you don't have to wait for natural selection! If you want more strength, you build a stealth bomber; if you don't like bacteria, you invent penicillin; if you want to communicate faster, you invent the Internet. Once speech evolved, all of human life changed.
+- I have discovered that for me - now, maybe it doesn't work for everybody - for me, it is much more effective to arrive at any situation as a man from Mars than to try to fit in.
+- We are always acting on what has just finished happening. It happened at least 1/30th of a second ago. We think we're in the present, but we aren't. The present we know is only a movie of the past.
+- This is the artist, then, life's hungry man, the glutton of eternity, beauty's miser, glory's slave.
+- 'Back to Blood' really took it out of me. While I was writing it, I just never went out anywhere, except to the gym.
+- American government is like a train on a track. You have the people on the left shouting; you have the people on the right. But the train's on track. They just keep ploughing ahead.
+- The newspaper is, in fact, very bad for one's prose style. That's why I gravitated towards feature stories where you get a little more leeway in the writing style.
+- Fortunately, the world is full of people with information compulsion who want to tell you their stories. They want to tell you things that you don't know. They're some of the greatest allies that any writer has.
+- Frankly, these days, without a theory to go with it, I can't see a painting.
+- I read somewhere that writers, as they get older, become more and more perfectionist. Which may be because they think more highly of themselves and they worry about their reputations. I think there's some truth to that.
+- Philip Roth is a fabulous writer, but he pretty much stays within his own life. He's so good - I mean, practically anything I've ever read of his I've really enjoyed. He just has tremendous talent. But I think he should have given himself a break and gone deeper into the society.
+- 'Why' is a question no animal can ask, because both the question and answers require speech. Have you ever seen an animal shrug?
+- Not long after I published my first book, I quickly found I was terrible at being interviewed.
+- No machines will ever truly fully figure the brain out, because the brain's performance is constantly altered or else constrained by this inanimate, rogue artifact you can't control, namely, speech.
+- I wrote 'The Painted Word,' about modern art, and was denounced as reactionary. In fact, it is just a history, although a rather loaded one.
+- I was sitting in my office when someone called to tell me two light planes had collided with the World Trade Centre. I turned on my television; before long, there was this procession of people of all kinds walking up the street. What I remember most was the silence of that crowd; there was no sound.
+- I never forget. I never forgive. I can wait. I find it very easy to harbor a grudge. I have scores to settle.
+- The whole conviction of my life now rests upon the belief that loneliness, far from being a rare and curious phenomenon, peculiar to myself and to a few other solitary men, is the central and inevitable fact of human existence.
+- Driving a stock car does not require much handling ability, at least not as compared to Grand Prix racing, because the tracks are simple banked ovals and there is almost no shifting of gears. So, qualifying becomes a test of raw nerve - of how fast a man is willing to take a curve.
+- If a conservative is a liberal who's been mugged, a liberal is a conservative who's been arrested.
+- I found a great many pieces of punctuation and typography lying around dormant when I came along - and I must say I had a good time using them.
+- My father was the editor of an agricultural magazine called 'The Southern Planter.' He didn't think of himself as a writer. He was a scientist, an agronomist, but I thought of him as a writer because I'd seen him working at his desk. I just assumed that I was going to do that, that I was going to be a writer.
+- Nerds... the 'nerd' has never been precisely defined, thanks to the psychological complexity of the creature. The word has connotations of some level of intelligence. The typical nerd is a male with intelligence but no sense of giving it a manly face.
+- There is no spectacle on earth more appealing than that of a beautiful woman in the act of cooking dinner for someone she loves.
+- When I went to high school, my most passionate desire was to be a professional baseball player. But something within me told me that was not going to happen.

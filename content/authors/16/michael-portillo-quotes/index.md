@@ -1,0 +1,106 @@
++++
+author = "Michael Portillo"
+title = "Michael Portillo Quotes"
+quotes_len = "100"
+description = "the best 100 Michael Portillo Quotes"
++++
+- I look back on my schooldays with a warm glow of nostalgia.
+- Like so many other grammar schools that flourished in Britain before they were abolished through a mix of ideology and political folly, Harrow County was a fiercely competitive institution, where all boys were taught to strive for excellence. It was precisely because of this demanding regime that results were so good.
+- I enjoyed dressing in Indian clothes. I loved those long, single-piece garments that come down to the knees and the white pyjamas you wear underneath.
+- The advantage of trains over planes is that there is much less hassle. You can get up from your seat and stroll about; you're more likely to meet people, and, particularly if you're making a long journey, you can actually see the terrain.
+- Again and again, people get more conservative as they get older.
+- America, to me, is this enormous contrast between the heady idealism of founding fathers such as Thomas Jefferson, who said, 'All men are created equal,' and the reality that he was himself a slave owner.
+- For all those who experienced it, the Spanish Civil War was devastating.
+- A parliamentary democracy that has developed its delicate balances over hundreds of years will not give up its sovereign rights.
+- Here in Britain, we can get a little bit snobby about American history. Yes, their history is not quite as long as ours. But it isn't all that short, either.
+- I have never served on a jury because MPs were exempted - or banned, I think.
+- A wood carving of Quixote on his nag Rocinante graced my childhood home.
+- They say travel enables you to encounter your opposite. If this is true, I think I may have met mine in a shepherd's hut in Transylvania.
+- There's only one person who knows me - and that's me.
+- I have liked trains since I was a boy, although I was never a train-spotter.
+- The two biggest legacies of the Raj are the unification of India and the English language. Moreover, without the railways, India would not have been connected and could not have become one country.
+- One enjoyable consequence of being in the Scouts was that, at the start of each new school year, we had to camp out in tents on the school playing fields.
+- If the Tories and Lib Dems fought together, they'd keep their ministerial offices and limousines, and continue to do the right things for the U.K. But too many backbenchers in both parties yearn for Opposition, preferring hallucinogenic ideological purity and political irrelevance to the mucky reality of governing.
+- When you are being interviewed by Jeremy Paxman, you are the prisoner in the dock: assumed guilty unless proved innocent, under intense pressure, on the defensive. There are very few people who can look relaxed in that position.
+- If, like me, you're interested in history, Egypt is a place of wonders. It's the land of many civilisations, including Greek, Roman, Christian, and Muslim.
+- To be in the media is to be in the wings. Being in politics is being on the stage.
+- It's not as if I've ever been to prison or been close to going to prison. The closest I've got is knowing people who have been in jail - after all, I was a member of Parliament - and visiting them there during their sentence.
+- We in Britain do not have the same capabilities as the United States, but we are members of the United Nations Security Council. And we take our obligations and duties deriving from that very seriously.
+- Freedom matters.
+- A vocation is a noble thing and not to be subverted by the whims of politicians.
+- I do rather rejoice when people come up to talk to me about railways.
+- People wear extraordinarily bright colours in India.
+- For good or ill, communism transformed the globe, but how many of us realise the crucial role played by a Manchester public library - Chethams, the oldest library in the English-speaking world - in the honing of that ideology?
+- My father was possessed of an extraordinary romantic idealism, an unwavering belief in certain principles. He was always talking about the past. Always. Of course, it has a powerful effect on me.
+- In any family, the joy of a wedding must be tinged with a little anxiety. So many marriages fail. Luckily, people often get over such traumas. But for the Royal Family, marriages carry the gravest dangers.
+- My grandfather, who was always keen to promote living artists, staged an unprecedented exhibition of Peploe's works at Kirkcaldy in 1928.
+- Whenever I'm in Edinburgh, which I visit often, I always try to hop on a train to Kirkcaldy to visit the art gallery, where my grandfather was convenor for 36 years, to revisit the marvellous paintings from my childhood - as do other family members.
+- I feel opera is an expression of artistic excellence. To do it is expensive, as there's a requirement for an orchestra, good voices, excellent sets, and the fact that productions generally have only short runs. But I believe it's something we ought to achieve as a nation.
+- From Brighton to Bradford, from Suffolk to Somerset, I have explored some remarkable buildings and structures that, in different ways, have helped to shed light on the way modern Britain has developed.
+- I don't mind being a bit of a showman.
+- Three letters send a chill down the spine of the enemy: SAS. Those letters spell out one clear message. Don't mess with Britain!
+- I was brought up in a house where I was so aware of a life that had been broken by politics and conflict.
+- I can never thoroughly appreciate meals on ships because, away from land, I feel my autonomy is restricted.
+- Sleep deprivation over quite a short period of time can make you paranoid.
+- My eyes are at different levels, and my right ear's a bit bigger than my left - which showed up particularly in school photographs - so my mother used to call me her 'little Picasso.'
+- I love a good meal on a train, and if I'm travelling on a discount ticket, the challenge is to eat more than the price of the fare.
+- The truth is a good thing.
+- Non-fictionalised accounts of horrific accidents, bereavement, and the outrages of officialdom tend to move us deeply.
+- I don't think I've got a thick skin, but I've not felt particularly humiliated by the things which people think I would have felt humiliated by, such as losing my seat in 1997 and not being elected leader in 2001. In the second case, I felt relieved.
+- I'm nothing to do with the Conservative Party; I'm not a member of the Conservative Party. I stopped being a member shortly after I stopped being a member of Parliament and I took up a career as a broadcaster.
+- Personal responsibility matters.
+- King Edward VIII was forced to abdicate because he was determined to marry a divorced woman. As a result of that decision, the Queen's father, George VI, was obliged to lead the country through a war that threatened its survival, with all the personal pain portrayed in 'The King's Speech.'
+- Travelling the railways of Europe with a century-old guidebook can be disconcerting: fares, food, and drink seem shockingly expensive compared with what they were; trains and paddle-steamers run to unexpected timetables (assuming they're still running at all); and not only states but whole empires have been wiped from the map.
+- It's a dilemma for every modern parent - how to keep children safe on social media without monitoring their every post.
+- Conservatives are wary of change. We have respect for things that have lasted a long time and have been proved to work. When things need changing, we should make the changes with respect to all the reasons why those things worked originally as well as the reasons why amendment is necessary.
+- Oppositions usually say ridiculous things and must embarrassingly then ditch untenable positions.
+- People don't understand it, but the most intense occasions in the House of Commons were the ones I enjoyed most. When events could go either way and you could find yourself out of a job by the end of the day, those were the times when you were most on a high.
+- Music turns the world upside down.
+- Anyone, they say, is entitled to change his mind. Not about the defence of Britain, you're not. You either feel it in your heart, in your bones, in your gut, or you don't.
+- In some of the estates, there are generations of people who have been without work, so the environment and the example passed down generations is the normality of being without work.
+- I have that normal male thing of valuing myself according to the job I do.
+- No restaurant, however brilliantly situated, can give you the constantly changing views that you can see from a railway. Revolving restaurants at the tops of tall buildings try to compete, but spinning around is no substitute for speeding along.
+- One of the reasons that Thatcher promoted home ownership is that it promoted responsible citizens with a stake in society. But another reason was that those people would tend to be Conservative.
+- For someone like me, making a documentary - I don't kid myself. There's no influence at all. What I do is entertainment. I would even say much the same about the column I write in 'The Sunday Times.'
+- I don't know why, but I think the eating of food is hugely enhanced when you do it on a train. Even a simple steak and chips, when the world is rushing past outside, can take you to heaven.
+- I have Spanish ancestry and, indeed, speak the language, up to a point.
+- We must have a welfare system that we can afford, which will mean giving greater attention to directing the welfare program toward its primary purposes and its intended beneficiaries.
+- British-built railways in India helped the British to make money and maintain order and, as a by-product, served to unite the country, ripe for independence.
+- The late 1960s was another time and another world.
+- For 'Portillo's Hidden History of Britain,' I arranged to meet men and women who were witnesses to history - ordinary people who were caught up in extraordinary events.
+- Leaving politics was a good thing. I was spared a miserable Tory government where I might have ended up as leader.
+- My favourite British line is the West Highland line. It was built across moorland where no one had succeeded in building a road. So everything in that area is there because of the railway line.
+- I hope I succeed in demonstrating that you may equally find compelling and significant narratives - stories that alter or add to our understanding of history - in unprepossessing places: a Victorian sewer system; a Cold War bunker; derelict hospitals.
+- Our situations... are very different. The nature of our politics is different. I don't deny, though, that political cycles, which are observable in the United States, are sometimes observable here.
+- The true symbolism of every facet of 'Guernica' can only be guessed at, but we do know that it haunted Picasso.
+- If you are a fan of my BBC series 'Great Continental Railway Journeys,' you'll probably not be surprised to learn that one of my great aspirations is to travel on Egypt's railways.
+- Television brings with it two dangerous hazards: the worship of celebrity and the blurring of reality and fantasy.
+- My grandfather was a great advocate of Scottish art at a time when Scottish artists struggled to be taken seriously. They were not highly regarded, but he fought for them, befriended them, and championed them.
+- I worry how I look.
+- Wagner had a terrific understanding of politics. In 1829, he was a Marxist revolutionary who wanted to bring down the establishment. He hated religion and churches, which he said enslaved people. But he later developed different views that put art at the centre of the life of the state.
+- Ask anyone where they were when they heard of Diana's death, and they won't hesitate, because nobody can forget. Along with 9/11, it remains the most poleaxeing public event, news so shocking it made me shake, and drove everything else from my mind for days.
+- I think a lot of people of my generation have a certain guilt that, from the Sixties onwards, we started taking package holidays abroad and neglected our own country.
+- Before my teens, my contemporaries were reading Tolkien and were absorbed by his works, but try as I might, I could not be drawn in, perhaps as something in me resists the epic, medieval-feeling fantasy.
+- As a presenter, you have to speak with artificial energy and enthusiasm.
+- As a politician, I spent a lot of time in Washington and New York, cities that are familiar to Europeans.
+- You never quite know what you do in life that leaves a seed behind that grows into an oak tree.
+- People are obviously very interested in travel, including travel in Britain.
+- My Scottish grandfather, John W. Blyth, was a man addicted to paintings. A manufacturer of linen, he spent all his surplus money on pictures.
+- I'm vain.
+- My own father was a refugee from the Spanish civil war in the 1930s, later going on to become a BBC radio producer after World War II.
+- People have said to me, 'Oh, you are much nicer making documentaries than you were in politics.' So I should be. If you are making a documentary, you are having fun. You are not under any pressure, normally.
+- I am better at politics than I am at anything else.
+- Few people have heard of John Hawkshaw, the engineer responsible for Brighton's sewers, but he also built the Severn Tunnel and parts of the London Underground system. Such figures, largely forgotten now, conceived an infrastructure that was perfect in its fine detail and intended to last for a century or more - as it has.
+- Of all the places I've visited in my life, Egypt has been the most fascinating. I've explored almost the whole country: Cairo and the Pyramids, Alexandria, the temples of Luxor and Karnak, the Valleys of the Kings and the Queens and the Nobles.
+- There's much about the British Raj which I think is disreputable. It was rapacious; it was a sort of kleptocracy, and it was also racist. Indians were not treated as equals.
+- Some people are born to trains, and some have trains thrust upon them. Fortunately, I can be included in this latter category.
+- What is it about trains that makes food taste so good? Some of my happiest memories are of prolonged lunches between St. Moritz and Zurich, Bordeaux and Paris, and even between Coimbra and Salamanca.
+- British-built railways in India helped the British to make money and maintain order; but, as a by-product, they served to unite the country, making it ripe for independence.
+- The stakes are high in politics.
+- Politics hasn't changed, but I've changed.
+- 'Bradshaw's' is a lovely device for the time-travelling television presenter. I just hope that people buying it aren't doing so with the intention of plotting a tour of 21st-century Europe. They'll find quite a lot has changed since 1913.
+- Pablo Picasso first entered my consciousness when I was a boy of about eight years old.
+- Were we ever to find ourselves living under a totalitarian regime, place no faith in the mercy of your fellow citizens.
+- I'm a man with a great political future behind me.
+- What's extraordinary about Cobra Mist, and so much of what went on at Orford, was that the public were completely oblivious to it.
+- If a prince marries a foreign princess, one to the manner born, he is being snobbish and old-fashioned. If he chooses a Diana or a Fergie, glamorous outsiders, they may never adapt to the restrictions of being Royal, with calamitous results.

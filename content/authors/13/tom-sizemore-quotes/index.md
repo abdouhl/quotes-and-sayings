@@ -1,0 +1,67 @@
++++
+author = "Tom Sizemore"
+title = "Tom Sizemore Quotes"
+quotes_len = "61"
+description = "the best 61 Tom Sizemore Quotes"
++++
+- I think being a movie star is about whether an audience can watch you and care about you.
+- Why am I the way I am? Well, I used to be different.
+- I'm not really rebellious. People think I am, but I'm not.
+- I didn't come to Hollywood to drink or get high, and I don't want to be considered a cool actor - I want to be a great actor.
+- If someone messes with me, I'm going to mess with them.
+- Although I get so much fan mail from Great Britain, tell me, am I more famous there than Michael Madsen?
+- I wanted to get on with my life when I was 16. I knew I wanted to be an actor. I wanted to get out of Detroit.
+- I like Michael Bay a whole lot. And Jerry Bruckheimer. But I love Ben Affleck as a person, as a director, as an actor.
+- I try to stop and take a 10-second break and ask myself before I do something: One, is this going to improve my life for my children, or two, will there be a potential for something to go wrong here?
+- I really desire a partner.
+- I weighed 190 when I got to boot camp, I came out at 178. I ate only the beans and tomato sauce.
+- I'm a very fortunate actor. I'm blessed to be the position I'm in right now.
+- I was a wayward kid, a rambunctious and angry teenager, but I found acting as a fifteen-year-old.
+- Whatever it is, if you draw, you paint, you're a carpenter, you play football, the more you do it, you're a journalist, the more stories you write, the more people you interview and navigate your way through these different personalities to get your story, the better you're going to get at it. Acting's no different.
+- I know a lot about the Battle of the Bulge, and a lot about World War II from 'Saving Private Ryan.'
+- Katherine Heigl was a movie star. I thought she was going to be one, and it was fun to watch this young actress getting better every day.
+- Fatherhood didn't change me in the beginning very much.
+- I used to be very rigid because I just wanted to get through it. Now, if I think a scene should go a certain way and it goes another, I'm able to go that new way with ease.
+- Some actors try to play parts and do things they can't do. Being funny is one of them. Being funny's hard.
+- I'm a big baby. I'm not tough at all.
+- Being alone is scarier than any boogey man and the reason why I don't choose to see Horror movies as a rule.
+- 'Argo' is a work of art.
+- I have an idealistic approach to acting. I want to be great at it, but you can't be great if the scripts are not there and the director doesn't know what he's doing.
+- I am a guy's guy. I'm all boy.
+- I read for 'Reservoir Dogs,' and it got down to me and Buscemi, and Quentin couldn't make up his mind. I really wanted that part, but Buscemi is great in that. I also got really close on 'Gladiator,' but Ridley Scott decided on Russell Crowe, who's perfect in it.
+- I'm essentially a momma's boy with a good education.
+- Acting is never done. We're trying to keep it real and make sure that you're entertained and it seems unrehearsed.
+- I want to do 'Company of Heroes 2,' if they do it. It depends on how the movie performs, but they hope it will perform well. They have a franchise on their mind, and if it's a franchise, man, I'm going to be a very happy person.
+- I like to touch things. In my house I have a lot of velvet drapes and thick, lush couches.
+- I have thin skin. I'm not a tough guy.
+- My family is very discreet. White-shoe, you know?
+- I was an anomaly because my father was a Harvard man, and he came from a family of poor people.
+- We get second chances. We get 19th chances.
+- I don't know if people know that Sylvester Stallone is one of the most decent gentlemen that I've ever met. He's the most consistent friend I've ever had.
+- I was a tough kid. I don't punch people anymore.
+- A lot of acting, and I believe this, is either you can do it or you can't.
+- It was dog food. Beef livers with onions in a can. You open it up and it looks like vomit.
+- I don't know what to say about it except Tom Hanks is a great person, a serious person; he's dissatisfied in a very likeable way, in a very discreet way, and Steven Spielberg is similar in his discretion and drive. But Spielberg is calm. He's this driven filmmaker and visionary. He really is.
+- I know that 20 years from now if anyone asks me one question, it will be, 'What was it like to be in Saving Private Ryan?
+- I'm trying to reestablish my career and do great work and give my kids the life they deserve.
+- My wife and I are a team, and it's good for my work because I'm interested in working from a stable base.
+- You must have to want it so badly, if there is any way you can live without it, get out of it. Being an unsuccessful actor is like having a skin disease. Make sure your passion is not misplaced.
+- When I was a teenager, you wanted to go to the movies. Go and see 'Mean Streets,' go and see 'The Conversation,' go and see 'Taxi Driver.'
+- I was coddled, and there is a permissiveness that sometimes goes on with people who are successful as actors.
+- I'm from Detroit. I was from a kind of violent neighbourhood.
+- I never hurt anybody; I only hurt myself and my family. I never did anything mean to anybody, I was just mean to myself.
+- I am not as crazy as people think.
+- Although my mother and father were both completely legit, it was all around me, this crime and licentiousness.
+- I have tried to make decisions to work with great directors, with good scripts, and that makes the pickings real slim.
+- I may be a vain person, but I'm not a vain performer.
+- It's just acting. I take acting seriously but up to a point.
+- I'm afraid of the dark. I'm not kidding.
+- Most movies aren't any good.
+- I wouldn't want anything to do with me.
+- Temptation is impossible for me to resist... Come on. This is Hollywood. It's in the job description.
+- I shot a couple of movies in jail, but I was never in jail.
+- It used to be the case that studio executives like Robert Evans, Darryl Zanuck, and David Selznick would put aside money for what they wanted to be great movies regardless of whether they would perform well with the box office.
+- I read a lot. I am an inveterate reader. I always have a novel going.
+- I used to blame my problems on other people. But my moment of clarity, if you want to call it that, came when I was looking in the mirror one day and just burst into tears. It wasn't just that I looked bad, it was that I knew my problem was me.
+- I play tough guys in movies and behaved like one in front of the press because I thought that was what a man did.
+- Actors have to make you believe that it's happening for the first time and all that jazz and make it human and at the same time entertain you.

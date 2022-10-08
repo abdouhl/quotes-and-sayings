@@ -1,0 +1,26 @@
++++
+author = "Mark Harmon"
+title = "Mark Harmon Quotes"
+quotes_len = "20"
+description = "the best 20 Mark Harmon Quotes"
++++
+- If other people think I'm okay looking, that's great, but I don't see it myself. When I look in the mirror, all I see is a bunch of fake teeth and football scars.
+- 'Let's Get Harry' was where I met Bob Singer and worked with him for the first time, and then 'Reasonable Doubts' was the second time, and there was a thing after that called 'Charlie Grace' that was the third time. I liked working with Bob. A nice man and a good partner.
+- I'm just beginning to direct. For all intents and purposes, this is the first time for me.
+- I'm thankful to get the opportunity to direct. I hope I don't mess it up.
+- Some people say it's scarier to direct the people you work with; not me, I'm a team guy.
+- I'm not likely to be attracted to characters I've already done. I have to be almost frightened by the possibility of taking it on. Over the years, I realise I must enjoy walking that edge; I keep doing it.
+- St. Elsewhere was certainly a great show.
+- I think if you get asked to do this, then that's called doing your homework, and I try and do it.
+- At Chicago Hope they have a technical staff that works real hard to make that O.R. as realistic as possible.
+- I'm in the business to push it. I'm not likely to be attracted to characters I've already done.
+- I like this job - most days I have a chance to make breakfast and take the kids to school or to read 'em a bedtime story. It's almost like a normal life.
+- I used to hang out in my dad's workshop on weekends. Later, when I was starting out as an actor, I became a roofer and a framer to make money. But what I really enjoyed was the finished work. I like the longevity.
+- I don't have regret about things I've done that are successful or not successful or what people perceive or don't know or whatever. I just know for me it had to be the right choice at the time. Sometimes that choice is just about getting a job.
+- When I was in acting classes early on, there were so many people in these classes who were doing great work, and you'd just look at them and say, 'Wow, I hope to someday be like that.' And yet these people never worked. You never saw them.
+- I'm not a big 'me' guy. I'm a 'we' guy. It's the way I was raised.
+- I don't care who's No. 1 on the call sheet or how big my trailer is. I care about the work. I don't care who gets the laughs. I just care that the laugh comes.
+- How many times have you been on the freeway and had someone fly by you at 100 mph then end up two cars ahead of you at the off ramp? What's the point?
+- People think what you are doing is real, on a TV show.
+- I was raised with the idea of maximum effort: as long as you could look in the mirror and say, 'I gave it everything I had,' it was OK. But if you gave it less, that would disgrace you.
+- It's a lot easier to do good work when you have good words to say and work with good people.

@@ -1,0 +1,64 @@
++++
+author = "Mario Batali"
+title = "Mario Batali Quotes"
+quotes_len = "58"
+description = "the best 58 Mario Batali Quotes"
++++
+- Twelve-piece cookware sets for ninety-nine bucks are routinely hawked on late-night TV - often by friends of mine. But with a mere five pieces, you can do whatever you like - slay the dragon and then cook its tenderloin in the style of the duke of Wellington, if you want to.
+- Although the skills aren't hard to learn, finding the happiness and finding the satisfaction and finding fulfillment in continuously serving somebody else something good to eat, is what makes a really good restaurant.
+- Spaghetti is love.
+- To eat the boiled head of a pig sliced like salami is very strange. It may seem cutting edge, but it's actually a lot older than any of the other traditional salami.
+- Passion is what adds so much value to life. And if you think about the things that you do, there's so much juice potential for them if you do it.
+- I am happiest when I am with my wife, Susi, and our two boys exploring and loving something for the first time.
+- Day-old bread? Sadly, in America a lot of day-old bread just becomes nasty. Italian day-old bread, not having any preservatives in it, just becomes harder and it doesn't taste old. What I would warn people about is getting bread that's loaded with other things in it, because it starts to taste old.
+- We need to figure out a 'harvest system' to collect the produce that stores don't put out for customers to buy because it's not perfect looking. Frankly, the stuff left to rot in the storeroom is more beautiful to me than the perfect carrot. I'm a gnarly carrot kind of guy.
+- Keep in mind that in 1975, when you became a cook, it was because you were between two things: you were between getting out of the military and... going to jail. Anybody could be a cook, just like anybody could mow the lawn.
+- I really want to be a rock star.
+- I was at a party, and some squiggly looking dude with a bow tie came up and said, 'How'd you like to be on TV?' Turns out he was the programming guy at the Food Network. They had me come into the office, and I did a 'Ready, Set, Cook' with Emeril Lagasse, I believe.
+- If you're going to buy pasta, you should buy dry pasta. If you're going to make it you can make the real thing, but you shouldn't buy fresh pasta.
+- When you taste things in the right order, sometimes they taste so much different than if you taste them out of order. Not that there's a right order, like by rule, but just like in a thoughtful way that makes sense.
+- The hardest part of anything is making a dish consistently great - you order it seven years later, if it's still on the menu, and it's still as good as what you remember.
+- Finishing food is about the tiny touches. In the last seconds you can change everything.
+- The difference between 'Molto Italiano' and 'The Babbo Cookbook' is that the ingredient lists in 'Molto' are about half or even a third the size. In 'Babbo,' they are very long, they are very real. That's exactly how we make them in the restaurant.
+- I just signed to do my next book with Ecco Press, a new primer or encyclopedia. This will be my take on what classic Italian cooking is.
+- You have to be generous if you want to spend your time making someone else dinner. Even if you're charging, you're still giving.
+- As far away as you can get from the process of mechanisms and machinery, the more likely your food's going to taste good. And that - that is probably the largest thing I can hand to anybody is let your hands touch it. Let them make it.
+- The Gulf Coast has the potential to create a culinary raw ingredient paradise that smart cooks can capitalize on.
+- My kids and I make pasta three days a week now. It's not even so much about the eating of it; they just like the process. Benno is the stuffer, and Leo is the catcher. They've got their jobs down.
+- My wife Susi and my kids quite simply are the most fun of all my friends.
+- All the information you could want is constantly streaming at you like a runaway truck - books, newspaper stories, Web sites, apps, how-to videos, this article you're reading, even entire magazines devoted to single subjects like charcuterie or wedding cakes or pickles.
+- You know, when you get your first asparagus, or your first acorn squash, or your first really good tomato of the season, those are the moments that define the cook's year. I get more excited by that than anything else.
+- Everyone makes pesto in a food processor. But the texture is better with a mortar and pestle, and it's just as fast.
+- If you want your kids to listen to you, don't yell at them. Whisper. Make them lean in. My kids taught me that. And I do it with adults now.
+- Michigan is my antidote to Manhattan. This is where I come to relax.
+- I come from an Italian family. One of the greatest and most profound expressions we would ever use in conversations or arguments was a slamming door. The slamming door was our punctuation mark.
+- There are pockets of great food in Spain, but there are also pockets of very mediocre food in Spain, and the same in Morocco and the same in Croatia and the same in Germany and the same in Austria.
+- Working at the Food Bank with my kids is an eye-opener. The face of hunger isn't the bum on the street drinking Sterno; it's the working poor. They don't look any different, they don't behave any differently, they're not really any less educated. They are incredibly less privileged, and that's it.
+- I like cast iron coated with enamel for longevity and forgiveness if I happen to take my eyes off the prize while pouring Chianti.
+- You have to live life to its full chorizo.
+- I put hibiscus flower in every cup of tea I have. It's sweet, sexy, and cleansing.
+- The kitchen really is the castle itself. This is where we spend our happiest moments and where we find the joy of being a family.
+- Jimmy Fallon and I play regularly at the Bayonne Golf Club in Jersey. He's eighteen holes of fun. Any time we play he has moments of brilliance, but also moments of utter catastrophe.
+- Unlike curing cancer or heart disease, we already know how to beat hunger: food.
+- The passion of the Italian or the Italian-American population is endless for food and lore and everything about it.
+- Shop often, shop hard, and spend for the best stuff available - logic dictates that you can make delicious food only with delicious ingredients.
+- Look at cookbooks with your kids and ask them what sounds good.
+- Protein has been intensely over-represented on the plate. Now, the garden should be the main drag for main courses.
+- Just because you eat doesn't mean you eat smart. It's hard to beat a $1.99 wing pack of three at a fast-food restaurant - it's so cheap - but that wing pack isn't feeding anyone, it's just pushing hunger back an hour.
+- I got some media coverage for using the tail, the ear, the oink.
+- The Hamptons are usually filled with what I had hoped to leave behind in New York City.
+- As they say in Italy, Italians were eating with a knife and fork when the French were still eating each other. The Medici family had to bring their Tuscan cooks up there so they could make something edible.
+- Bologna is the best city in Italy for food and has the least number of tourists. With its medieval beauty, it has it all.
+- When I was in college, I used to write little ditties and short stories and poetry for my friends. Writing a book is another thing. It is so much different from my traditional day of dirty fingernails and greasy hair and hot pans.
+- I can teach a chimp how to make linguini and clams. I can't teach a chimp to dream about it and think about how great it is.
+- The way the bankers have kind of toppled the way money is distributed, and taken most of it into their own hands, is as good as Stalin or Hitler.
+- I obsess everyday about everything. Not only about what we do well but what we can do better... In the end, the only reason I am motivated to do what I do is for the hedonistic pleasures of the table.
+- Cookbooks have all become baroque and very predictable. I'm looking for something different. A lot of chefs' cookbooks are food as it's done in the restaurants, but they are dumbed down, and I hate it when they dumb them down.
+- Are we Darwinists - where we live and let live? Or are we nurturing as a society? There has to be a standard of living that we decide to support.
+- My family makes these vinegars - out of everything from grapes to peaches and cherries. We go through the whole process with the giant vat and drainer, label them, and give them as Christmas presents.
+- When you cut that eggplant up and you roast it in the oven and you make the tomato sauce and you put it on top, your soul is in that food, and there's something about that that can never be made by a company that has three million employees.
+- My last meal? The food would be much less significant than the company.
+- We would load up the yellow Cutlass Supreme station wagon and pick blackberries during blackberry season or spring onions during spring onion season. For us, food was part of the fabric of our day.
+- Close your eyes and place your finger on a map. Wherever it lands, that's the theme of the evening. So many times we settle for routine dishes. This forces you to try new cuisines.
+- There's a battle between what the cook thinks is high art and what the customer just wants to eat.
+- In America, I would say New York and New Orleans are the two most interesting food towns. In New Orleans, they don't have a bad deli. There's no mediocrity accepted.

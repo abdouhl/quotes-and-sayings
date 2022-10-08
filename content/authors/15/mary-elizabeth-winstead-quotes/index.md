@@ -1,0 +1,41 @@
++++
+author = "Mary Elizabeth Winstead"
+title = "Mary Elizabeth Winstead Quotes"
+quotes_len = "35"
+description = "the best 35 Mary Elizabeth Winstead Quotes"
++++
+- I come from a pretty scientific family. My sister is a neurologist and my brother is an engineer.
+- Obviously, we're all going to die at some point. Whether or not we are fated to die in some way I think is debatable. I just don't know which side to debate.
+- I always wanted to perform in some capacity since I was a kid - I was a ballerina, then a singer before acting.
+- I'm a fan of films in general; I mean, I don't think I've ever considered myself specifically a horror fan even though I do enjoy horror films, find them really entertaining.
+- I think a lot of fans immediately go, 'ugggh' when they hear that someone is doing a prequel or a remake, they sort of assume the worst sometimes.
+- I love playing characters that are strong, when there's physicality involved.
+- I think when I was 12, when, like, 'Titanic' and 'Romeo + Juliet' came out, my friends and I made our own Leonardo DiCaprio fan club. I definitely had a thing for him.
+- Going forward, I would love to work with directors like Rian Johnson and Joss Whedon; people like that who are doing big films but do have really independent voices. That's kind of what I want to focus on, is always working with people with at least an independent point of view, even if it's not an independent film.
+- I've always been a huge fan of 'The Shining,' and 'Rosemary's Baby' is one of my favorite films of all time.
+- I don't have phobias. I'm pretty laid back. Nothing really bothers me. I can handle things pretty well.
+- I think for most actors, because we sort of have to tell ourselves this, we always say, 'Oh, it doesn't mean anything to win an Oscar!' It certainly isn't a goal that you want to set yourself up for, because then you're just setting yourself up for disaster. Because how many people actually win an Oscar?
+- Kensington Market is a must visit place in Toronto.
+- Anytime I'm given scripts where I'm sort of the fantasy girl, it's hard for me because that's not real and I don't think it's a great thing to put out there consistently.
+- I don't think people understand when you say you are making a micro-budget film that you are getting paid no money.
+- When you are playing someone who is dealing with issues on a really personal level, if you don't bring your own issues into the equation, it's not going to feel really personal to the people watching it.
+- I do get starstruck working with Bruce because even though he is such a nice guy he's a real movie star. I grew up watching his movies it is just really hard to get used to just being around Bruce Willis. I mean, he's Bruce Willis!
+- I'm a huge Paul Thomas Anderson fan.
+- I think, like a lot of actors and people in the arts who are struggling to get where they want to be, you spend a lot of time sitting around grumbling about how you're not doing the kind of work you really want to do. But there's a lot of complacency in that, too.
+- I think there need to be more female action heroines out there that are intelligent and not overly masculine and things like that so I'd love to find - and real too. Not necessarily the superhero perfect archetype of what an action hero is represented as a lot of times. I would love to find that kind of action heroine role to play.
+- I was always telling myself I could handle a more complex role, I could handle something bigger and more interesting than the work I was doing. But I wasn't demanding that of myself. At a certain point, I realized it was never going to come my way unless I started taking more control of it. That's what I realized I had to do.
+- Usually a lot of moviemaking is boring.
+- I'm a really cautious person, so I don't let myself get into near-death experiences. I'm not into the idea of skydiving or anything.
+- I can't say I was much of a gamer growing up or that I am now, but I'm certainly part of that culture or it's part of, you know, the sort of time that I grew up in.
+- You don't have to play masculine to be a strong woman.
+- I've been performing since I came out of the womb. I've been dancing and singing since I was a toddler. Acting seemed like a natural progression from that.
+- I think since I'm not particularly well-known as myself, it's funny all the different perceptions people have of me. Like, if someone's only seen me in 'Death Proof,' they think I'm sort of a ditzy girl who says stupid things and wears revealing outfits all the time.
+- My first paying job was guest starring in 'Touched By An Angel' when I was 12. It was very exciting. I couldn't believe you got free food all day and people were so nice to you.
+- I don't have any premonitions. I don't have any supernatural powers. I just have a typical woman's intuition, and I go with that.
+- But as an actor you do want to challenge yourself and step outside what you have done in the past and that what I like to do, I like to jump around and try different things and stretch myself.
+- I can remember when 'Pulp Fiction' came out. I was, like, 10 years old. But I remember the impact that it had.
+- I have a lot of different traits to my personality, depending on who I'm around, and what the dynamic in the situation is.
+- I think thinking about becoming an adult, and having to face up to your problems and face up to your insecurities, is difficult for everybody.
+- Sometimes, with directors, you have to take what they say and translate it in your head, into something that makes sense to you, because you're speaking two different languages.
+- I acted in theater and I took film classes when I was 12 and just obsessed over it. I loved it and spent hours and hours in the film studio learning and watching.
+- I love anybody who's willing to stick to their own vision, their own voice, who's not easily swayed by money or by financers who are going to tell them what they should do.

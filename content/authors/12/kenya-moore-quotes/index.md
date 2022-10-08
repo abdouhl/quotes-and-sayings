@@ -1,0 +1,106 @@
++++
+author = "Kenya Moore"
+title = "Kenya Moore Quotes"
+quotes_len = "100"
+description = "the best 100 Kenya Moore Quotes"
++++
+- When you have a history with me of being disrespectful, spiteful, and unapologetic, then you will be shown the nearest exit to the left.
+- I'm a talented producer with a unique skill set and strong vision.
+- I never said I was not dramatic.
+- I admit my pet peeve is waiting on someone. I pride myself on being on time.
+- I made history being crowned the second black woman to win Miss U.S.A. and I was fifth place in The Miss Universe pageant.
+- When Miss Williams was crowned Miss America in 1983, she opened the door for Black women around the world to achieve immeasurable dreams the same way Hattie McDaniel did as the first Black woman to ever win an Academy Award.
+- God has blessed me so much in my life. A testament to one of his blessings is that he gave me the courage to live my dreams, to step outside the box and be brave, bold, and often irreverent, but most of all he made me resilient.
+- If my friend were going through a divorce, I would counsel her not to publicly bash her ex. Marriages do end, feelings do change, and people grow apart. Such is life. We are imperfect and unpredictable.
+- I shoot straight from the hip and do not play games.
+- Men will come and go from your life.
+- I am an uninhibited, off-the-cuff, wild card who likes to enjoy life.
+- The truth always comes to light.
+- I've worked hard my entire life from the age of 14.
+- There are varying degrees of shade. There is funny shade, warning shade, tea shade, and mean girl shade.
+- We often want the world to think we are strong and everything is perfect, when the reality is sometimes we are hurting and need a shoulder to cry on or just compassion or empathy.
+- I make no apologies for my quirky sense of humor, my personal challenges, my embarrassing moments, my messiness, and deep personal issues I've shared with the world. I have kept it 100% real... Real crazy at times, but always real.
+- You can fix a lot of things, but you cannot fix stupidity.
+- I've been blessed and will continue to live my best life.
+- Love or hate me, like or dislike me, laugh at me or cry with me, I have always shown you who I really am.
+- I'm a consummate professional and was always taught being on time is being early.
+- People really should examine themselves to determine why they are so hateful, cruel, and ignorant.
+- My family, friends, and true fans who know me and my heart know that I love beautiful, confident women and have always encouraged them to live their dreams.
+- I only speak on FACTS!
+- I thank those activists such as Martin Luther King, Jr., Rosa Parks, Malcolm X, and others. They risked - and sometimes lost - their lives in the name of freedom and equality.
+- Some women never tell anyone of their pain and suffering.
+- I'm self-made.
+- Intimacy, in my opinion, is when you are vulnerable with someone, you share secrets, are open to love, and you take care of their emotional well-being.
+- My Aunt Lori is my mother's sister and has always been a mother figure to me. She is smart, driven, successful, and kind.
+- I can't look when my blood is drawn and I hyperventilate when I see a needle. I hate it.
+- A ring doesn't define me. Call me a hopeless romantic, but I'd rather be unmarried or in a loving relationship than be in an arranged marriage or with someone who acts as though they can't stand me half the time.
+- You can only be successful in life when you are real.
+- One never knows why God puts someone in your life.
+- Real men stay out of their women's business and they don't engage in repugnant hostile actions or words toward a woman whether they know, like, or dislike her.
+- I will never apologize for being me.
+- I am particularly fond of the late President Nelson Mandela. His speeches and courage changed my life and how I see myself. Mandela changed minds, changed lives, and changed the world.
+- Life is about growth and that is sometimes painful.
+- I can't allow someone to evoke negative emotions when they are no longer a part of my life.
+- We are more powerful standing in unity than in division.
+- I, particularly, have a penchant for any charity that supports women and helps young girls thrive.
+- Actual queens are dignified, beloved, regal, and gracious, and don't walk into a room with their noses in the air.
+- In my world, a friend is someone who tells you the truth even when it hurts and keeps it 100% real with you at all times.
+- I know how it feels to initially keep something special private because miserable and judgmental people really don't want to see you happy.
+- Friends comfort you in the time of need, offer sound advice and are a sounding board, are forgiving and nonjudgmental, perhaps most of all, show you compassion, care, and are sensitive toward you.
+- A real man doesn't need to drag a woman through the mud for the sake of appeasing his wife.
+- You never know how your blessings will come or from whom.
+- Historically speaking, my actions speak louder than any words.
+- I always start off being nice to anyone I first meet.
+- Being from Detroit, I often went to the roller skating rink. I can skate backwards, forwards, and even twirl on skates, LOL!
+- When life happens and results in loss, pain can manifest itself as anger.
+- I encourage all people to teach our young girls to value the things that one cannot take away from you.
+- I love to laugh and I will never take myself too seriously.
+- There will be moments when you disagree or cross a line and say or do something offensive or hurtful to someone you truly care about.
+- I never want to see anyone suffer for any reason.
+- I've been through a lot of pain in my life, but I strongly believe that without that pain I would not know love.
+- Being fake will never get you anywhere.
+- Once my grandmother's Alzheimer's condition worsened, I was always nervous to get calls from my Aunt Lisa who is her daughter that I was raised with.
+- You can only call real friends to help you move!
+- You cannot operate independently when you have a lifetime partnership and commitment with someone.
+- I acknowledge I have a pattern of falling for men who are emotionally unavailable, physically unavailable in terms of distance, or categorically unavailable with respect to time or where they are in life.
+- I'm a prankster and I love to laugh and have fun.
+- We are all culpable for our actions. I own up to mine.
+- I've never needed a man to pay my bills or buy me things.
+- I'm a task master.
+- What I will NOT do is pretend someone isn't present who is. I believe that is why I am so vocal and confrontational when there is a problem, because I will not ignore a problem and or people. It actually takes more energy to physically ignore someone.
+- I have always apologized when I feel I have been wrong.
+- All domestic violence stories break my heart.
+- My dad always speaks HIS truth. Sometimes it can be off-putting, polarizing, and misunderstood but underneath it all has a heart of gold and would do anything for his family.
+- I love it when people criticize me for inquiring or commenting on someone's marriage when I'm not married.
+- I hate liars.
+- No real or decent man verbally attacks a woman.
+- When I commit to something, I put my heart and my soul into it. That's whether I'm working on my own projects in development or for someone else.
+- I'm truly overwhelmed by the beauty of the land, the culture, and the historical significance of Egypt.
+- Married men don't get their own apartments 'to escape' their lives with their wives.
+- The facts are men, women, children, gay, lesbian, transgender, old, young, wives, husbands, black, white are all affected... the face of domestic violence has no one identity.
+- I do not condone violence on any level.
+- Halle Berry is and will always be one of the most beautiful women in the world.
+- I don't know of, have never met, or ever dated any man with one damn eye!
+- Thank God for my real friends. I don't know what I would do without them.
+- Friendships are reciprocal.
+- I have never had any animal growing up, never had a hamster, bird, dog, or cat.
+- If there is anyone a married woman would want around their husbands, it would be me. I don't want any married man, never have, never will.
+- There's no other city like New York in the world; I loved our life there.
+- I have never lied on anyone to disrepute or sully their reputation for the sake of revenge.
+- I've made it no secret that one of my idols is Vanessa L. Williams, the first Black woman to be crowned Miss America. She is a friend, mentor, and inspiration not only for me, but for millions of women around the world.
+- A friend is someone you can trust who isn't just your friend when the cameras are rolling or when you're successful.
+- Clearly, a dog is not a child and can never be mistaken as one.
+- I didn't get married to quit.
+- There are children suffering, even dying from being bullied.
+- I have never had any issues with falling in love, dating, sustaining long-term relationships, or attracting great men in my life, who have loved me unconditionally.
+- My heart goes out to anyone suffering a loss... be that physical, emotional, or financial, etc.
+- I love a man who makes his woman the center of the universe.
+- L.A. has great business opportunities for my film and TV production company and acting career, but it can be a very lonely place.
+- I can fall on my face at times, but I get right back up, dust myself off, laugh, and keep it moving. I never take things or myself too seriously in my personal life.
+- I don't want to fight at home. I want to be able to talk; I want to be able to rationally discuss things.
+- I'm the shade queen and no one throws shade better than me!
+- I wear my heart on my sleeve and I am very reactionary.
+- A REAL man would never lead a woman on, try to humiliate or hurt them, or try to intimidate them once you have broken up for the sake of more camera time or fame.
+- It's not easy for everyone to expose themselves and be vulnerable.
+- We fight people daily for respect, for our rights and for our dignity.
+- Since birth, my mother made the decision at age 16 to pretend she never had me. She has never spoken to me. Even if present in the same room with other people and family, she pretends that I simply don't exist. She pretends I'm invisible.

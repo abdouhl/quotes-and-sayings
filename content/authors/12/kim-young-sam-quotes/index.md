@@ -1,0 +1,16 @@
++++
+author = "Kim Young-Sam"
+title = "Kim Young-Sam Quotes"
+quotes_len = "10"
+description = "the best 10 Kim Young-Sam Quotes"
++++
+- In my day, the president ruled with authority before the law, but now all that is lost.
+- No doubt it was better to have become president than not.
+- I feel very sorry for the one or two North Korean defectors who were caught by Chinese police while entering South Korean or foreign embassies in Beijing, but their arrest drew the whole attention of the world.
+- The blood and sweat shed by United States and United Nations troops proved to be the prime mover behind the realisation of freedom throughout the post-war period.
+- The stark reality facing us today is that without the labour reforms, workers will get neither the income nor jobs in the face of cut-throat global economic competition.
+- I don't think the current regime of South Korea will deal actively with the issue of North Korean defectors.
+- To Koreans on the other side, we care about your freedom.
+- It's very certain that North Korea is developing nuclear weapons for offensive purposes. They don't need nuclear weapons to defend their own country.
+- Once a major military confrontation occurs, North Korea will definitely be annihilated.
+- All of North Korea is a jail.

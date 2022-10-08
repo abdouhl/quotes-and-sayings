@@ -1,0 +1,102 @@
++++
+author = "Alison Sudol"
+title = "Alison Sudol Quotes"
+quotes_len = "96"
+description = "the best 96 Alison Sudol Quotes"
++++
+- In my mind, I'm still that kid who gets affected by other people's music.
+- I think everyone has their own path.
+- My heart gets tight and it's almost like my soul gets congested if I'm not making music.
+- I was a teenager with a lot of strangeness in me that I didn't know how to express. I was trying hard on the outside to be very normal and fit in, but inside I was a big weirdo. Thank God that little weirdo persisted, otherwise I would be so sad.
+- A boy I adored when I was 19 gave me the 'Emigrante' album by Orishas. Definitely not my normal taste, but I still kind of love it.
+- In L.A. you can be quite isolated, but in London you can ride the Tube and are right in the thick of humanity and every type of person that you can imagine is passing by.
+- As a person life has always been a bit of a challenge for me and I have spent so much of my early years in fear and I think that making music makes me want to be more courageous.
+- When you're vulnerable and lost and then suddenly somebody is kind to you and gives you love and gives you tenderness and takes care of you in some way, that creates a huge indebtedness. From there, the likelihood that you're going to follow them anywhere is much higher.
+- If you're going to learn how to ride a bike as an adult, do it somewhere where there's no people in the middle of the countryside. Don't do it where people are born on bikes basically.
+- I love the clean elegance of cream and black.
+- My architectural education is way, way incomplete, but if you're in a beautifully designed space, it can change the way you see and the way you feel. The same way great movies and great music can immerse you, so can a space.
+- Singing has an impact on the human body.
+- Percussion is so good for me!
+- I have a huge love for architecture.
+- I actually wanted to be an architect when I was a kid, but I did a solid geometry course where we had to build a geodesic dome out of toothpicks, and mine came out looking like an alien space station. I threw it against a wall and gave up.
+- I felt brave when I sang and could put into lyrics what I couldn't tell anybody else.
+- How many women have been in a mental institution because they've been called crazy when they're just not allowed to be honest or be who they are?
+- I'm a big cinephile. Love, love, love films.
+- I'm, like, the most insane Wes Anderson fan - his films are pretty much my inner landscapes. I just love him to pieces.
+- If I'm in a social situation where I'm triggered, I go into the bathroom and move and shake and breathe.
+- It's fun to play for the 12- and 13-year-olds. The looks on their faces are amazing. Young kids don't have social anxieties. They'll yell things out and sing loudly.
+- I want to find more ways of planting trees and helping fight against deforestation.
+- Pines' is a different kind of album for me. It was a different approach, everything about it, I just went at it as if I had never made a record before basically.
+- I always wanted to be an artist of some sort and I was really shy growing up, so performing didn't really seem like a natural choice, but whenever I got on stage to do something I felt more comfortable than I did in real life.
+- Besides a princess and a ballerina and a firefighter and a vet, I think I wanted to be an artist.
+- Women are often written as one thing - the ingenue or the vamp - but real women are many things.
+- I have an affinity for a lot of things that are kind of fairy-tale-ish and bookish.
+- With music, every decision you make is a reflection on who you are - I'll obsess over the color palette for a record and the promo materials. With acting, it's not just your ideas. You're one part of a working machine.
+- I really listened to a lot of oldies. I didn't really listen to anything that was modern until I was 11 or 12.
+- I lived in Washington from when I was born to when I was 5.
+- Los Angeles has got its own distinct feel, and it's very contrary to the music that I write and the pictures I see in my head: no evergreens, no fog, no rain days.
+- I mean, I knew that one day I'd do something writing-oriented as soon as I started writing. But when I started singing, I was determined to make those two work together, so I just worked at it until I started making stuff that sounded like music.
+- I think I've seen 'Sleepless in Seattle' like 40 times... I've seen 'Harold and Maude' like 50 times probably.
+- To me, the making of art and experiences around that are the biggest part to me.
+- I'm a terrible parallel parker.
+- Especially growing up in Los Angeles, there's just a very different mind-set than my own. There's no 'Romeo and Juliet' in Los Angeles. There's 'Laguna Beach.'
+- If you're gonna steal from somebody, why not Shakespeare?
+- I grew up listening to a lot of classic jazz, and stuff like The Beatles, and old Motown stuff, and a lot of classical music. I just loved all of that.
+- I'm learning to communicate honestly and knock it off with the hiding.
+- I think something that is never really spoken about is the learning process of making records - I made my first record at twenty one and learned so much about record making from that before making 'Bomb In A Birdcage' a couple of years later.
+- I was so afraid of being lumped into this category of female actresses trying to sing.
+- When I am going through something monumental or difficult in my life it is hard to look at it as it is because it is too much.
+- I felt I had to choose between being pretty or smart or athletic, and stick to it because if you try to do more than one, you have nowhere to belong. Then music was a boy's world and a lot of times men assumed I didn't know what I was doing because I was young and female.
+- I love Bright Eyes - I absolutely love him.
+- I have all sorts of weird albums that people have given me lying around the house.
+- Fear seems like it's this physical thing - some monster - but it's just energy.
+- I was in a commercial when I was three. My godfather was a director and a producer of commercials. He took me in along with his kids and I couldn't remember my lines. I giggled my way through the commercial and they kept it.
+- Sometimes we get so focused on the results that we miss doing it - we miss the adventure of being in the midst of something because we're looking too far ahead.
+- I firmly believe in real-life fairy tales.
+- My parents were acting teachers, but I was a bookworm who was passionate about music.
+- I won't do the same thing over and over again.
+- I was worried that acting would somehow ruin any credibility I had as a musician.
+- I think I had a lot of fear, even when I was really young, that I was going to be seen as something that I didn't want to be. I didn't really know how to be myself well enough to be comfortable being someone else.
+- The song 'Almost Lover' is very important to me, because when I wrote it, I threw everything away. That kind of set the bar as a writer, as a singer, as a person.
+- I'm just really not good at being like anybody else or writing like anybody else.
+- I do consider myself an actress now. I think 'Dig' and 'Transparent' have given me the confidence.
+- It's different from music because music is like going deep down into soul, like scooping out all the difficult, beautiful, messy stuff and putting it into songs. Writing is more like playing for me.
+- I found movies to be such a beautiful escape.
+- It seems to me, personally, that the things that are great during Christmastime are magnified. Like everything is that much better. Everything is magical and spectacular. The things that are wrong or sad are just so much more wrong or sad.
+- Once one goal is checked off, you have to up the ante just to keep yourself sane.
+- I don't love my speaking voice, frequently - but I think that we need music, and when a person sings, those kind of vibrations go through your body, it's amplified in the room. It goes through everyone else's body, too.
+- I've had a lot of experience with not allowing myself to experience certain emotions, like anger and confidence, and with acting you're in this space where it's safe to fully go there.
+- There's something about a long, high-waisted skirt and little, buttoned blouse that I really love.
+- I was a very quiet kid who didn't feel normal being outgoing and running around, so all the beauty that was in my life, I found in books. Books that made me think and transported me into a different world.
+- Stories have always been incredibly comforting and can help illuminate things that are hard to understand other wise.
+- I want to have a long career, so I'm fine with it growing slowly.
+- I do love to dance, and that's fun, but I will never stop writing my quiet, sensitive songs.
+- It's hard to constantly delve into your psyche and unearth these deep and often painful feelings and hold them out in front of people and say, 'Here's the most vulnerable part of me.'
+- Whenever you meet another woman, you immediately revert to you five-year-old self thinking, 'do you want to be my friend. Can I keep you?'
+- I look to films to learn and to see different avenues that you can take in growing up.
+- Whether it's a photograph or a piece of clothing, a leather bag or a film, I tend to gravitate towards simple, beautifully made, quietly lovely things. They make me happy.
+- I always try to scour local vintage shops and antique stores as much as I can while I'm on the road - it's my version of hunting for buried treasure.
+- There are so many things I've done that I'm glad I've done privately because it's so embarrassing just anyway.
+- You won't find me out in a club. I'm a bit unruly, in my own way.
+- Singing in front of people, I learned a lot more about fragility and strength.
+- I don't like to yell.
+- I love watching people.
+- When you have goals and dreams and things that you've been wanting your whole life, and then they actually start happening and you start checking things off your list, it's like, whaaat? Huhhh?
+- I feel like for me my happiest moments are tinged with the awareness that there's sadness on the flipside of the coin.
+- There's a certain amount of pressure that you get from being a popular artist, and I think in the past I put a lot of pressure on myself, too. But I always knew that writing hits wasn't really my strong suit.
+- I want to go into the margins, into those moments where there's snot hanging out of your nose and things aren't cute and you're not pretty. I'm all for messy. That's what I want to explore.
+- I want you to feel in 'Riversong' like you're floating down a river on your back, and you're looking at the stars, and everything is incredibly still and peaceful.
+- Because I grew up around the reality and heartbreak of acting, I didn't want to have anything to do with it.
+- Both with songwriting and playing a role, you're delivering the truth of something in a moment. In a lot of ways, it's the same thing.
+- Coldplay's music is so uplifting but not cheesy. You listen to it and you're taken away. It's so honest. There's kindness to their music.
+- There are two things I love about Temescal. One is the sense of space that you get when you get to the top. You can see for ages. You can see the ocean spread out before you, but you also feel like you're in the mountains. And second is the smell of it, which I love most when I've been traveling a long time.
+- I can Hula-Hoop and read a book at the same time.
+- I think you can do a lot with lyrics and melody.
+- Whatever you're doing, you have to do it 100 percent; you have to be totally present.
+- I just love the holidays so much.
+- I did a couple auditions, failed miserably, was about to give up, and booked 'Transparent.'
+- Even when my every inclination is to be otherwise, I don't want to live my life on the dark side of things. Sometimes that takes a little bit of effort, and when that's the case music is the way that I totally make sense of things.
+- I can be very pessimistic and very dark, but there is also a part of me that's very determinedly optimistic.
+- As a musician, you kinda get used to failure in life, and then when things actually start succeeding, it's a very interesting feeling.
+- I would love to show young girls that you can be complex, and that you don't have to part ways with your femininity in order to be taken seriously. But it does take more strength if you're going to be feminine, because people are going to underestimate you. I struggled with that when I was growing up.
+- I love doing free shows because then anyone can come.

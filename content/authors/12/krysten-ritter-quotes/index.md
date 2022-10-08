@@ -1,0 +1,124 @@
++++
+author = "Krysten Ritter"
+title = "Krysten Ritter Quotes"
+quotes_len = "118"
+description = "the best 118 Krysten Ritter Quotes"
++++
+- There are a lot of times when Jessica Jones is alone in her house, and there's no dialogue. She's rough around the edges, so getting to spend that time with her and see her be vulnerable and process the weight of her world is what makes the character so likable.
+- I hope to someday have a fully functioning production company.
+- I have a lot of girlfriends. That's sort of my whole thing is, I have really, really deep friendships, more so than anybody I've ever met.
+- I've never been a fearful person. When I was growing up, I wanted to be an actress, a writer, and a musician and I never really processed that those are the three hardest jobs - I just never even processed it.
+- I've watched 'Clueless' as many times as humanly possible. Like, I would run home from school to watch it. Like, I can quote it backwards.
+- Marvel is obviously a giant, global super-brand, so being a part of that is exciting because of the huge built-in audience and the appetite for it.
+- I'm having a great time. I get to travel and see the world. And yeah, I'll have a family, because I don't want to miss out on that amazing experience, but it's not defining who I am.
+- It's hard to fight in high heels or even jeans that are too tight. You can't kick in skinny, skinny jeans.
+- If I'm not working, I don't even put makeup on.
+- I have such a crush on Tony Robbins and his passion, empathy, and sheer talent.
+- I never imagined myself playing a superhero because I don't see myself the way superheroes have been portrayed or shown to me my entire life.
+- I'm definitely scared by commitment.
+- I live in Los Angeles, mostly, and have a lot of girlfriends and a full life out here.
+- I'm very into dresses, shoes, and makeup.
+- I feel really fortunate that I've been given a lot of roles that were very different from each other. For me, variety is the key. I don't want to play the same thing over and over again.
+- Marvel and Netflix have proven they know what they're doing.
+- I understand the feelings of being the outcast and the loner.
+- We all know what it feels like to be an outcast or a loner or to fall between the cracks. To be the target of gossip or people talking about you, or girls are ganging up on you. One minute, they're your best friend; the next, they call you on three-way.
+- I've been bouncing around from comedy to drama and TV and film.
+- The thing about Netflix is that you get more minutes in your episode because there are no commercial breaks. You have time to let things breathe and be quiet. You get to see an entire scene play out instead of just jumping halfway in.
+- I try to put a positive spin on things.
+- I'm not always the first person to run out and see something I'm in. I don't know; for me, that's not why I did it. I did it because I wanted to act. I don't really think about the end result. I don't feel like I have to see it - for me, it already happened.
+- I've always been very positive and very resilient.
+- If we're at a lunch table, I'm going to always sit with the girls. That's just kind of how I am. I always gravitate towards women. I know how to communicate with women.
+- I'm not a wallflower, and I encourage girls to live that way.
+- After I've knitted for a while, I feel like I just woke up from a nap. And what's awesome is that then you have a product! You have something you made with your hands!
+- I'm a lanky girl, naturally.
+- When I moved back to New York, I saw a lot of girls knitting on the subway, and it had a bit of a comeback.
+- I'm an actress, and I write, and I produce stuff. I have a guitar, and I have my knitting stuff. I have a lot of things going on; I love to not ever put all my energy into one thing fully.
+- It's exciting to originate Jessica Jones. There's obviously more freedom in that versus playing a well known character.
+- 'Bonfire' was kicking around for a very long time. It was an idea I wanted to explore for a television show. Then I was given this weird gift of time when 'Jessica Jones' finished season one. I got really organized and just kind of banged it out, but it took a long time. It took two years to even have a first draft.
+- There's only one person for every job. You can try all you want, but if you're not right for it, you're not gonna get it.
+- My Instagram is basically all knitting, my dog, and a little bit of 'The Defenders.'
+- I'm from a small town, a farm, a hundred acres.
+- I was always loud and obnoxious and giggly and funny.
+- Jessica Jones is such a great part, and I do serious work on it. I feel really creatively fulfilled.
+- When I was 15, I was scouted at the mall by Elite Model Management. I started to go to New York on the bus in high school, which was about four hours door-to-door from my hometown, until I moved to New York and lived in models' apartments all over.
+- For solace, I love a book that opens up my perspective.
+- I'm not conventional. I try to be raw and vulnerable and gross.
+- I kept telling people, 'I really want to do something like 'Breaking Bad,'' and then people would remind me, 'Krysten, you were on 'Breaking Bad!''
+- Different is good. Different is great!
+- My favorite acting books are Stella Adler's 'The Art of Acting' and 'Sanford Meisner on Acting.'
+- When I'm shooting, that's all I do.
+- What I'm doing is making sure that I have a balance, and that allows me, I think, to be a better actor and to more easily and quickly access all of the emotions on the scale. I make sure that I read a book on the weekend or read something or do my knitting or do the things that I need to do for myself, like 'Game of Thrones.' Get that balance.
+- Sometimes, as an actor - and I've witnessed this with other actors that I've worked with - you don't realize that it's not all about the actor.
+- The more messy women that we put on screen, that we put in books, the more women can feel represented and seen, then they can access their own stuff, feel it's okay, and then have the strength to speak out about things like we're talking about. About rising up.
+- I'm currently single, so I want to have fun! As for what guys need to do to date out of their league, it's all about the swagger. If you have confidence, you can get pretty much any girl.
+- My gram taught me to knit when I was little, and then I came across my old knitting tools when I was cleaning out my closets after 'JJ' season one and got right back into it.
+- Thematically, I like playing with the ideas of stuff that you try to bury, and you think will go away, but instead you carry it with you until it becomes crippling. And sometimes you have to look back and deal with some stuff in order to truly move forward.
+- I started studying acting, got commercials, and here we are 100 years later. I'm acting and writing and I have a pool and a dog.
+- Everybody has that: everybody knows what it's like to go home and then regress and not be running from something, not like who you were when you were home. I think everybody relates to that.
+- To be honest, I didn't love the high-fashion world because models aren't always treated that well. I was a scrappy kid from a farm, and that world felt a little snobby. But I was grateful for it, and my photo shoots now are really fast because I know my poses.
+- I used Vamps as a casting couch! I pretty much did, because I was casting 'L!fe Happens' while I was on the set of Vamps, and anybody I had ever worked with, I asked to be in this movie.
+- I just sort of choose to see the good in things, and I choose to - I don't know - look on the bright side, as cheesy as it sounds.
+- I was always an outcast, even in my family.
+- Yarn, patterns, and needle sizes have come such a long way since your grandmother's afghans. Creatively, there is just so much to get into, so much to play with. It's an amazing way to turn inward and get off your phone.
+- If you see a dog in a hot car, and you think that he's in danger or that he's been there for a while, it's good to speak up... Go into whatever businesses it's parked outside of, and just raise awareness about it.
+- If they want to do a 'Defenders 2,' I'm in.
+- Marvel has, like, 9,000 characters. They could do a horror movie tomorrow and call it Marvel. They can do anything.
+- I think it's important to be flexible and free, and you can't be free and spontaneous if you don't know what you're doing.
+- I thought that our first New York Comic Con for 'Jessica Jones' was epic because we had a pretty major reaction from the crowd after showing our first episode!
+- I don't have a lot of clothes or a lot of possessions to bog me down.
+- I don't fight for much, but when I fight for something, it's usually because I think I'm going to be right.
+- I like to be stylish and edgy, but also low maintenance.
+- Any time you get to play or dress differently or look differently, as an actress, that's incredibly exciting.
+- For escape, I love popcorn thrillers that you can read in a weekend, like 'Sharp Objects' and 'The Woman in Cabin 10.'
+- Netflix is like sitting at the cool kids' table. Netflix is amazing. We're the biggest fans of not only working there but of the company in general.
+- I think that the more comfortable and the more you rehearse - granted, I don't like to take the air out of a tire; there is a fine line - but I think the freer you are with your dialogue, for example, the more open you are to a good idea walking up to you.
+- For me, rehearsal is very important, and I spend a lot of time doing it. Also, I work with my acting teacher for hours and hours before walking onto any set.
+- I was totally picked on, but look at me now! I was definitely picked on by boys and girls. I was really lanky and skinny and the boys would say, 'Turn sideways and stick out your tongue, you look like a zipper.'
+- If you really want something, you've gotta just do it and not wait for other people to hand it to you.
+- The most rewarding thing is having a job that you love. It's not a luxury that everyone in this world enjoys.
+- I encourage girls to lean in, use your brain, get in there, get in the conversation.
+- It's rare to get a part in a show that's greenlit, let alone two shows that have been greenlit.
+- I think backstory is really important to know because I'm all about prep work. I like to do all of my work right away, as soon as I get it. I'm incapable of procrastinating on anything, so I like to do all of the work.
+- If someone says, 'I love 'Jessica Jones!'' I just say, 'Thanks, I love you back!'
+- When I go home to Pennsylvania, my cousins who live in small towns and are twenty-three with kids are like 'Krysten, when are you getting married?' 'When are you having a kid?' Honestly, those aren't the most important things to me right now.
+- I've always lived out of a suitcase. I was in a new city every three months. When I was a model, I traveled the world, and as an actor you're traveling from movie set to movie set. So I've never been in one place long enough for anything super-bad to happen.
+- I'm the only person in the entire world who has never see 'Dawson's Creek.'
+- It's hard to find that perfect dress that makes you feel like a million bucks. I've found a few, and I wish I could wear them over and over and over again on red carpets.
+- My favorite face wash is Aveeno Foaming Face Wash, and I get it at CVS or Rite Aid. It's the best. It gets off makeup, but it's not drying, and you feel clean.
+- I love 'House of Cards,' I love 'Bloodline,' I love 'Orange is the New Black,' so I had written on my refrigerator that I was looking for 'groundbreaking television on Netflix.'
+- I read the entire 'Alias' series. I devoured them.
+- When I'm breaking in a character like Jessica Jones, I have this amazing opportunity to create her backstory. It's all of the work that happens before I'm ever on camera... Writing 'Bonfire' was like doing all of that fun stuff; it was like 300 pages of prep work.
+- 'Daredevil's a great show; I feel like 'Jessica Jones' is a great show, and I feel like they really are tapping into something.
+- I'm a total girl's girl.
+- My first audition was for a Dr. Pepper commercial.
+- I knew I could always work harder and be better and show I'm more prepared. I had a whole science to, like, how you have to arrive 17 minutes early to something. If you're 20 minutes early, that means you're too eager, but 17 minutes gives you time to, like, settle, sign in, use the ladies' room, have some water, and get comfortable.
+- On the farm, I had chores. I had a calf. We had a herd of cattle in the pasture. We'd go and get me a calf at a cow auction with Amish people, which I would raise. I gave it a bottle every day, in this cute little coop, like a giant dog coop almost. I've always been a big animal person.
+- My favorite part of 'Jessica Jones' is... all of it.
+- I'm a creative person. I love to write, I love to act, I love to perform, I love to create things with my hands, so I do all of these things that are kind of like hobbies in a way. They're things that I love, so it's not like a work-life balance; it's just a work-life marriage.
+- I'm sort of missing that part of my brain where I look at anything as a challenge. I always have.
+- There are different audiences out there, and everyone has different tastes of what they want. And it's a good thing because otherwise, there wouldn't be enough stuff to go around.
+- A lot of actresses start out modeling because it's a great way to sort of get your foot in the door. That's all it is, though. They open the door, and you have to walk through it.
+- I believe in women having a voice, being empowered, speaking up, and having ideas.
+- Every day, you try something new. So I just try to keep myself healthy physically and nutritionally.
+- With 'Jessica Jones,' I'm in almost every frame of the show.
+- When you go to Marvel, they lock you in a room with the scripts; they really are that secretive.
+- After 'Jessica Jones' came out, I started hearing firsthand from a lot of women who were so inspired by the character, who felt represented, who felt like watching Jessica on screen helped them in their own lives. Women are devouring content like that because everybody is complicated; not everybody is one thing.
+- I didn't know how to throw a punch - why would I? Who knows how to throw a punch? Now I do it all the time, and it makes me feel strong.
+- Besides boutiques, I love H&M. Affordable and adorable.
+- I worked with my acting coach one-on-one for hours and hours, every single day for two months, before even setting foot on set or putting on Jessica Jones's clothes.
+- I didn't want to play the wife of some guy my dad's age.
+- It's really hard to sell a script, and it's even harder to get a movie made. It just almost never happens.
+- I've written pilots. I wrote a movie.
+- I love Tina Fey because she acts and she writes and she's hilarious and does a lot of different things.
+- When you prepare for something, you can then play around; you're not as worried about remembering your lines because you already know them so well. That's where you can find the freedom. So I'm all about prep work.
+- My parents actually wanted me to join the service.
+- I am sarcastic and dry, but I also have a pretty huge zest for life.
+- I'm a weirdo. I don't leave the house unless I have to.
+- I have a new little stray dog that I've had for about a month now. His name is Mikey Mohawk - he's this little terrier with a natural Mohawk. My friend found him hit by a car on Pico Boulevard.
+- Whatever headspace you need to live in for your character is sort of where you stay in between scenes.
+- 'Sharp Objects' is honestly one of my most exciting reading experiences.
+- It's hard to always be reduced to the way you look or your sex appeal or what that is.
+- I try to bring myself to every role. The last thing you want to seem like to other people is a talking head or an actor reading lines.
+- I try to drink a lot of water and always moisturize. When my skin gets cranky, I use Proactiv to keep it clear. That stuff really works.
+- I don't normally do shoots in bikinis - I'm just not that kind of girl. But for 'Maxim' I was like, 'Bring it on!' I wanted to wear the higher heels and the skimpier bathing suit. I figured I'd go for it!
+- I'm all about time management. I have gotten my makeup prep in the morning down to, like, four minutes. There's just not enough time in the day.

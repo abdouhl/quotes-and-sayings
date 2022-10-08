@@ -1,0 +1,106 @@
++++
+author = "Jose Feliciano"
+title = "Jose Feliciano Quotes"
+quotes_len = "100"
+description = "the best 100 Jose Feliciano Quotes"
++++
+- One day I heard Ray Charles on the radio and I found out he was blind. I thought, 'You know what, if there's room for Ray, there might be room for Jose.'
+- I got tired of seeing people rush through the national anthem so they could have their popcorn and get to the game. Nobody ever sang the anthem with soul. It was always done clinically and they always stuck to the original. I put feeling into it. I sang it in a soulful manner.
+- The only thing I can say to the people of Israel is that I love them and I am a strong ally.
+- I'm lucky that I can play all kinds of music, that it appeals to all of the generations.
+- As a Hispanic American, this country has done a lot for me, and I think that people have to be more grateful for what they have in this country.
+- I'm a musician first and sight has never had anything to do with it.
+- When I did the national anthem, I did a soulful, kind of gospel-y version, but it was controversial with the war veterans, just the people who wanted to hear it the old, clinical, atmospheric way, and I didn't want to sing it like that.
+- You can't write much quality, original music on a concertina.
+- I was growing up at a time when music was growing and changing so fast. I had learned all the big band sounds of the 1940s, Glenn Miller, Tommy Dorsey. But then along came Chuck Berry, Les Paul, Fats Domino and I figured out how to make their music as well.
+- When I was 15, I became an avid fan of Andres Segovia. He brought so much respectability to the guitar.
+- I've been a fan of Elvis since I was 11, so for me, it was a real thrill to make an album of all my favorite Elvis songs.
+- Now everybody has been doing the national anthem in their own style, but in 1968 I was the one that took the heat. It cut my career for quite a while.
+- I don't think Hank Greenberg thought of himself as the first Jewish baseball player - he was a baseball player who happened to be Jewish. I'm an artist who happens to be Latin.
+- My parents did not want us to lose our culture and our language. And that was a good thing.
+- God did not want me to be a blind beggar on the street, alone and bitter. He gave me music, first to be my companion and then to be my salvation.
+- Everyone is my equal, and that is transferred to my music.
+- I never knew Mother Teresa, but I admired her, especially in this day and age when there aren't many heroes.
+- I never expected to have such a long career, it's been 52 years.
+- When you've had a chance to live some experiences then you can really write, and not having lived that much when I was young I didn't have much to write about. Now having seen life, the songs seem to come easier.
+- The accordion was the first instrument I played, when I was 7 years old.
+- When people don't hear you on the radio they think 'maybe he retired.'
+- I'm not like other guitar players. In fact, I'm not even like most acoustic players because I use the nylon-string acoustic. I do play steel-string and the electric guitar, too, because I love rock 'n' roll and guitarists like Jimi Hendrix. But my bread and butter has always been the nylon-string.
+- I did whole Latin albums and it was like Beatlemania for me in the Latin world, the screaming girls, not being able to leave the hotel, at the airport met by screaming fans. That was something!
+- New York will always be a part of me no matter where I go.
+- It's a wonderful thing to play with symphony orchestras - I've played with many - but it's really special in Israel because you have so many great musicians.
+- I liked the Doors and that kind of music.
+- I thought I'd be spending my life making brooms, mops, chairs and things. That's fine for some blind people, but I wanted something more out of life. Music seemed the best way.
+- People are really surprised by the fact that I keep in touch with the latest trends rather than retreating to the distant past.
+- The day I stop learning and I don't try to make myself better on the guitar, that's the day I hang it up and say, 'Goodbye.'
+- I taught myself until I was about 16. And then I studied classical guitar with some teachers.
+- It is always good to make new friends.
+- I made history and nothing can besmirch that. Nothing can erase that.
+- Music. It has always showed me that I could do what the other kids couldn't do. So I will keep playing and singing and entertaining, as long as the good Lord lets me. That is my life.
+- I know Ritchie Valens in 1959 had 'La Bamba' but to be totally Spanish - because, you know, Ritchie didn't speak Spanish - but to be a total Latin artist like myself, to be out in a field where there weren't any categories for Latinos... I felt good that I was maybe - I didn't know it at the time - but I felt good that I opened the door.
+- I've been playing in Israel since 1971.
+- I was a teen idol in Latin America.
+- I have genuine respect for women and I want to win their respect. I don't want them to look at me and say, 'Oh, another man with the same attitudes as most men.'
+- I didn't write Feliz Navidad to make a lot of money for me.
+- I felt bad about the controversy because they stopped playing my songs on American radio stations. But there was nothing wrong with what I did. Now everybody sings the national anthem the way they want.
+- I didn't mean for it to cause such a furor, but I was the first guy to ever do the national anthem with a guitar. Everyone else had the big brass band. Nowadays it's tracks that they sing to, but in my day, we had no tracks. And I was the only orchestra that I knew that was the best orchestra and that was me and my guitar.
+- I think sighted people let their eyes cheat them out of certain things. People who can see don't have a great sense of smell because they don't use it.
+- I like Maroon 5, Swedish House Mafia and others.
+- I always wanted to be the first true Latino to break the American barrier, to be on the American charts.
+- If I were to travel with all my instruments, I would need a truck.
+- I think I am different from most blind people because my agility is not that of a blind person - I don't shuffle my feet when I walk. In fact, I have no, as I call them, 'blindisms.'
+- I just happened to be Latino, and like any artist, I was trying to forge a career. If I opened doors for others, that's great, but nobody starts out with those aspirations.
+- To me, my guitar has always been my orchestra.
+- Actually, being blind is not so bad. If you're born this way, you never know anything else and you don't wonder about it. Though I'd hate to have lost my sight after being able to see.
+- One thing about computers and iPhones is they're making people mentally lazy.
+- I don't think kneeling during the anthem is such a bad thing.
+- There were screaming girls, I had to learn as a blind person how to run to a limousine otherwise they'd take my clothes off and stuff. I thought to myself 'how could this happen?' I mean I could see it, Frank Sinatra, Elvis Presley, The Beatles, but Jose Feliciano? It was a mystery to me.
+- Some people wanted me deported - as if you can be deported to Puerto Rico.
+- I have very heightened senses - not just my hearing but my sense of smell.
+- I always tell my wife she's married to the Puerto Rican Elvis.
+- New York is really where my career somewhat started.
+- I don't know if it's a legacy, but I love it. In my mind and other people's minds, they know I was the first to stylize the national anthem.
+- I contend that if it wasn't for Jimi, the gadgets we use for electric guitars now wouldn't have happened. He was an inventor, in a sense - as well as being great artist.
+- I was drawn to the guitar, and still am, because it struck me as the most soulful instrument.
+- I never knew whether I'd make it as a star but I always wanted to.
+- Pioneers will always get the stones, when everyone later gets the accolades.
+- When my career took off it surprised me, I was only 22. To have that much success so fast, I just wasn't prepared.
+- When I first heard Bob Dylan, I'll be honest, I didn't like him. But I was shallow of mind and didn't understand the poetry. I just judged him on his singing and his guitar playing.
+- I'm a one-man band!
+- I became a teen idol. At the time, it embarrassed me.
+- I just do my thing, what I feel.
+- In 1966 I recorded my first bolero album. I was about 18 years old then and I recorded it because I wanted my parents to know that I hadn't lost my identity of being Latino.
+- No one can pigeon-hole me because I play everything, and I did that on purpose.
+- When I was a kid, I could make music out of anything, whether it be a rubber band, a tin can. Whatever it was I made music out of it and so that was my knack.
+- I loved John Lennon, by the way.
+- My dream was to be a celebrity, to be on TV like Bob Hope was.
+- I didnt go to the high school prom. Couldn't get a date.
+- Playing guitar was a calling, but I never realized that it was going to be a career. It was just something I did out of love.
+- From 1969 to 1973, I was never played on radio stations.
+- When I came on in '68, I was really the lone wolf.
+- I'm in a museum. I'm a relic.
+- I got so big in the Latin market, it was a bit like being Elvis Presley. The limousines, the screaming girls - stuff I wasn't used to.
+- I have no regrets, though I was the first artist to stylize the national anthem, and I got a lot of protests for it. I have no regrets. America has been good to me. I'm glad that I'm here.
+- When I did the anthem, I did it with the understanding in my heart and mind that I did it because I'm a patriot. I was trying to be a grateful patriot. I was expressing my feelings for America when I did the anthem my way instead of just singing it with an orchestra.
+- I'm Puerto Rican, but I represent everybody.
+- In 1970, my label decided I should do a Christmas album and I put a bunch of tunes together. We couldn't decide what to call it and so I said 'Why not just say Merry Christmas in Spanish? Feliz Navidad.' They said, 'That's cool, Jose, but we need a title song.' So I just sat down and started to play.
+- I'm very proud being Puerto Rican. I'm American. That is what America is made of - people from different lands.
+- Feliz Navidad' has interfaced the English and Spanish cultures to come together and after all, we're living in a multi-cultural world.
+- The fact I'm blind has been a great help to my career. If I'd been sighted I'd have played baseball and got into trouble like all other kids on my block.
+- If I've influenced people, so be it, but I don't dwell on those kinds of things. I just put out my music. If I influence someone without knowing it, I'm happy about it. I try not to think about those things because it's not about me.
+- I was very, very fortunate that 'Chico and the Man' was on TV, that helped me quite a bit. Of course, having the No. 1 Christmas song in the Spanish market, 'Feliz Navidad,' doesn't hurt either.
+- Very few guitarists play nylon-string. They don't know how to get the sound out of them. That's something I've spent a lot of time on.
+- RCA wanted me to change my name. They asked me around 1965, when they first signed me. They said, 'Feliciano is too Latin.' I said, 'That's who I am. I'm Jose Feliciano.' They wanted me to change my name to Joe Phillips.
+- I was the first artist to put the national anthem on the charts, and I'm thrilled.
+- I mean, it wasnt like I had said to myself beforehand, 'OK, I'm gonna go out there and sing 'The Star-Spangled Banner' in the weirdest way possible and cause a commotion.' I just sang it the way I felt it I sang it the only way I could.
+- God gave me a good voice. I have perfect pitch. I don't sing flat.
+- It taught the English to speak Spanish and it taught the Spanish to speak English. If we had more songs such as that, it would solve the immigration problem in a hurry. But there can't be another 'Feliz Navidad.'
+- I sang the National Anthem with soul.
+- I went through the immigration thing. But when I got to New York it wasn't so tough for me. I went to school. I went to P.S. 57, then I went to the Lighthouse for the Blind on 59th St. I guess being blind is a great leveler.
+- Music made me feel like I was sexy. Music made me feel like I wasn't just a blind guy.
+- My first memory of playing music was when I was 3 years old in Puerto Rico. I played percussion on a tin can behind my uncle, who played the cuatro.
+- I write with my brain. I don't need a computer.
+- I take pride in the fact that I was the first Hispanic artist to really crack the English market.
+- I truly enjoyed the '60s.
+- I'm kind of iffy on the Latin Grammys because I think we fought so hard, for example, to get the American side of the Grammys to open categories for us... But I support the Latin Grammys in the sense I'm glad that we have them.
+- I didn't have romances when I was in school. Girls didn't want to go out with me because I was blind.

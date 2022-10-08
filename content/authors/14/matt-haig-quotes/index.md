@@ -1,0 +1,78 @@
++++
+author = "Matt Haig"
+title = "Matt Haig Quotes"
+quotes_len = "72"
+description = "the best 72 Matt Haig Quotes"
++++
+- When I was young, there was no such thing as YA. You simply went from reading children's novels to reading adult novels. So one year, I was reading Tove Jansson, and the next year, I was reading Stephen King.
+- Boys don't cry. But they do. We do. I do. I weep all the time.
+- If you can't give children optimism, then what are you doing?
+- I suppose the book I really remember loving as a child was one called 'The Outsiders' by S.E. Hinton, about a gang of kids from the wrong side of the tracks in Sixties Oklahoma. I grew up in the Eighties in Nottinghamshire, but this tale of troubled, but essentially good, kids - or 'greasers' - was something I completely connected with.
+- Depressives have led countries, won wars, flown rockets to the moon, made great music. Don't let depression stop you employing someone, and never let it cause you to judge them. Depression is not a person. Like any other illness, it is something that happens to a person. It shouldn't define them.
+- Understand that thoughts are thoughts. If they are unreasonable, reason with them, even if you have no reason left. You are the observer of your mind, not its victim.
+- Being a depressive should not imply danger any more than being a man or even a human should. Mental illness isn't a them/us issue; we are all on the scale somewhere. So we must be very careful to resist ignorance and combat the stigma that leads to dangerous silence.
+- Like most art forms, writing is part instinct and part craft. The craft part is the part that can be taught, and that can make a crucial difference to lots of writers.
+- At school, I wasn't as interested in mathematics. I did OK, but at the earliest point I could stop doing math, I stopped.
+- Robots are great. I am saying that now so that when a future civilization of robots takes us captive, they will search through the 'Guardian' web archive and realise I said, 'Robots are great,' and then they'll choose to save me.
+- My early novels were written in quite a dark place. I stand by them, but I would never write them again. I think it is subversive to embrace emotional optimism, because it goes against the grain.
+- It would be lovely to live in a culture where calmness was the aim.
+- For me, as a writer, I desperately want to be read. I'm very conscious of readers as I'm writing. I think, 'If you write for yourself, then why don't you just keep it under the bed,' so I definitely write for other people.
+- Lots of children have had dark experiences, and if they're not having direct dark experiences, they are thinking about things and learning that life is fragile. You have to acknowledge that side of life to be able to then offer comfort and hope and goodwill.
+- It is very hard to explain to people who have never known serious depression or anxiety the sheer continuous intensity of it. There is no off switch.
+- The implication that depressed people are fundamentally irresponsible is a deeply damaging and counterproductive one. Winston Churchill was a depressive. He didn't just fly planes; he was in charge of the Royal Air Force.
+- You don't have to be a creative maverick to have a troubled mind. You just have to be human. There is no 'us' and 'them.' No one is one hundred per cent healthy, physically or mentally.
+- Teenagers are philosophers. They are thinking about the big things like existence and identity at a time when their identities are changing so fast.
+- Books should be right up there with exercise and diet as something that don't just entertain us but heal us. They tell us we are not alone and fix the pieces of us that can be shattered by reality. They are teachers, and they are friends, and we should never contemplate a world - or a life - without them.
+- If we ever head down the American path of banning certain books or turning the editorial process into one of censorship, we will risk turning teens off books and sending them elsewhere - to their X-Boxes, for instance. To the Internet. And they won't ever come back to books.
+- The weirdest thing about a mind is that you can have the most intense things going on in there, but no one else can see them.
+- I'm a firm believer in the connection between the body and the mind: feed one, feed both. I like to run, but only short distances, and fast. I'm no good at long distance. More than six miles, and the knees start to go.
+- Words are the essence of culture. Books are pure essence. They are not for women or for men, but for all of us. Without books, civilisation falls into the dark ages.
+- Beauty breeds beauty; truth triggers truth. The cure for writer's block is therefore to read.
+- If you sell the film rights to your book, it doesn't mean there will be a film. I have sold the rights to five books and had zero films made. Take the money and be thankful.
+- People, certainly in the U.K., look down on screenwriting as an art form, but I love the discipline of it. Next to the bagginess of novel writing, it almost feels like a martial art.
+- There is certainly no one 'type' of writer who deliberately draws on Shakespeare. In fact, there's a strong argument that everyone writing in the English language is influenced by Shakespeare because, to a considerable degree, he shaped that language.
+- Depression, for me, wasn't a dulling but a sharpening, an intensifying, as though I had been living my life in a shell, and now the shell wasn't there. It was total exposure.
+- We often joke about men moaning about being ill, whether it's man flu or anything else. We want them to be silent and strong about these things. And that's quite dangerous when it comes to depression, because talking about it helps. People bottle it up until it's too late.
+- Human brains - in terms of cognition and emotion and consciousness - are essentially the same as they were at the time of Shakespeare or Jesus or Cleopatra or the Stone Age. They are not evolving with the pace of change.
+- I have always enjoyed vampire stuff without ever having been a full vampire geek. I suppose I love the idea of blood thirst because it can say so much about us, not simply about addiction but about all those desires that can tear a family apart.
+- Thinking about death makes you analyse what life is. Anxiety makes you curious, and curiosity leads to understanding. I wouldn't be a writer without depression.
+- Depression is an illness. It is not a ticket to genius. It is not an interesting personality quirk. It is horrible and all-consuming and really hurts.
+- I'd love for mental illness to be seen in the way that other horrible illnesses are. When people get cancer, very few parents will say, 'Oh I feel so bad for giving you so much unhealthy food over the years.'
+- I think Father Christmas is real because the belief is real. The belief becomes the reality.
+- If you are an atheist as I am, Shakespeare can be your ideal. Everything is within Shakespeare, especially in his 10 greatest plays. They have life, meaning, understanding, the whole lot.
+- Books are our umbilical cord to life. They connect us deeply, and with more meaning, to the world. They aren't about escaping from ourselves but expanding ourselves and finding within us the tools we need to survive.
+- Teenagers watch and listen to all kinds of things. It is the nature of being a teenager to seek out intense stuff. Stuff about death and sex and love and fear. Teenagers are the bravest, most curious, most philosophical, most open-minded readers there are, which is why so many less-than-young adults like writing for them.
+- There aren't any fences to the imagination, and so there shouldn't be any for books.
+- I think it is a luxury and privilege to be sane and well and pessimistic. Because with depression, you have no other option. You don't want that pessimism, because it is crushing you and keeping you down at the bottom of the well.
+- British culture is very cynical sometimes of overt displays of sentimentality, and I think that becomes almost a suspicion of emotion, or a suspicion of someone making a grand statement. It is always easier to be ironic, or 'meta', or coolly postmodern. But I think there is such a thing as authentic sentimentality.
+- Neuroscience is a baby science, a mere century old, and our scientific understanding of the brain is nowhere near where we'd like it to be. We know more about the moons of Jupiter than what is inside of our skulls.
+- It took me at least all my 20s and some of my 30s to get the confidence to realise I could just write about what I wanted to write about without having to pass a test or look super clever.
+- How clear can I put this? I am not denying female oppression; I am trying to stop it by calling for a more fluid masculinity.
+- You don't need the world to understand you. It's fine. Some people will never really understand things they haven't experienced. Some will. Be grateful.
+- We need, ultimately, to be able to view mental health with the same clear-headedness we show when talking about physical health.
+- Creative writing lessons can be very useful, just like music lessons can be useful. To say, as Hanif Kureishi did, that 99.9% of students are talentless is cruel and wrong. I believe that certain writers like to believe they arrived into the world with special, unteachable powers because it is good for the ego.
+- I want life. I want to feel it and live it. I want, for as much of the time as possible in this blink-of-an-eye existence we have, to feel all that can be felt.
+- Beware of the gap: the gap between where you are and where you want to be. Simply thinking of the gap widens it, and you end up falling through.
+- I think maths is the root of everything. If we understood every area of math, it would lead to improving our sense of science, physics, engineering, space travel... all those great things. Maths is a backbone for it.
+- Parents can only do what they think is best, with the experience they have. The learning curve for every parent is that there's a limit to how much they can shield children from.
+- In an age of never-ending health fads, it's comforting to learn that one of the healthiest activities you can do has existed for millennia. It's called reading. Yes, books are not just entertaining or educational: they can also improve your mental health.
+- Writing can be fun. I think the challenge is to convey interesting things in accessible ways, and that's what I aim to do in books.
+- You are no less or more of a man or a woman or a human for having depression than you would be for having cancer or cardiovascular disease or a car accident.
+- It can be difficult for people to talk about it, because there still is that stigma around mental illness. But I would encourage people to do that, because they'll be surprised once they do 'come out' how many other people have had similar experiences.
+- If you took away all pain, if everyone lived forever, everything would be bland, flat and boring; there would be no reason for art, music, newspapers, love because we would all be in a mono state of happiness.
+- Keep reiterating, again and again, that depression is not something you 'admit to.' It is not something you have to blush about; it is a human experience. It is not you. It is simply something that happens to you.
+- Teenagers are in some ways the best readers because their imaginations haven't been narrowed down by boring things like jobs and the realities of money and capitalism.
+- However much in the foreground depression feels, you are separate to it. This is going to sound cheesy, but I'd say you are the sky. A cloud comes and dominates the sky. But the sky is still the sky. Depression tells you everything is going to get worse, but that's a symptom. Don't give depression power - constantly discredit it.
+- I think we get too hung up on categories. Obviously, the book market has to categorise things, and it makes it easier for a reader to go into a bookshop and choose, but as a writer, it helps to get rid of all of that and imagine you are a storyteller around a campfire.
+- You have to be good. And keep getting better. For every writer taken on, another is dropped. A paradox: you have to rise to stay level.
+- To make 'depression' synonymous with 'dangerous' is as bad as saying 'Muslim' is synonymous with 'terrorist.'
+- My mum always said I devoured 'The Lion, The Witch And The Wardrobe' at the tender age of four, but frankly, I think that might be a touch of maternal exaggeration.
+- Look at the sky; remind yourself of the cosmos. Seek vastness at every opportunity in order to see the smallness of yourself.
+- To say that creative writing courses are all useless is almost as silly as saying all editors are useless. Writers of all levels can benefit from other instructive voices.
+- I'm not anti-progress, obviously, but I just think progress needs to be a broader thing than just the technology we can create; it's also how we handle it and our level of awareness.
+- I've always thought feminism had a lot to say about both genders, as it is hard to talk about one without the other. I think men and women alike would benefit from men having a more fluid idea of what being a man is.
+- Depression is a horrible, potentially life-threatening illness - but the lives it threatens are almost always those of the people who suffer from it.
+- The aim of any writer, even a fantasy writer, is the pursuit of truth.
+- Maybe love is just about finding the person you can be your weird self with.
+- I have never felt oppressed by women or that feminism is a problem. I do think boys find it hard to like things seen as feminine. I want my son not to feel self-conscious he likes ballet and my daughter to carry on playing Han Solo; that's all.
+- There are two types of friends: actual friends, and the other kind.

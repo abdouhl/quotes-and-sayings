@@ -1,0 +1,84 @@
++++
+author = "Michelle Carter"
+title = "Michelle Carter Quotes"
+quotes_len = "78"
+description = "the best 78 Michelle Carter Quotes"
++++
+- After a lifetime of feeling at home in my plus-size body, I was a 27-year-old having self-esteem issues. Clothes shopping stopped being fun and became a chore; I couldn't wear the curve-showing styles I loved without Spanx - and I worried that my new body would affect my training.
+- Even though I was dealing with all of these health issues, I was still doing well during my season. It wasn't the best season, but it was consistent. And I figured if I could be this consistent when I'm not my best, what happens when I get better, where could I be? So I wanted to see what I would be like on the other side.
+- I have to have my lashes. For me, it all sets the tone: I'm getting ready to go to work.
+- After the 2012 Olympics, I returned to training, but unlike in previous years, my off-season weight gain didn't melt off as soon as I got back to my routine. I was tired, and my clothes weren't fitting. I'd been diagnosed with hypothyroidism, which means my thyroid is underactive, and that slows my metabolism.
+- I'm in a sport where people don't look at us like women: they don't look at us like being girls or feminine. But I've been girly all my life, and so I couldn't separate... between the sport and being a woman.
+- The best piece of advice my father gave me was to always work hard. One thing he instilled: Proper preparation prevents poor performances.
+- You have 15-20 years of work for that one throw, that one moment. And I was like, 'Okay, Lord, this is it - you told me I had the victory. So this is the time to show me'. And I'm going to give it all I have because this is my last throw in the Olympics.
+- Anything can happen. Everybody is working to be on that team and to win the Olympic Games.
+- I've been to three Olympics. I gave it my all.
+- I love what I do and know I'm good at it. It helps that I can get financial support along the way.
+- For a couple of years, being professional, I kind of questioned myself. Should I wear my false lashes or take the time I want to take so I can feel good when I go out on the field? Because nobody else was really doing that. And I thought, No: I'm not going to change what I believe I should look like to fit anybody else's standards.
+- If you are feeling good, you look good, you are confident about yourself, you are going to go out there, and you will rock it.
+- You have to understand, everyone's body was built to do something. I was built to do something, and that's how I was built. I think the world is realizing we were promoting one body type, and there have always been many.
+- I learn how to put myself in situations at practice that cause me to zone in on what I'm trying to accomplish at meets. I try to make my practice surrounding as close to competition pressure to focus on what I need to do on the big stage.
+- We grew up listening to a variety of music, such as Gospel/Christian, R&B old/new school, jazz, blues, Mozart, Mary Poppins, Frank Sinatra, Barbra Streisand, just to name a few. I love opera, too - went to state in high school as a soloist.
+- My dad never wanted to push what he did on us. It was more, for him, if you chose to do this, then we're going to do it, and we're going to get it right. It was, 'I know how to do it. I'm going to teach you how to do it because I want you to be good at it.'
+- I was definitely a handful back then. I could not sit down long enough to study.
+- Accepting your body and body image is very important, because there are images that are put out in the media and in your face every day that you need to look this certain kind of way, that it's gonna take you far in life.
+- We definitely don't want to get in others' way while we're competing.
+- My first media interview was when I was a high school freshman and I was set to compete at state champs. The interview was the first occasion people had heard me on TV. When I watched back the recording on TV, I thought, 'Wow, is that what I sound like?' I didn't like the sound of my voice.
+- My advice is try something you've never done before or maybe something that's not as popular.
+- I love hair, I love make up, I love fashion, and I love throwing the shot put.
+- You need to have explosive power. So you need to have good agility to move your feet quick and be in the right place at the right time. So you have to be an overall athlete: you need to be in shape to be able to throw.
+- When you see somebody who always came so close, and they finally accomplish what they've been working for - to see someone excel and break through that barrier - it's a great moment not just for that athlete but for all of us.
+- Some people are meant to be bigger, and that's okay. Because if everybody was built the same, it would be a little boring. We enjoy the differences in each other, and I think that's what makes all of us beautiful.
+- We have to be ready to share our faith in Christ.
+- At my first Olympics, I didn't have a contract, and I wasn't making any money. After my first Olympics, I was working at 24 Hour Fitness at the front desk. I would go to practice in the morning, run home, shower, grab some food and then go straight to work. I didn't get off of work until 10 or 11 o'clock at night.
+- If I was to get nervous, then I'm wasting my energy.
+- I throw the shot put, people expect me to look like somebody named Helga and not put on make up to be considered serious about my sport.
+- It's cool because here everybody has the same goal. We're all competing for our countries. We're all coming down here to do our best. And we all are the best athletes in our own countries.
+- Of course, I can't wait until I get the medal and I can walk around the house and say, 'Daddy, I got you.'
+- Understanding how to compete better has really made a difference.
+- My body had to mature, and my mind had to mature. I had to put these pieces together.
+- Everybody wants to come out and win the gold, and sometimes it takes a personal best, sometimes it doesn't. But to be able to have all those pieces come together, it's a great feeling.
+- Fashion and beauty is a reflection of what's on the inside. And if you're genuine, they match up. The core of who you are will be the same.
+- The parents say, 'Can you talk to my daughter and say that it's OK? That she can have muscles?' They'll say, 'I show her pictures of you so they can know she's good at what she does but still looks like a girl. She wears dresses.' It releases people to be whoever they want to be in the sport.
+- By the end of the day, I just want someone to feed me.
+- I never focus on trying to beat somebody.
+- Depending on how slow I move that day, weight training will take two to three hours.
+- Winning a gold medal means you're the best in the world at that time.
+- Being a female athlete, sometimes your clothes don't fit right if you have a small waist and broad shoulders, or strong hips. And it's OK to embrace that.
+- It means a lot that my peers think so much of me that they would pick me to be their team leader.
+- I can't choose a favorite musician, because I love music so much that whatever/whomever I'm listening to at that moment is my favorite.
+- My mom called me 'Stinky Binky' as a toddler, and I started to refer to myself as, 'I'm Binkie.'
+- One of my sayings is: look good, feel good, do good.
+- I've matured - just growing up and learning more about my sport and more about myself.
+- The night before, I'll lay out the makeup I want to put on: a brow filler, a lipstick - there's a NYX red one that looks great with those Team USA uniforms - and my lashes.
+- I think it's important to do whatever makes you feel your best.
+- My family's so awesome. They help me be the person I can be.
+- Don't be afraid to try new things, because I just tried shot put not knowing my family history behind it, and trying it led me to the rest of my life.
+- I was not aware of what my dad had accomplished. I grew up with him playing football.
+- You have to grow up, and you learn things along the way.
+- For some people, being bare-faced is wonderful. Others like a little bit of mascara and eyeliner.
+- Black Girl Magic means that I have the power to overcome anything. Especially when we're in a world where you're told that you can't do something or you're less than, I'm reminded that my ancestors have overcome so much. There's still so much work to be done, and I have the power to overcome it.
+- I know that God is intentional with everything that He brings to me and what He does for me. I'm not here just to be here. God made me intentionally! He created me on purpose, for a reason! To throw the shot put for sure. That's one of the things I am created to do.
+- The first event I vividly remember was competing at the Junior Olympics in Seattle, Washington. It was my first major competition outside of Texas, and I remember being very nervous. I could not control my nerves, and I threw a few fouls.
+- God puts us in position to do the things we need to, both on and off the track, to honor Him.
+- Athletes can not look the same and be great in their individual sport. The example I like to use is Gabby Douglas. She could not flip in the air if she was built like me, but then Gabby Douglas couldn't throw the shot put. I was built like this because I was made to throw the shot put.
+- My goal is to peak big in Rio because my goal is to win gold.
+- My goal is to beat you whether you're clean or dirty.
+- I grew up in church. I don't know anything different.
+- I can walk in a room of people who may not know Christ and still be myself. And they can still see Christ in me even though they may not know who it is, but I know that they can see that in me and I'm carrying that with me.
+- I can actually dress up or bring my femininity in and bring my own flair and my own stout - and still be great at what I do. We're created different to be unique!
+- I can secretly sing. But I am extremely shy when it comes to singing in public.
+- I call him 'Daddy Coach.' He's taught me everything that he's known so I'm able to do what I'm able to do.
+- Rio has been absolutely epic. I did leave my heart out there, and I wanted to do everybody proud.
+- I just want to go out there and do my best. You can't argue with your best.
+- Learning disabilities do not go away, but you learn how to adapt. You may have to work a little bit harder; it may take a long time. You just may do it differently - but you can do it.
+- I just encourage young girls to be true to themselves.
+- The definition of insanity is doing the same thing over and over again, right? I always figure that as you experience life and things, you usually learn and pick up on things that you can do better. That's how I look at my career over time.
+- I'm very, very grateful for all the support I've had. It's been an amazing journey.
+- My very first sport was soccer. I used to play in goal, but after I was hit the face with the ball a couple of times, I was done with soccer.
+- My faith has always been part of my life.
+- I loved playing with a doll as a youngster. I liked dressing her up and combing her hair. This one doll had a really big face and hair and earrings. I had her for a long time and only got rid of her when I was at high school.
+- I pretty much eat at home all the time, so it's either eggs and sausage, scrambled together, throw some cheese on it, or some bell peppers and onions.
+- I gained over 100 lbs. that I could never lose. My hair was falling out. I was tired all the time. I couldn't maintain muscle. I had no energy. It gave me some relief that there was something actually wrong with me and I wasn't crazy, but it was really hard knowing that there is something wrong with my body and I couldn't fix it.
+- In college, I would do my teammate's hair and their makeup sometimes. I did a friend's makeup at the 2008 Olympics, and she said, 'Have you ever considered taking classes?' For some reason, it had never crossed my mind.
+- What I would tell a kid with ADHD and dyslexia or someone who struggles with anything in life is this: 'When you put your mind to it, you can do anything.'

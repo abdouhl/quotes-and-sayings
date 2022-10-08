@@ -1,0 +1,89 @@
++++
+author = "Tommy Lee"
+title = "Tommy Lee Quotes"
+quotes_len = "83"
+description = "the best 83 Tommy Lee Quotes"
++++
+- Most drummers are covered with a million drums, and everyone is like, 'What are you doing back there?'
+- No one really buys records anymore. You can look at sales and do that math real quick. Unfortunately, it's fast food in the music industry. People don't ingest full records anymore.
+- I was never one for the passenger seat. I have always wanted my level of entertainment and showmanship to be the same as a frontman.
+- The drums are about gravity. Your hand naturally falls down on the drums as you hit them.
+- It sounds kind of strange, but Jail time was almost a good experience for me.
+- The quad toms are a completely different animal than the standard drum set/trap kit. Playing wise and stylistically, they are two different beasts.
+- I did the marching band all throughout junior high and high school. Music was one of my favorite things in school.
+- I'm really a cool, mellow guy. I'm not as crazy as everybody thinks.
+- My father lived by the philosophy, 'Be yourself, because everyone else is taken,' and he made sure I did, too. Whatever I wanted to do, he supported me. I don't mean that I was spoilt - he didn't believe in material gifts - but he watched my back while I worked to achieve things.
+- I don't listen to anybody's full record anymore and when I did, I don't think I listened to the whole record. I'm sorry, and I don't care who it is, if it's the Beatles, I can't listen to an hour and a half of anybody straight so I guess that's just my personal preference.
+- I've always been kind of a - you know, I have my moments, where I can be Tommy, and then I flip a switch; when you're on stage, you turn into this other personality.
+- It's been a while since I've studied: since high school. It's a lot of work, a lot of work.
+- It's so funny because no matter what you say, fans only read and hear what they want.
+- The very first thing I look at on a woman is her toes.
+- Aerosmith's 'Rocks' is on the list of my top favorite albums of all time.
+- I really wanna get my paws on scoring a film.
+- I wouldn't specifically say rock n' roll is dead, but I don't see a lot of charismatic performers in the way of new blood who are edgy and dangerous on stage, like Marilyn Manson, who you never quite know if he's going to make it through his own show.
+- I've loved roller coasters since I was a kid.
+- I'll never forget when I was, like, 17, and 'Highway to Hell' came on the radio, and I was like, 'Dude, listen to that guy's voice!'
+- Of course drums weren't meant to be played other than sitting on the ground. When you're upside-down, your feet don't want to sit on the pedals.
+- Trust me: all of us walk around and look at each other, and without saying it, we all know we're thinking, 'Really dude? Were still here!' and pinch ourselves. Typically, careers have short life span, 10 years if you're lucky, so what we've done is amazing.
+- Being a drummer, I'm always like, 'Oh, that's got a funky beat. That's cool,' and I like to dance.
+- Too many drummers sit at the back covered in drums, and you never see them.
+- There's no new news.
+- If Trent Reznor calls and says he needs a drummer for his tour... I'm there.
+- Every tour we do, everybody's always wondering, 'What's Tommy Lee going to do next? What new, wild and crazy thing is he going to come up with?'
+- One day I would love to do rock a gig on the moon - how rad would that be? Isn't Richard Branson flying planes to outer space? Motley Crue could be the first band to play on the moon.
+- I've always loved the mixture of crushing live drums with a programmed groove, that really cool blend, like in the verse there's a really funky drum beat that is programmed then it comes in to the chorus; you've got that enormous human feel where the band kicks in.
+- I'm driven by music. It's in my blood, and I've never been able to stay away from it for too long.
+- I threw my son, Brandon, a rave for his birthday and I fully set it up like a crazy rave with lights and sound, me and my partner DJ'd - I got Mix Master Mike from the Beastie Boys to come DJ for a bit.
+- It's always interesting to me that we all hear music differently. It's an awesome experience to hear what other people hear.
+- Phil Rudd from AC/DC was someone I really liked a lot... Not because I was dazzled by his playing ability - he was just a rock, y'know?
+- Sometimes when you have children they're the opposites of you.
+- The crowd is a pretty good indicator when it's good, because it's kind of a universal energy that gets passed around.
+- Single's fun - you don't have to check in with your girl, but it's not easy. I do get lonely.
+- Going through life solo isn't very exciting if you can't share it with somebody, you know?
+- I'm constantly evolving as a musician.
+- On our first record, man, I didn't know what I was doing. I was just playing. I was over playing. You're as green as you can be with no experience in recording or knowing how sometimes a song can work: when it's too much, when it's not enough, when it's not right.
+- You know what's weird, I just write to write, with no intention, I just write.
+- Getting married in four days was the biggest... mistake I've ever made. I have two beautiful kids, but... how can you know somebody in four days? Bonehead.
+- I'm still that rowdy dude who has after-parties in his dressing room with a concert-sized PA system blasting away.
+- I don't have a problem with my temper.
+- I don't think anybody should ever touch anybody in anger, ever.
+- The older I get, the more I don't care what people think or what people say. I just do what moves me.
+- No, I don't have a problem with my temper.
+- The best thing about being rich is the freedom; freedom to do whatever you want whenever you want. It doesn't suck.
+- I guess I always think the people that know me or fans that have followed me and know my solo work would know that I've always had really eclectic tastes - even in Motley, dude.
+- I don't know how much you know about me, but I kind of have my fingers in a lot of different pies.
+- I don't specifically sit down to write a Motley Crue song, so for me, that's how it works. The things that sound like they might be Crue, I put aside on my hard drive and keep them in that pile.
+- When I'm single, I'm one guy, and when I'm in a relationship I'm totally another. They're both a good time.
+- I take the best of all the styles I like and put them together in one package.
+- When you're playing upside down, it takes twice the strength.
+- At 17, I signed a recording contract right out of high school, so I started touring and traveling the world. I sort of missed out on the college experience.
+- Whatever we do as a band, none of us can do as individuals. We all know that, whatever we have gone through with each other and as a band.
+- Whether I'm writing solo stuff, electronic stuff, or material for Motley, I just write to write. I come up with it and put things in different piles.
+- One of my favorite things in the world is to be seeing two people that are really old, still holding hands, still kissing.
+- I was always impressed by some of the progressive styles of guys like Neil Peart.
+- Nikki lives around the corner from me and I see him all the time. We talk a lot, and of course we're still friends. That was our baby, Motley Crue, we put that band together.
+- Being married to two extremely high profile, you know, actresses, and being sort of chased by, you know, paparazzi and people, it's a whole different dynamic happens to a relationship when that happens. All of a sudden, things get a little crazy, a little crazy.
+- Our music will continue to have an impact in people's lives long after we finally call it quits.
+- I didn't have the opportunity to go to college. I was busy touring since the age of 17.
+- Drums isn't my one thing anymore. I love to produce. I love to make tracks, write tracks, produce tracks, and I can't just sit back as a drummer anymore.
+- There was no way we were going to let this band hobble around on three legs. We chose the route that every professional actor, athlete and musician should do - leave the legend intact and bow out at the top.
+- Drumming's pretty physical. We sit at the back of the stage getting beat up like a workhorse.
+- I am such a gearhead. In my recording studio, I personally engineer and edit everything on computers.
+- I love touring Canada, and our Calgary fans are among the roughest and toughest.
+- I'm always getting injuries like bruised and bloody knuckles from catching a cymbal or the edge of a drum.
+- Playing upside down is insane. It's two or three times more difficult than what's normal. Your feet want to come off the pedals, your arms want to drop down - all of your body is fighting gravity.
+- I got really frustrated in jail, and I was like, 'Man, I love what I've done, and I love the mark I've made on rock n' roll history'... and I sat there, and I got really depressed, thinking, 'I gotta make a move... do something fresh and new.'
+- The horses forced into the chuckwagon races die of heart attacks, broken necks, broken legs, and other injuries. It'd be easy to get off on western tradition without this bloody spectacle. Dude, it's the Old West, not ancient Rome!
+- I don't need material things like gold and platinum records on my wall, Grammys or Hall Of Fame nods.
+- By the age of 17, for me, we had got an recording contract, and, boom, I was gone.
+- John Bonham was probably the most influential in terms of playing style and timing.
+- There are things you do that just come natural, and sometimes those are amazingly in synch, and sometimes they're horribly out of synch, and you're like, 'Ooo! That wasn't very good tonight.' Most of the time, it's just on.
+- There was a time when cowboys respected their horses instead of riding them to death just to show off for a crowd.
+- A lot of hip-hop artists wear fur, and they think it's a status symbol. That doesn't register for me; I just see dead animals.
+- The Radiohead record, The Bends is my all-time favorite record on the planet.
+- My oldest boy is 14, and he's not in that kind of awkward stage where, when we talk about girls, or there's a hot girl walking by - they're just so shy; it's weird.
+- My house is really clean. It's a really big house so I have three ladies who come in and clean it twice a week, but let's just say that, in between times, maybe it's not quite so clean.
+- I've always gravitated towards the beats, obviously. And when I was growing up, I always loved funk music or even - dare I say it - disco.
+- Why is it that the hot chicks never can sing?
+- The New York Dolls are the only band that we grew up on that we haven't played with.
+- You never know what's going to happen sometimes, or what you think's going to happen never happens, or when you least expect it, the Santana record comes along and just blows up.

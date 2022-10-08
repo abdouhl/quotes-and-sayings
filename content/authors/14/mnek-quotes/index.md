@@ -1,0 +1,93 @@
++++
+author = "Mnek"
+title = "Mnek Quotes"
+quotes_len = "87"
+description = "the best 87 Mnek Quotes"
++++
+- I had to have experience, you know what I mean? Because I've been doing this since I was 14... I couldn't write about anything at 14. I had to live some life. I definitely lived some life.
+- One of my best friends is quite into rap, and I'm always being introduced to music by him.
+- I am empowered by my friends in the music industry who are other fellow black men because I see them as my brothers; we have similar experiences and relate to each other.
+- I had so much fun working with the queens on 'Drag Race U.K!'
+- When I wrote 'Paradise,' it was going to be an interlude - like a segue from the song before. Then I just added more to it because everyone loved it.
+- I think that there's not always been queer person of color representation in pop and so I'm making the most of it because that is who I am.
+- I naturally make commercial music: it's never been a calculated decision to make pop music. I'm a genuine pop music fan.
+- The thing about Auto-Tune is it can't fix everyone. It only fixes pitch. Everything else - the emotion and the attack and the energy? That's what a singer is.
+- Having the opportunity to work with someone like Beyonce is definitely going to hopefully open a few doors.
+- They saw that it was a passion of mine from really young... My parents did a good job. They wanted me to win. They let me do all these things. If some old guy came to the house asking, 'I want your kid to sign a contract,' they were so open to it. Yeah, I credit them loads.
+- For me, I've written and produced for pop singers, but, like, female pop - I love that. I think it's putting me in the game that I love girl pop. All my writing is inspired by it.
+- I think anyone can actually sing. It's the mindset. Singing is imitation.
+- A lot of the time the K-pop fans are pleasant and enthusiastic and they really credit everyone who has been a part of their favorite artists' records.
+- I love Usher's 'Confessions.'
+- If I'm writing a tune with someone I'm making sure it's what they wanna say and it's articulating what they have to share.
+- I really enjoyed 2NE1's music; I really like BLACKPINK.
+- Schoolwork was always suffering! I hated school!
+- I myself identify as British-Nigerian, and I'm also gay, and I'm also a young adult in London making music. All of things can co-exist as one.
+- Girls Generation, I love their Teddy Riley-produced track 'The Boys.'
+- I'm a massive Mariah Carey fan.
+- When I'm doing a session for another artist, it's a very scheduled thing, and it's kind of imperative that I write a song in that time. But if I'm trying to write a song for myself and I don't have an idea that day, I just can't force it.
+- I'm very thankful that I'm in a position where I'll never be without a session. I'll always have someone who will want to get in the studio with me, or there'll always be someone that I'll wanna get in the studio with.
+- When it comes to me and alcohol, I have special drinks everywhere.
+- I love writing and producing but I don't think a lot of people know my artist stuff.
+- I'm touching people, helping people, and I'm making music I love. I like to think a lot of other black queer artists feel that way too.
+- I'm from Nigerian descent, and the classic Nigerian mentality is 'Stay in school! You're going to be a doctor, you're going to be a lawyer.' That is what it is. Thankfully my parents knew my situation was different because I definitely didn't want to be a doctor, I definitely didn't want to be a lawyer.
+- I don't feel pressure, I think there's fun to have. And I want to show that being gay and of color doesn't have to be a sob story all the time. It can actually be really jokes and empowering.
+- It's not that some songs are for radio and some songs aren't, I'm just making whatever I feel.
+- I started out writing and producing as a way for me to get the confidence to put out my own record and to learn and to really be a student of the industry.
+- The industry has always been accepting of gay artists, but a particular thing for me is to see gay artists of color.
+- I really love being an artist, but I make my money from songwriting.
+- I've never been massive on rap, but there's that whole kind of culture of U.K. rap.
+- I really like BTS' stuff.
+- I always knew I wanted to work in music. There was no plan B.
+- I've always liked discovering things.
+- Music is so transient. You've just got to move with it.
+- I signed my first publishing deal when I was 14, and it was from two records I put on MySpace.
+- There's an underlying sense with 'Tongue' that... it's really... it's real. I mean that in the sense that now I'm not afraid to touch on relationships and on my sexuality in my videos.
+- I think every song I do is specifically tailored to what I would say and how I approach situations.
+- I was someone who knew what they wanted to do for so long. I was always fascinated by music, always a student of pop.
+- There's always so much stuff to do. I work best when my diary just says 'MNEK, MNEK, MNEK.'
+- For me personally, I've always tried to exude positivity and I feel that it's important for all types of experiences of black men to be seen.
+- In reality, my parents knew that I was a vegetable outside of music. They have fears, they know how tough and competitive it is, but they're happy that there are a lot of people backing me.
+- I hated my early videos. I really did. I hated 'The Rhythm.' Hated it. It's not my vibe to have lot of white people jumping on trampolines.
+- I use Auto-Tune but it's not to mask anything. If you come to see me live, I can sing on the spot. Auto-tune is just for the recording. It keeps everything really precise.
+- There are so many amazing out, gay, black artists who are really great in their own fields, but they aren't necessarily trying to make pop music. I guess my thing is different because I am trying to be part of that world. But doing it my way.
+- I'm very conscious that a music video is beyond just a promotional tool for a song. It takes a song to the next level and it gives a song a new life.
+- 'Correct' is a song and an exercise for me where I've been able to reclaim who I am and the good that I've done when in real life sometimes I struggle with that.
+- One of my first songs I ever got a decent cut on was with a songwriter out of Xenomania, called 'All Fired Up' for the Saturdays.
+- The Big Music Project gives young people access to producers, managers, set designers, artists and a load of other industry insiders who are at top of their game. It can be difficult to know where to start and this project gives young people who are passionate about music, knowledge and hands on experience.
+- 'Tongue' is literally just one piece of the puzzle. This album is something I've worked on over the course of my entire career and something I've been discovering myself in it.
+- I lost a lot of weight. No carbs for a good six or seven months. It was tough but I looked hot.
+- I don't think there's been many chances for people to see a black, gay, pop experience and that's what I want to have with my shows moving forward.
+- I didn't always see someone that I could relate to, that would tell me that being Black and gay is okay.
+- I understand, as an artist as well as a producer, the need for there to be mystery and surprise.
+- That's the cool thing that music can do: make you feel this or that way. That's all I've ever wanted to achieve - I'm a music guy, you know? That's my occupation.
+- I mean, London has shaped me as a person. My parents are Nigerian so I've had the luxury of blending different cultures together just through my everyday life.
+- Everyone's journey as a gay man or woman is different; it's personal.
+- I think there's so many amazing LGBTQ artists, ranging from commercial to underground, that are influencing people at large.
+- My visual medium is my videos, and I've got to feel as though I can put my truth in that.
+- We have a lot of black British men who are killing it: John Boyega, Stormzy, Anthony Joshua, Tinie Tempah, and Idris Elba, of course. I see them as people I really admire and that's empowering for me because it means I am not alone in this.
+- I almost get quite scared talking about it. It's happened, obviously. I did meet Madonna and I did work with her.
+- I've been in situations where someone has told me that my video made them uncomfortable. This was a straight man, and I really don't want to have to worry about making him uncomfortable. I should really be worrying about my own comfort and me putting out the best art that I can.
+- I love '90s and '00s R&B, and those songs go on for ever.
+- If I'm writing a song for Karen Harding, I know I can't impose what I want to say onto her. I literally have to get into her headspace and think, 'what does she want to say?' When it comes to my stuff, it's the same. What can I write that's true to me?
+- That's the thing about creating. When you create, you create your own thing, whatever that is. It's always going to seep through in whatever you do.
+- I keep quiet and let the music do the talking.
+- I want more people to know who I am and I want to have the chance to tease my music a bit more.
+- I think the stereotypes many black men are put under, even in the entertainment world, can sometimes have a dark or negative undertone.
+- When I first came out, I was wearing full-on traditional Nigerian wear. I got told by a lot of people that I should just tone it down. I only stopped when I realized there's only so many prints you can wear.
+- I've waited for the day my debut album is released my entire life, so naturally I've designed it to be listened to from start to finish - so every song flows into each other in a way that tells a sonic story.
+- The way Beyonce works, the song is a jigsaw piece and then she will piece various elements.
+- Some of white middle America haven't seen a black gay guy in a music video before.
+- The perspective that I come from when I sing, when I perform, is of who I am as a black gay man.
+- I make pop music. I make music that is pretty commercial. But, at the same time, I'm a minority within a minority and it can be challenging. I feel validated about what I'm doing when I meet fellow black gay men or black gay women.
+- I often make a joke of my parents, because I come from a Nigerian background and there's a stereotype in the Nigerian community that all of us are going to be doctors and lawyers, and that's just how it is. But upon reflection, my parents were always really supportive of me doing music.
+- My real name is Uzoechi Emenike.
+- I've always been interested in fashion.
+- So the Madonna thing, I wrote a song with Diplo, she liked it, tweaked it and then made it her own and it became 'Hold Tight.'
+- I'm a musician, and I'm not interested in being in the Houses of Parliament.
+- I think 'Girlfriend' in particular is definitely one of the songs that is angled towards early 2000s, late '90s, R&B pop and those kinds of songs that were prevalent in that time. I don't think I was conscious of those songs in particular, but I'd say I definitely wanted a song that had that kind of vibe era wise in tone and all the writing.
+- I'm not really into beer, but I like tequila shots.
+- If you go to America, so many club nights finish at 1 A. M. and it's so lame.
+- I started making beats when I was nine in my bedroom and garage.
+- A lot of dance producers aren't really musical, they don't care much about detail.
+- I've been so blessed to work with all my favorite artists as a gay man.
+- This constant feeling of, 'I have to have everything figured out' is not going to get anyone anywhere.

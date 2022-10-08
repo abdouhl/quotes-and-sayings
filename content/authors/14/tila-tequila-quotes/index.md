@@ -1,0 +1,32 @@
++++
+author = "Tila Tequila"
+title = "Tila Tequila Quotes"
+quotes_len = "26"
+description = "the best 26 Tila Tequila Quotes"
++++
+- When people talk about someone you have preconceived judgments.
+- When I was still in high school I knew I wanted to live in California.
+- I'm one of the girls that you would love to have in your group of friends.
+- I'm not about hurting the person I'm with.
+- I just sit around at home, and I have nothing to do, so I am on the Internet all the time.
+- I do whatever my heart tells me to do.
+- I'm a woman, so I'm going to be woman as much as I can.
+- I've learned that no matter what I do, people are going to have their opinions.
+- I've found my calling with Twitter. It's all about the amount of interaction you do, and the traffic you move, and I'm really good at that. I keep going and going and going, and no one can believe that I can keep it up.
+- I mean, the media and bloggers may say otherwise, but in reality I have a lot of fans because I'm the only celebrity that actually takes time out to call them and talk to them. I don't think a lot of celebrities do that.
+- This is so cliche, but my beauty icon would have to be Angelina Jolie. She looks like she wears natural makeup, but she's still beautiful.
+- You don't want to be in a relationship with someone who's scared of you.
+- I don't want any dog to be put down.
+- My fans and people who know of my character want to see me become more successful.
+- I think every person has their own identity and beauty. Everyone being different is what is really beautiful. If we were all the same, it would be boring.
+- Music is just a really fun hobby that I do, because I'm actually really good about writing songs and producing. People don't realize this, but I am an excellent writer for artists.
+- Whoever I'm with, that's the person I'm with. That's the way I'm wired.
+- You can't have a conversation with someone who's intimidated by you all the time.
+- When I started on MySpace, people wanted to support me, but once I rose to fame with the MTV show, they felt like I had abandoned them for some reason, that I was too famous to talk to them anymore.
+- On a daily basis, jeans and t-shirt is still sexy, but it doesn't look like you're trying too hard.
+- As long as I'm not hurting anybody, I don't think that anything I do is wrong.
+- When somebody says something bad about you, they feel bad about themselves in some way.
+- I joined MySpace in September 2003. At that time no one was on there at all. I felt like a loser while all the cool kids were at some other school. So I mass e-mailed between 30,000 and 50,000 people and told them to come over. Everybody joined overnight.
+- There aren't that many songs that pay homage to the DJ. They are the ones getting artists' music out there. They are the ones getting the club popping. But no one's giving them any love.
+- It's not the '90s anymore. I think the gay community is a lot more accepted these days.
+- I knew out of high school I didn't want to go to college. I knew what whatever I did wouldn't have anything to do with college.

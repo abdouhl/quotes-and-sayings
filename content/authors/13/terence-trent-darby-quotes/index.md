@@ -1,0 +1,77 @@
++++
+author = "Terence Trent D'Arby"
+title = "Terence Trent D'Arby Quotes"
+quotes_len = "71"
+description = "the best 71 Terence Trent D'Arby Quotes"
++++
+- I think some people enjoy that I say things that upset or shake up people.
+- I've seen too many people who have been artists for a long time, on that cycle of record-promote-tour, and you look up and 10 years of your life is gone. I didn't want that to happen to me.
+- Some small part of what the artist does is for approval of others.
+- I obviously wouldn't say on nationwide TV that I thought America was racist, sexist, homophobic and violent if they asked me why I left. I would just say America wasn't a culture I felt comfortable in. But anybody with a brain would understand what I'm trying to say.
+- In some very real way, rock 'n' roll is like a religion to me.
+- I'm the type of person that, when it's my time in the spotlight, I'll do my duty in the spotlight. When it's not, and it's another person's time, I'll go away.
+- When I lived in England my perception of what people thought of me was largely formed by the media.
+- Terence Trent D'Arby is the vehicle through which Sananda will let his light shine. I don't know what Sananda means and I have not allowed myself to find out.
+- I'm not sure a lot of us in the music business or in rock 'n' roll are given credit for irony or humor.
+- Children are born with pureness, and gradually become distracted with all the little pressures going on.
+- I know that some people view me as a bit manufactured. But I can't be Whitney Houston: somebody who is polite and perfect and appeals to your mother and your grandfather.
+- The experiences and feelings I have are starting to outweigh the words available to explain them.
+- I have to follow my own vision.
+- Everybody wants to go to heaven but very few people are willing to die.
+- I change a lot. It's not easy to size me up. There are a lot of conflicts inside.
+- I don't think there is anyone I've ever met who has been more passionate about music than me, but rock 'n' roll has never been about just music. It is music, attitude, personality, persona, myth, legend.
+- In the first place, I was never a very outgoing, public person. That was a facade.
+- My album is better than 'Sgt. Pepper.'
+- I can only say this with all relative humility: I saw myself as a Beatle.
+- I don't have to worry about what the average record company person thinks because I am the record company person.
+- There's a part of me which feels content to leave songs in a vault not to be heard until after my death.
+- I've been privy to certain experiences which have allowed me to realize how fleeting time is, in any case, and how ultimately not important this is. 'This' being the things perhaps we trip on in life.
+- At the time of 'Neither Fish Nor Flesh's non-performance in the marketplace - I believe that's the expression - every single thing hit me at once. Legal situations, financial situations, the mother of my daughter and I were splitting up, everything.
+- It's imperative that I have another channel to pour ideas into, that have been with me for quite a while, that it would be hard for people to kind of accept on first listen. Some of that would be more classically based stuff and some more jazz based.
+- I always say that at some times you can lose perspective.
+- I learned that I can't be as indulgent as I'd like to be when I record.
+- I went from one day being toasted to being roasted.
+- I can stay in my house for a week straight without seeing anyone.
+- The system is very well regulated in L.A. It's designed to disconnect you from whatever your idea of yourself is. If you're among devils and they realise you're not a devil like they are, there's gonna be some great discomfort.
+- The version I got of Christianity was quite confusing to me, even as a child, because there were certain things that didn't add up.
+- The artist is inherently a romantic to some degree, and as such, I believe in a muse. But I don't try to analyze too much where it comes from.
+- As I meet more people who were my heroes, I see there is something about them that rings true with all I've ever read and heard about them, and that's all that really matters.
+- I don't want to be just the latest curiosity.
+- Real talent is mixing realism with bluff. Every great artist I really respect has a certain amount of bluff; sooner or later you have to be a conjurer, and conjure images.
+- You can't expect a poodle to guard your house the way a Doberman pinscher does, and you can't expect a Doberman pinscher to jump in your lap the way a poodle does. Some people are just animals of a certain nature, and they are always going to have certain impulses that motivate them.
+- I don't do many interviews.
+- I came around at a time when myself, Michael Jackson, Prince, Madonna and George Michael, we were considered kind of dangerous.
+- There are no calculations in the records I make. I record as many songs as I can. Songs that I think are my best.
+- The fact that you can even make a record and leave a document that you were here, that's nothing to sneeze at.
+- All artists are socialists until they see another artist with a bigger house than theirs.
+- Terence Trent D'Arby was dead. He watched his suffering as he died a noble death. After intense pain I meditated for a new spirit, a new will, a new identity.
+- It wasn't necessarily my choice to disappear.
+- I'm a genius.
+- If you state the obvious long enough, other people will pick up on what you're talking about and examine it. And usually they'll swallow it.
+- In Milan, I'm treated with the respect that doctors receive in America. It's wonderful living where artists are revered.
+- My 12 years in Los Angeles were hell! But I was sent to study hell and to learn as much from it as I could because there is no other place like hell for a full and complete education.
+- I am a holographic representation in the third dimension of what was requested by your souls that one of your favourite artists be.
+- Everything that, by the grace of the universe, I was able to become is the direct result of everything I went through.
+- One thing about Italians is you can't let them in your head. They're inquisitive. The English and Germans are a dog tribe; the Italians are cats. They're very helpful, but it's in their own rhythm, their own way, and it can drive you crazy.
+- I don't want to force my vibe on anyone, but you've got to learn to love yourself, as opposed to being in love with yourself.
+- I have a gut instinctive feeling that I will be as massive as Madonna, as massive as Michael Jackson... Whitney Houston, sure.
+- Our society and media have lost touch with the job of the artist. The job of the artist has been subordinated to the job of the record seller.
+- I think it is safe to say, as a huge fan of music, that between 1967 and 1972 was the renaissance of rock music. That's when all the forces combined together-the talent that was available and the freedom for the artists. The industry hadn't become so gigantic.
+- Looks are like honey: They'll attract flies, bees, bears, but they won't necessarily keep them.
+- I am not a greedy person.
+- I was aware of all the artists who make good debut records over the years, but no one hears them - and I wanted to make sure that didn't happen in my case.
+- You have to hit people over the head to make them notice, and I did it.
+- I seem to have been possessed by a mind of my own and I did not merely want to be a pop product, but I wanted to be an artist which was always my ambition.
+- That's all I think my job is, to make my own contribution.
+- I believe every major strength we have can be used against us as a weakness. At the same time, things that people see as weakness can be part of our strength.
+- It's like I'm coming to a realization that I'm not Terence Trent D'Arby. I'm the soul playing a role of this character that was written.
+- I do have some very strange thoughts... Still, all geniuses are mad aren't they?
+- We can tend to be too ambitious when we're young, and a little blind.
+- I just happened to be in Paris during one of the fashion weeks and was out one night at a table with a few supermodels. I was sitting next to Michael Hutchence of INXS and at one point I turned to him and said, 'I feel like the meat in a supermodel sandwich.'
+- I want to be a member of the team that helps in any way possible for the evolution of people's souls. Because too much encourages us to spend too much time with our lower nature, and we have a higher nature as well.
+- Everyone has a cross to bear. Sometimes I have to take the splinters out of my shoulders.
+- A lot of people wanted 'The Hardline, Part II,' and there was no way I was going to do that.
+- To carry a false persona is an extra burden. Who needs that?
+- Songs come to me and I hear them. At least in part, they are very complete; I hear the whole chorus, including the drum pattern, the base, the countermelody, the basic harmonic structure and the main thrust of the lyric.
+- So for my own survival and my growth, as a soul, as an artist and as an emotional being, it was best that I assume an identity I didn't have to fight anyone over or that I have to constantly engage in constant tug of wars and just reinvent myself.
+- I've always been blessed, or cursed, with perception.

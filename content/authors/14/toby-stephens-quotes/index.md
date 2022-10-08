@@ -1,0 +1,47 @@
++++
+author = "Toby Stephens"
+title = "Toby Stephens Quotes"
+quotes_len = "41"
+description = "the best 41 Toby Stephens Quotes"
++++
+- The Humpback Trail on New Zealand's South Island is really beautiful. It is a 70 km walk over about four days and is fairly arduous. You go through prehistoric forest and up to the top of Humpback Mountain, where there are amazing views down to the Tasman Sea.
+- When you have kids, you don't really watch TV anymore, and when I do, I binge-watch box sets of 'Breaking Bad.'
+- I grew up in the States and Canada for a while because my mum came over in the 1970s. We lived in Los Angeles for a couple of years and then moved to Canada for a few more.
+- I don't really want the kind of Englishness that I have represented.
+- Although I loved 'Black Sails,' 'Lost in Space' was like holiday camp after that.
+- I blub all the time, in the most weird situations - not in the ones that should make me cry. Music makes me very emotional.
+- As an actor, the only thing you have is your instinct and your imagination.
+- Whenever I'm doing stage, I want to be doing screen, and vice versa.
+- Quite honestly, as long as I am working, can enjoy what I do, get on with it, and put bread on the table, I am really happy.
+- Actors don't listen to each other. You're so obsessed with what you're saying or doing that the other person could be talking in Swahili and you wouldn't know.
+- I think all parts come with baggage unless it is a brand new play. If one was daunted by that, you would never do anything.
+- I love Scotland, mainly for its landscape. I like walking, and it's a great place to go hiking.
+- Prior to doing a 'Bond' film, I was a young actor doing classical theater and some BBC dramas. Then, suddenly, I was thrown into this franchise. I had never experienced anything like it.
+- My parents' parents were regular working-class people. I ended up speaking in a certain way, and one gets sidelined into doing certain parts. I think that is really quite narrow-minded.
+- Growing up, I went to many schools, and I had to fit in to many different types of environments with totally different social groups. It helps me out as I move from job to job.
+- 'Black Sails' was an amazing experience, but it was a really tough show for me to do. After four years, it was pretty exhausting because it was such a huge production.
+- I've been misconstrued because I speak in a certain way. I find it obnoxious how it defines you, somehow limits your ability to understand the human condition. You can't be allowed near emotions; you play these curling-lipped, haughty characters. This awful label - 'the posh Toby Stephens' - I'm not posh!
+- On the whole, I don't watch television.
+- I am a Londoner and I love my home. There are many things about this country which drive me crazy, but when I am in America, I feel wrong there.
+- I remember going to the cinema to watch 'Blade Runner' when I was 14 or 15. It was a huge flop when it came out. The cinema was almost empty. I was blown away by it.
+- I remember my parents being really on me about speaking in a certain way when I was young, I think because they came from a class that aspired to talk like that.
+- I've learnt an enormous amount from my children. Mostly that my agenda isn't the most important thing in the world. For a while, I was trying to squeeze them into my life. And it was such torment! It makes you realise how selfish you are.
+- I'm fair-skinned, so beaches are a bit boring for me. I'm either smeared in lotion or under a shade. However, I do love the sea - diving, swimming and snorkelling.
+- People assume that I'm an aristocrat, but I don't really feel part of any class.
+- Before children, it's kind of easy to be solipsistic - you and your wife are in this hermetic little thing, and your own desires, wants, needs, tastes dictate your choices. Then, suddenly, all of that's gone.
+- I would love to be in a Jimmy McGovern drama on TV, but there is no way he would ever ask me unless it would be to play a lawyer or something.
+- I was doing a lot of great theatre, but I just couldn't work out how to make ends meet.
+- I love travelling with my laptop because I get a bit nervous if I can't access my e-mails.
+- Since I've had kids, I thank God that I don't drink, as I really wouldn't have been able to cope.
+- You can't learn how to act; you can only really learn it through experience and practice and really finding what your voice is and what you want to be as an actor.
+- If I was to meet Lou Reed or Bob Dylan, I would be totally helpless. Writers and musicians make me feel completely starstruck.
+- I had a fantastic stepfather, so I didn't resent him in any way, although I was unnerved by him. He was not an easy man, although he was incredibly charming, gregarious, and fun.
+- I have a huge acting crush on Gene Hackman. I just love watching him.
+- Screen is satisfying because it's so technical and mysterious. It's like playing roulette: you get a script, you think it's either great or naff, but you have no idea how it will really turn out. On stage, you are your own editor - and you get brief moments of grace, where suddenly you feel free.
+- I watched a lot of American TV, all those repeats of 'Star Trek,' 'Fantasy Island,' 'M*A*S*H,' 'Lost in Space.' All that stuff was the fodder of my childhood.
+- If you're going to reboot something, reboot it in a totally original way that speaks to a new generation.
+- Drama school is really a forum for making a fool of yourself.
+- When I met with Anna Chancellor, I knew she was a kindred spirit. We got one another.
+- That's the privilege of being a grandparent - they can indulge the children while parents have to be the bad guy. Grandparents can also be subversive and naughty with them.
+- They sent me the script, and I was dubious at first. I said, 'Lost in Space? They're reviving that? They tried to do that with the film, and it didn't work.' And then I read the script, and I actually liked it.
+- Places like the National Theatre or Sheffield, these great engines of theatre, make us cutting edge because they can be experimental. They can do plays that nobody else can afford to do in ways nobody else can afford to do.

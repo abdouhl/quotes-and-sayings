@@ -1,0 +1,34 @@
++++
+author = "Anne Sweeney"
+title = "Anne Sweeney Quotes"
+quotes_len = "28"
+description = "the best 28 Anne Sweeney Quotes"
++++
+- I think the must-have power qualities for a female or male power leader are really the ability to focus, to work hard, to be extremely goal oriented and to not let the noise and the nonsense interfere with your mission - what you really feel you want to do with your career and your life.
+- The more opportunities people have to experience television on different platforms, the more television they consume overall. So there actually has been a benefit, but the ratings have gone down. But we've seen kind of the horizontal benefit of this. And it remains a great, great promotion engine.
+- Piracy is a huge, huge issue for all of these major content companies, and everybody has a different way of addressing it.
+- The more personalized television gets, the less passive the experience will become.
+- I really moved through my career based on curiosity about something. I never looked at a title and said, 'I want that.'
+- To have influence, you really don't need to have power. But what you need more than anything else is to have that almost uncanny understanding of what matters to people.
+- When you are producing for ABC, you are producing for a big tent network. So when you are thinking about your story lines and characters, you are thinking about broad appeal. When you are producing for a niche interest, you are producing for a different audience.
+- Our company has been very forward-thinking about digital technology and the opportunity that it gives us. As we move into a world where we have more and more devices at our disposal, that really means more and more opportunities for the Walt Disney Co. to reach you: through our entertainment, through all of our divisions.
+- Television has always been something you watch; now, increasingly, it is also something you do.
+- One of the things that is very important to me is how I feel about my team. And not just what their jobs are but what they mean to one another.
+- The value of the television network is partly tradition, serving as a navigation device and as a brand. Research shows that people do know and understand ABC as a brand, like Disney.
+- I am deeply honored that my team is being recognized by H.S.H. Prince Albert II and the Festival de Television de Monte-Carlo for Disney/ABC's role in creating television that inspires and captivates audiences wherever they live.
+- We saw Hulu as an opportunity to broaden our audience for ABC content.
+- 'Dancing with the Stars' is a great format for us. It's a format we license from the BBC, so that can't travel for us, but we consider it a great success. 'Desperate Housewives,' on the other hand, a huge success for us internationally. 'Missing' has actually sold to 80 territories before it's even gone on the air.
+- I look at power as the ability to get people motivated and to get them to do things that maybe they don't think are important but, in the end, are in pursuit of something greater than themselves.
+- I remember when cable happened and everyone said broadcast was dead, and then satellite happened and everyone said cable was dead, and then DVDs happened and everyone said everything was over. Nothing was over. I'm very optimistic about the future.
+- Today, television is the most powerful medium in the world. Tomorrow it will also be the most personal. There is no one future for television. It will be defined differently for everyone.
+- A good leader should focus on making sure everyone is being given the tools to do their job, not just expecting - poof! - that they're going to produce great work.
+- My theme song is always: 'Pay attention to your viewer. Follow them.'
+- I am so very honored to be the recipient of MIPCOM's 2011 Personality of the Year. However, the accomplishments that have led to this honor are not mine alone. They are the result of the tireless efforts of so very many talented colleagues.
+- I believe in having total clarity around our goals. I believe in creating these goals together as a group and making sure they're aligned with Bob Iger's goals for the Walt Disney Co. And more than anything, making sure people understand that they have a responsibility to one another.
+- I think we all realize the consumer has taken control, and they're not giving it back. So as every new technology comes forward, we have to figure out how to integrate it.
+- I see a lot of women of every age trying to be something else. I see them trying to imitate behaviors that they think belong to successful people.
+- If you have a great day at work and you've been hit with all these great ideas and there's a lot of excitement on your team, your mind doesn't turn off. For years I've kept a pad of paper and pen by me at night, because things just occur to you.
+- I'm naturally curious, and I've always been driven by my curiosity. Curiosity gets people excited. Curiosity leads to new ideas, new jobs, new industries.
+- Too many times, adults walk into situations, and people have already put them in a box: 'Oh, you write comedy.' Or, 'You're the development woman.' And it's not just our profession. It's hard to look at someone and say, 'What else is inside?'
+- Art has been good for my soul. And it's been good for my brain. I think I'm a better painter now than I was a musician growing up. You struggle to see things and translate an image through your hands to a canvas.
+- Our future is only limited by our commitment to keep the momentum going. Now that television has been set free from all constraints - including time, place, and all previous definitions - what comes next?

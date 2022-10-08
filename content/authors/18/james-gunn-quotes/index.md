@@ -1,0 +1,85 @@
++++
+author = "James Gunn"
+title = "James Gunn Quotes"
+quotes_len = "79"
+description = "the best 79 James Gunn Quotes"
++++
+- It's impossible not to constantly adjust the way you look at yourself.
+- Honest to God, for me, I've never been a guy to stack projects. A lot of these other guys, they like to do this and then line up what they're doing next and line up what they're doing next. I just can't do it.
+- I'm a huge Howard the Duck fan. For people who don't know, I'm a huge Marvel Comics fan, but Howard the Duck was maybe my favorite character as a kid. I went back, and I collected all of those comics. I had every comic he was ever in.
+- The truth is that I didn't start out making commercial movies. My films were not film festival movies with the possible exception slightly of 'Super,' but I was able to nurture my gifts through the works of artists making lower budget films that needed a place and an outlet.
+- I made 'Super' for $3 million, and that was filmed in 24 days. And that $3 million dollars went to a lot of things other than what shows up on screen. Once you get done with the unions and everything else, that's just, like, the basic cost of what you can make a movie for.
+- I don't think through anything I do. I just do it, and it's oftentimes landed me in huge amounts of trouble.
+- I love shooting movies. I love the shots. That's the thing that I love doing, and I've just never been able to do it.
+- Money doesn't buy happiness, but it does buy happier.
+- Science fiction always has had strains of pessimism and optimism weaving through its historical development, sometimes one dominating and then the other, usually depending on the state of the world.
+- For me, I'm always hard on myself no matter what, so that's always a thing I have to deal with on a daily basis.
+- It's hard making a movie because it's like... you lose your life. I mean, really, I like being alive; I like having friends, going out, watching other people's movies, and all these things I can't do for a year while I make a movie.
+- There will be a 'Guardians 3,' that's for sure. We're trying to figure it out. I'm trying to figure out what I want to do. Really, that's all it is.
+- Scooby's the greatest cartoon character ever. He isn't cute like Mickey or smart like Bugs or fearless like Woody and Buzz - he's a talking dog who's more human than I am. It's his humanity and imperfections that make him special.
+- The movies I like watching the most are these sort of cinema verite, handheld films where you really get gritty with people. But I also have this strange affinity for old Rock Hudson/Doris Day movies and things that sort of pop out where you see the frames, where you have these 2D animation moments and split-screens and things like that.
+- I'm a little bit twisted, so what makes me laugh the hardest doesn't necessarily make other people laugh.
+- I have to say, I feel a weird sort of calling in filmmaking that I didn't feel with other things. I feel like there are things in life you want to do, and then things you are called to do, and hopefully you can allow yourself to want to do whatever you're called to do.
+- I've been making movies a long time. I'm a professional at it. I'm not a professional at making soundtracks - that's not my job. My job is to put the right songs in the movie so the movie works the best it possibly can.
+- My girlfriend says I have frontal-lobe epilepsy. I have visions. They have slowed down as I've gotten older, but I still have them.
+- When I write a screenplay - and I think it's one of the reasons why it was frustrating for me just to be a screenwriter - I'm not thinking of it in terms of words on a page; I'm thinking in terms of visual images - basically, a comic book. I'm thinking of it in a series of shots.
+- Writing a comic book series, you're so reliant on whoever the artist is. It truly is collaboration.
+- I always felt restrained by lower-budget films. I enjoyed making them, and I felt fulfilled, but I really did always want to make bigger movies.
+- I've come to trust that what I like is what works.
+- When people go to the theater, people say they want something different, but what they really want is something the same with slight permutations. To really not know what is going to happen next is a hard thing.
+- I know, people have had different things to say about Marvel, about how creatively free they are or not free they are, but for me, the rule has always just been stay as good as I can possibly be, and stay one step ahead of the curve, and stay unique, and stay myself. And they seem to like that.
+- Let's face it: there's still a certain amount of racism in human beings, so that shows up in Hollywood.
+- A lot of people die in my movies. So if you're in a few of my movies, you have a good chance of dying!
+- Science fiction literature's focus is on ideas, the concept of change, and the impact on humanity. Those concepts are hard to capture on film. They work better in the mind.
+- I would never want to take on a sequel of someone else's stuff unless I was totally reinventing it.
+- I love raccoons. I had a raccoon figurine collection as a kid, and I now have two movies with 'Ranger Rick' jokes in them. I love 'em. They come in my back yard all the time, and we just stare at each other like a couple of idiots.
+- The popularity of fantasy surpassing science fiction and the popularity of apocalyptic fiction, particularly for young adults, may indicate a desire to escape a more difficult and confusing reality, even in astrophysics and particle physics.
+- I think that one of the things that drives me in telling stories, and art in general, is finding the beautiful in a big mass of ugly.
+- It's great being a producer! Why am I wasting my career writing and directing? Those are actual jobs in which you work. Being a producer, it's kind of like you just go to the set, yell at a couple of people, and then stay up all night dancing in nightclubs.
+- I am loath to suggest 'Visitor Q' to anyone, because you've got to have a warped brain to even understand or appreciate it a little bit. Fortunately, or unfortunately, I have been blessed with a warped brain, and I really dug it.
+- Maybe it's the feminine side of me, but I like that AM radio pop.
+- I'm in favor of anything that will give strong women more visibility in popular culture.
+- I am not into this old-school way of doing things, where you kill characters, and you bring them back, and then you kill them again, and then you bring them back, and their deaths mean nothing.
+- When you're on an independent film, you have a lot of great people there who are telling really true and authentic stories. But you also have a lot of con artists and people who think they can do something that they can't.
+- I like to be able to feel as many parts of myself while watching a movie at one time. I think that's what 'Super' is - it's funny, but it's also sad. It's very touching in certain ways, and it's also got a very dark sense of humor. So it's allowed to go anywhere.
+- I have a very strong imagination and have since I was a little kid. That is where a lot of my world comes from. It's like I'm off somewhere else. And I can have a problem in life because of that, because I'm always off in some other world thinking about something else. It's constant.
+- I'm the luckiest guy in the world. I got to direct a movie involving three of my favorite things in the world: space operas, Marvel superheroes and raccoons.
+- I don't have anything against corporate America. I mean, I guess there's something about living in a capitalist society that can get kind of terrifying at times.
+- I wrote a 20-page document, before I was ever hired, on exactly how the visuals of 'Guardians of the Galaxy' would be approached, how we'd look at creating a new type of space epic. That's exactly what the movie is today - absolutely everybody has adhered to that original document.
+- I guess I am an optimist in a pessimist brain, if that makes any sense. I believe in the innate goodness of most people in this world, and yet I'm a damaged soul like many other people and have my own demons and things I struggle with.
+- I can't be told life is beautiful through a normal positive thinking book or a Hallmark movie; that language doesn't work for me.
+- Science fiction writers aren't in the prediction business; they're in the speculation business, using 'hasn't happened' or 'hasn't happened yet' to create entertaining scenarios that may or may not anticipate future realities.
+- 'Belko Experiment' was the harshest, most extreme movie I ever made. But I still think there's a very cohesive center to it that wasn't always in my early films. And that isn't necessarily a bad thing. But I think it's a commercial thing.
+- 'Monty Python And The Holy Grail' is a hugely important movie to me. I remember watching it for the first time on cable when I was about 13 years old.
+- I was the kid in the neighborhood that was directing everyone else. I was director from the time I was a child.
+- When 'Blade Runner' came out, and especially, even actually when 'Alien' came out, it kind of changed how all science fiction movies were designed after that. And that was a really great thing. Now we're watching a lot of movies that are Xeroxes of Xeroxes of Xeroxes of Xeroxes of 'Blade Runner.'
+- By isolating the issues of race, gender, sexual orientation, climate change, environment, governance, economics, catastrophe and whatever other problems the present embodies or the future may bring, science fiction can do what Dickens and Sinclair did: make real the consequences of social injustice or human folly.
+- I think of the Avengers as The Beatles, and the Guardians are the Rolling Stones. That is really how I feel about the groups.
+- Let me tell you one thing: there is no more cutthroat place to be than an independent film. Disney is a cakewalk after that - that is no lie.
+- My favorite dark comedy, which is also one of my favorite films of all time, is 'After Hours.' I've seen 'After Hours' as much as almost any film I've ever seen in my life; I've watched it dozens of times, and I still watch it once a year. I still get a thrill out of it every time I see it.
+- Definitely, 'True Detective' was a great example of one director, one story. It worked fantastically well. Well, I thought it worked fantastically well; I know a lot people didn't.
+- If I get a gig or I don't get a gig, I really have never, ever, ever cared.
+- I was as huge Spider-Man fan as a kid, but I really liked The Defenders a lot. I was also a big Moon Knight fan for some reason.
+- Comics were not something that as a young kid you could say you were into in Manchester, Missouri. Kids did not read comic books back then.
+- I feel like I've kinda danced around telling the truest story I can for many years of my life. I've been a little distracted by trying to be shocking or edgy or cool or whatever, and by letting go of that and telling the truest story I can - even if it's about aliens and talking raccoons - it works.
+- I love 'Empire' - it's my favorite of the 'Star Wars' series.
+- I like the Nova Corps; I just don't like Nova that much! He's okay, you know? I just don't like that helmet!
+- When I was a kid, I was obsessed with different planets in the solar system, and I used to create, for every single planet, a different alien race with a certain kind of pet, a certain kind of house, a certain kind of water system, and everything. I would draw these pictures. I had hundreds of these pictures in a box.
+- Getting so much attention all at once, with so many people who want something from you or want to talk to you... for someone who is overly sensitive to other people's needs, that can be difficult.
+- Movies aren't machines. They interact with our brains.
+- In a way, metafiction breaks down the story and makes it less real. But in another respect, by that very breaking down, it actually makes things feel more real than they would to begin with.
+- I would say the main thing is, don't just copy yourself, which is what a lot of sequels do. And in some cases, it works. Like James Bond movies. But James Bond is a different type of character.
+- One rule of invention: before you can invent it, you have to imagine it.
+- I saw 'Fifth Element' once when it first came out and never thought much of it.
+- I always like to think that I make movies that are like Nirvana songs. They have a slow verse, and then they pop into high gear, and then they go back into slow, and then they pop into high gear again.
+- I don't see a big difference between the job of directing a low-budget movie and the job of directing a big-budget movie.
+- My life isn't just one genre. It's a romance one minute, an action movie the next - it's actually rarely, rarely an action film, to be frank.
+- That is who my people are - the oddballs, the rebels, and the geeks. That's what I am, so it's what I naturally feel connected to.
+- When I was a small child, I partially learned to read with comics, in particular with 'Scamp,' about the Lady and the Tramp's male child. That was the prime comic that made me fall in love with comics as a kid.
+- I like Jason Statham movies, like 'The Transporter' or whatever. I watch them all the time when they come on TV. Then I saw 'Crank,' and I couldn't believe how awesome it was.
+- When I got hired to do 'Guardians,' it was the dream of a lifetime for me. This is what I've been working towards. I've always wanted to create a space adventure, and especially a space adventure with a raccoon. Now that I'm finally able to do it, I created exactly the movie I wanted to make.
+- For the theatrical experience to survive, spectacle films need to expand their definition of what they can be. They need to be unique and true voices of the filmmakers behind them. They can't just be copying what came before them.
+- I love the attention and I hate the attention, you know? It's not always good for your soul.
+- I've always believed in the power of rational thinking and behavior as the savior of the world, and science fiction as a powerful medium to encourage that, which explains my signature line, 'Let's save the world through science fiction.'
+- One of the things that we've tried to do with the 'Guardians' films is to allow the women to be full characters.
+- The majority of my life is 'Guardians,' but being able to clean my brain a little bit by doing something totally different like 'Belko' was incredibly helpful to the creative process.

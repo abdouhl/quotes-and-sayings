@@ -1,0 +1,30 @@
++++
+author = "Michael Tilson Thomas"
+title = "Michael Tilson Thomas Quotes"
+quotes_len = "24"
+description = "the best 24 Michael Tilson Thomas Quotes"
++++
+- Being a conductor is kind of a hybrid profession because most fundamentally, it is being someone who is a coach, a trainer, an editor, a director.
+- But if I can be convinced and then through the work that we do together, the orchestra can really be convinced of the big sweep of that communication that the piece suggests, then the audience will get it and it will be a good experience for all of us.
+- I think music needs to be presented in a way so that kids can grasp songs, dances, simple music that's associated with some particular defining moment in human experience.
+- In earlier times, so many people sang much more. You know as a kid you'd go to some kind of religious training and or summer camp or whatever it was and you'd learn to sing a lot of songs.
+- The whole path of American music has been so much about the recognition of stylistic diversity, and the recognition of the importance of music which was from one of the vernacular traditions.
+- Earlier in my life, I performed a lot of music. Some of it because I felt it was a demonstration, or a representation of certain intellectual concepts that were very exciting and important.
+- Conductors are performers.
+- It's kind of scary sometimes, I've seen this a lot in Asia. Children are given music lessons, very intensively I might add and involving great technical expertise sometimes, but you can tell that they have been told only to play happy pleasant music.
+- But without the experience of actually singing or playing these things yourself, you don't have the same kind of involvement or understanding of what these musical moves mean. And that is a very big problem in addressing the future of music.
+- But a large symphony orchestra basically is a repertory company and it has a very enormous repertoire and it is important for the performers to be able to know how to shift focus so that they instantly become part of the sound world that a particular repertoire demands.
+- Being an American musician means being adventurous.
+- But some people will say you just did these programs. Well, yes, the programs are important and I'm proud of the programs, but mostly I'm proud of the way the San Francisco Symphony plays these programs.
+- But those musics do not address the larger kind of architecture in time that classical music does, whatever each one of us knows that classical music must mean.
+- I can't do pieces I only admire technically. I have to feel some direct contact with them.
+- But still as compared to many, many orchestras in the world, I think you find a lot more new music and living composers on our programs than many other places.
+- But you know in the contemporary art world, you pose a very interesting conundrum. All sorts of people collect very contemporary art, yet when it comes to the music which is analogous to that sort of art, they are not interested, or perhaps even hostile.
+- If we are able to get inside the music and inhabit it convincingly enough, it will cause everyone to find each other in this new psychological space. And that's most exciting.
+- The first year I started in San Francisco, there was an American work on every program and there's been a lot of music by living composers and gradually that was part of the process of getting the audience really to trust me.
+- And at the same time, you are of course a performer, but it's very important that you understand that your role as a performer is to get the best performance from those wonderful colleagues that you have the chance to work with.
+- You know, they were returning to the language of the people and trying to use musical language, particularly as Copland did to create a musical language in which all Americans would feel that they had a stake.
+- Extreme volume in music very often disguises a lack of actually important content.
+- When I first was conducting as guest conductor in Europe 25 years ago, I would propose doing American pieces and grudgingly it would be accepted from time to time.
+- And what classical music does best and must always do more, is to show this kind of transformation of moods, to show a very wide psychological voyage. And I think that's something that we as classical musicians have underestimated.
+- They are representations of many shared hours of collaboration between us all. That's the real nature of the relationship the orchestra and I are trying to build.

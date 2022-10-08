@@ -1,0 +1,23 @@
++++
+author = "Kathy Najimy"
+title = "Kathy Najimy Quotes"
+quotes_len = "17"
+description = "the best 17 Kathy Najimy Quotes"
++++
+- I believe that we all have the potential to love any human being, and that genetics, upbringing, choice, social conditioning and environment play a major part in which way we sway.
+- It's really not the genre for me, or the venue, it's the writing.
+- There was a time when I was 312 pounds. And I've been all different weights.
+- I recently lost 50 pounds. I'm hovering on the cusp of a size eight, which seems unbelievable.
+- I believe that we all have the potential to love any human being, and that just love who you wish and celebrate it the best you can.
+- I always laugh and say, 'Dudes, if I have to choose, I'm a political person first. I would never do another movie again and be completely happy.' I need to say how I feel.
+- I'd hesitated to have a wedding because my gay and lesbian friends don't have that right.
+- When you're not blond and thin, you come up with a personality real quick.
+- It really depends, but, generally speaking, just because of the mechanics of it, voice-over is easier because there is no hair, no makeup, no wardrobe, no fittings, no line memorizing. You don't have to me woken up in Russia at 6 in the morning and go film a scene. It's just easier on the body, the family life to do voice-overs.
+- When I was heavier, I danced and I jumped out of planes. I've always rejected the idea that there's a certain look or size that makes it acceptable to live life.
+- I've learned that a family can have little glitches without being labeled dysfunctional.
+- First and foremost, I'm a feminist. And basically that stems from a strong belief that all people and creatures deserve equal opportunity, rights and respect.
+- Who'd ever have thought that I'd be the face or the body of any kind of exercise at all.
+- It's a sad day when a cartoon is doing more and cares more and pays more attention to the environment than our president.
+- I just say that at any weight you should love your life.
+- Love is a gift.
+- I'm always for the person who speaks their mind.

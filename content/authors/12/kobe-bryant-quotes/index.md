@@ -1,0 +1,58 @@
++++
+author = "Kobe Bryant"
+title = "Kobe Bryant Quotes"
+quotes_len = "52"
+description = "the best 52 Kobe Bryant Quotes"
++++
+- Sports are such a great teacher. I think of everything they've taught me: camaraderie, humility, how to resolve differences.
+- It's different from being 21 and you think there's endless amount of opportunities. At 33, the ending is much, much closer.
+- I'll do whatever it takes to win games, whether it's sitting on a bench waving a towel, handing a cup of water to a teammate, or hitting the game-winning shot.
+- The only thing I'm afraid of is bees. I don't like bees. I'm allergic to them.
+- People just don't understand how obsessed I am with winning.
+- I've got four dogs, and I just don't do dog doo. I'm a diva when it comes to that.
+- If I panic, everyone else panics.
+- I've played with IVs before, during and after games. I've played with a broken hand, a sprained ankle, a torn shoulder, a fractured tooth, a severed lip, and a knee the size of a softball. I don't miss 15 games because of a toe injury that everybody knows wasn't that serious in the first place.
+- Eeew, I'd be a little uncomfortable Googling myself. People sit there - and Google themselves? That's kind of weird.
+- In an individual sport, yes, you have to win titles. Baseball's different. But basketball, hockey? One person can control the tempo of a game, can completely alter the momentum of a series. There's a lot of great individual talent.
+- If there were camera phones back in the day, the biggest athletes in the world would have had a lot of explaining to do.
+- I'm here. I'm not going anywhere. No matter what the injury - unless it's completely debilitating - I'm going to be the same player I've always been. I'll figure it out. I'll make some tweaks, some changes, but I'm still coming.
+- One thing you gotta know about me is I have absolutely no filter. I have no problem saying what the hell I think of someone.
+- Christmas morning, I'm going to open presents with my kids. I'm going to take pictures of them opening the presents. Then I'm going to come to the Staples Center and get ready to work.
+- The topic of leadership is a touchy one. A lot of leaders fail because they don't have the bravery to touch that nerve or strike that chord. Throughout my years, I haven't had that fear.
+- The Black Mamba collection of watches is me: It is my alter ego, so to speak. As I mentioned before, it is sharp, cutting edge and sleek which are characteristics I try to apply when I'm out there on the basketball court.
+- It never bothered me when people would say, 'You only win championships because you're playing with Shaq.' It bothered me when he said it.
+- I can't relate to lazy people. We don't speak the same language. I don't understand you. I don't want to understand you.
+- Twitter is great to connect with fans and be transparent. I enjoy that aspect about it. But really, I'm still trying to figure it out.
+- What people see on court is another side of me; it's not me.
+- I'm reflective only in the sense that I learn to move forward. I reflect with a purpose.
+- I draw from the crowd a lot.
+- Pooper scooper? Yeah, I've done it a few times. Every once in a while, you have to.
+- I don't want to be the next Michael Jordan, I only want to be Kobe Bryant.
+- We all know what flopping is when we see it. The stuff that you see is where guys aren't really getting hit at all and are just flailing around like a fish out of water.
+- Magic has five championships. I have five championships. I'm pretty sure we both know what we're doing.
+- I don't talk trash often, but when I do, I go for the jugular.
+- Everyone looks at your watch and it represents who you are, your values and your personal style.
+- I love going one-on-one with someone. That's what I do. I've never lost. It's a whole different game, just to have them right in front of you and be able to do whatever you want.
+- These young guys are playing checkers. I'm out there playing chess.
+- I have self-doubt. I have insecurity. I have fear of failure. I have nights when I show up at the arena and I'm like, 'My back hurts, my feet hurt, my knees hurt. I don't have it. I just want to chill.' We all have self-doubt. You don't deny it, but you also don't capitulate to it. You embrace it.
+- Everything negative - pressure, challenges - is all an opportunity for me to rise.
+- You want me to own a team and deal with these rich, spoiled stubborn athletes, and try to get them to perform? No thank you.
+- Can I jump over two or three guys like I used to? No. Am I as fast as I used to be? No, but I still have the fundamentals and smarts. That's what enables me to still be a dominant player. As a kid growing up, I never skipped steps. I always worked on fundamentals because I know athleticism is fleeting.
+- The most important thing is to try and inspire people so that they can be great in whatever they want to do.
+- My parents are my backbone. Still are. They're the only group that will support you if you score zero or you score 40.
+- Winning takes precedence over all. There's no gray area. No almosts.
+- It's disgusting, but my father taught me when your mouth gets dry, just suck the sweat out of your own jersey. There's no bravado to any of it; it's just a disgusting little trick.
+- I don't think a coach becomes the right coach until he wins a championship.
+- If you're afraid to fail, then you're probably going to fail.
+- There's been a lot of talk of me being a one-man show but that's simply not the case. We win games when I score 40 points and we've won when I score 10.
+- I like playing for the purple and gold. This is where I want to finish up.
+- Dropkick Murphys get me going, Red Hot Chili Peppers, Nirvana... plus, all the regular hip-hop stuff.
+- At the end of 2003, my game was complete. Shooting, defense, using the dribble, transition, midrange stuff was all there. Then it was about fine-tuning and trying to improve in each area.
+- The important thing is that your teammates have to know you're pulling for them and you really want them to be successful.
+- I'm more than comfortable just sitting back and scoring 21, 22 points or whatever and getting 10, 11 assists whatever the case might be. More than comfortable with that. It's just a matter of the pieces that you have around you and what you can do to elevate everybody else.
+- The people who truly know me know what I'm like. There have been people who try to say things that aren't fair, and I check them. And then they don't like me because I checked them.
+- I'm extremely willful to win, and I respond to challenges. Scoring titles and stuff like that... it sounds, well, I don't care how it sounds - to me, scoring comes easy. It's not a challenge to me to win the scoring title, because I know I can.
+- I'm not the most patient of people.
+- I'm chasing perfection.
+- I focus on one thing and one thing only - that's trying to win as many championships as I can.
+- It's hard for me to grasp the concept of somebody being nervous when I'm talking to them.

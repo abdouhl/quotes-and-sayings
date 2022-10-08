@@ -1,0 +1,105 @@
++++
+author = "Mel Giedroyc"
+title = "Mel Giedroyc Quotes"
+quotes_len = "99"
+description = "the best 99 Mel Giedroyc Quotes"
++++
+- I'm very competitive about puns.
+- People can now get to see anything they want, in any shape or form, anywhere, on laptop, iPad or 'phone. What's not controllable, though, is the live element. So there's still a real thrill for TV viewers in watching actors pulling it all together and performing live, and a real challenge for the actors.
+- I think if you're 50 you just ruddy say it.
+- I feel very warmly and joyfully towards BBC Children in Need.
+- Only now that I'm a mum can I fully understand the terrible pressure parents feel buying presents for their kids. My mum had four children plus all of the extended family and she not only had to feed us all but she bought presents for everyone, too.
+- It was very hard not to get utterly and wholeheartedly drawn into the stories on 'The Gift.'
+- The Gift' doesn't deal with the neat, tie-me-up-with-a-bow kind of stories - they are grittier, messier, and not all of them have a happy resolution. You are following people and events that are more difficult, more elusive, and therefore harder to pin down.
+- We human beings are very dark, strange things.
+- I would not describe myself as the best Catholic - I'm a bit of a cherry-picker. I like the community of it.
+- I got into Cambridge and it all went downhill.
+- I'm really proud of 'The Gift.' There are stories we can all relate to - a first love that went wrong, a person who bullied us at school, a kind person we took for granted.
+- My father describes himself as a Pole of Lithuanian descent. At Southampton University, he read aeronautical engineering and then the family moved to Hong Kong - this was before I was born - where he designed aeroplanes. Back in the U.K., he worked as a civil engineer, although every spare minute was spent researching his family's history.
+- I've spent my entire life spelling my surname.
+- Performing on radio is great, you roll up with no makeup in pyjamas and nobody will know.
+- Mum was in her early 50s when she had four strokes in quick succession that almost took her off. I'd just come down from Cambridge with a rubbish degree. I spent a year reading to her - her eyesight was badly affected - and making sure she got proper rest. It was a special time but very intense, too.
+- At school in the 1970s, no one cared about bullying. I spent the first four years being the apple of the teachers' eye and being bullied for it.
+- It feels like you are in your own little bubble when you film 'Bake Off.' There is no noise, the outside world doesn't exist when we are filming. It's us, the tent and the bakers.
+- I probably go to church two Sundays out of four.
+- My daughters have become little judges. If I do produce a baked item, they tut at the soggy bottom and advise me to try harder next time.
+- I don't have a problem with the concept of a box set per se - we have many of them merrily lined up on the shelf above the telly. No, what gives me the pip is the fact that I'm never going to watch any of them.
+- The strength of 'The Gift' is that the people featured and their stories are given the space to speak for themselves.
+- The Bake Off' can get emotional, but 'The Gift' is a whole different league!
+- I've never seen 'Light Lunch' - only clips. But I do remember from those clips that there was a lot of bounding about and energy and I think that's probably slightly lessened over the years.
+- There have been a lot of technical advances in the bra industry over the years, (such as those with Cellophane straps that are supposed to look as if you're not wearing them), but the maternity bra is still stuck in the 1940s.
+- Maternity bras are the Alcatraz under-wear. If they were a door they'd have a mortise lock, a padlock and the rest.
+- I had to go to an audition for a rather large West End musical set on a Greek island. I didn't realise that you had to go with sheet music to give to the pianist. I took a Mark Bolan CD, a small ghetto blaster and then sang along. It was absolutely appalling.
+- I don't like it when people leave their takeaways on the street: it makes me sad and it draws foxes and rats.
+- I'm not on Twitter because I'm worried I'd be really dull, which would be tragic for someone who's supposed to be funny.
+- We love live because of the roughness round the edges, the excitement, the madness, and stuff going off on all sorts of weird tangents. It's like hosting a jolly in your house. We're welcoming people in and giving them snacks.
+- Normally we go in, we do a series and then that's it, we're axed!
+- I'm always ludicrously early/on time.
+- I know things can go pear-shaped.
+- I take each thing as it comes and try and give it 110 per cent - it's just a blessing to be able to do different things.
+- Give more acting roles to 48-year-old half-Lithuanians who just don't want to be pigeon-holed as bakery presenters.
+- I love performing in front of a live audience and just stepping out in front of ruddy Royal Albert Hall is just something, I can't describe it.
+- I can't speak for every mum but once you have children, I find that I don't really get through the day without grinning about five times!
+- I don't want to take things for granted.
+- Mum and Dad have both got very well-tuned senses of humour.
+- For me, Christmas was always about presents. As a child, we each had an allotted place in the sitting room for the ceremonial unwrapping and mine was perched beside the telly on a Moroccan pouffe. We would watch our mum with bated breath as she divided up the gifts.
+- My siblings and I have got the worst teeth in Britain.
+- I love them all, there is not one member of Take That that I do not love.
+- As someone who is a dedicated fan of the NHS, I'm extremely worried, I think its a very precious thing that needs to be nurtured, looked after.
+- Family is everything to me.
+- I bloody love transport and plotting a route through London.
+- This business is fickle. You have very good patches and less good patches, but you learn to ride them out. As long as you don't take yourself too seriously, you'll be fine. When you lose sight of that, you're in trouble.
+- Eurovision' lifts you off your feet - and, by that, I mean the absolute joy, total insanity and madness of the whole thing.
+- At Trinity College there was a coterie of the poshest of the posh, people you didn't ever see, they were so posh. They went to each other's rooms and, at weekends, each other's estates. I preferred to be with the weirdo bunch of raggle-taggle thesps.
+- My job with Sue on 'Bake Off' was to look after the bakers - and to be honest, a lot of that was done off screen as well as on screen. It's very much the same on 'Let It Shine.' You get to know people, you get involved, you want things to be alright.
+- We all have somebody in our lives, that however closely related or not, is affected by terminal illness and these amazing nurses, who often work through the night with people, not only suffering from a terminal illness but their families, they're just extraordinary people.
+- The Bake Off' taps into nostalgic feelings about your mum baking in the kitchen. It's a big ruddy comfort blanket, and you get attached to the bakers. It also genuinely has a good heart.
+- People are used to seeing me with Sue but for Sue and me, the most important thing is always going to be our friendship. We were mates at university - very close mates - long before we did any telly. The work is like a nice little cherry on the cake.
+- When you have a baby in showbiz, people think you've died.
+- The world is such a blooming topsy-turvy, fragile, bleak place.
+- Funders, financiers why don't you support childcare? Make it a budget line in your productions and please please let's not be ageist.
+- I'm not a trained actor, so there was always going to be a certain amount of bringing my own... I was going to say skills but they're not really skills, it's just stuff that I know how to do I suppose.
+- We would pay for our own shows, we would put them on, we did everything ourselves, so I've always totally loved being on a stage in front of an audience, that is where I feel most happy really.
+- It's a very basic, simple idea, isn't it - saying thank you, saying sorry - and in the overcomplicated, over-busy world we live in it is very powerful.
+- I'm the youngest of four in a large, exhibitionist family. The only way to get attention was to throw yourself off the top of a ladder - as one of my cousins used to do - or make people laugh.
+- You can't hurry a loaf of bread. You have to wait for it to prove and rise.
+- Look at someone like Mary Berry, for God's sake, that woman is just such an inspiration... what's to say you can't do stuff for years and years and years?
+- I love a bit of Saturday-night TV.
+- Christmas traditions are important in my family. Being half English and half Polish-Lithuanian, we have two separate celebrations.
+- I talked to friends who are actors and who do Shakespeare loads, and they all said 'learn it so that your family wants to clobber you, they're so bored.' You can never relax, that's the problem, because when you do, a bit of Shakespeare comes up to bite your cheeky behind. It just does, if you're not really focused on it.
+- I feel very lucky. 'Bake Off' has opened more doors for me. I was so delighted to get the job.
+- Hate showers, they're weird.
+- There is a baked item in the show, I'm there.
+- A bloke once yelled out: 'You've got chubby knees.' I was 19. I've had a real complex about my knees ever since.
+- I'm completely recipe-bound. Everything has to be prepped and laid out in separate bowls with a Do Not Disturb sign on the door. I've no flair.
+- You can do a lot worse than spend an hour a week singing. We should prescribe choirs on the NHS for anxiety and stress.
+- I don't like it when people lie about their age.
+- My problem with present buying is usually lack of time. Not because I'm super-busy, I'm just super-lazy. I leave everything to the last minute and end up running up and down the high street on Christmas Eve like a crazed baboon.
+- It was an honour to be asked to do 'The Gift.' The producers took a risk asking me because, coming from a comedy background, I am not known for this kind of highly-charged, emotional show.
+- I wish I could play electric guitar.
+- My kids both had Catholic junior school education, which I'm really glad for - it taught them how to be compassionate, how to be kind.
+- The older I get, as well, bloody hell - time's running out. I just feel, jeez, there's so much to do. I'm not going to try to change the planet but make changes just in a small way.
+- I had to sit down and promise the kids I would no longer have any spray tans. My husband started sending me the carrot emoji.
+- It's often the guests you don't expect to be interesting who are the best. On 'Light Lunch,' I remember a guest called Ivor Spencer. He was the Royal Toastmaster and he was great, a real good-time guy.
+- Comedy can become quite addictive actually.
+- It's a blessing to be able to do different things really, I feel so lucky.
+- I've always done stuff on stage, so it feels very natural.
+- We have our detractors. If we didn't, that would be weird. That would make me feel, 'Oh God, we must be really bland.' You have to have detractors.
+- I like Joan Jett's 'I Love Rock 'n' Roll' because it's got a nice low singing voice.
+- There is something a bit volatile about hosting a big live show like 'Eurovision.' Anything could literally happen.
+- Friends before work.
+- There are different types of double act: the classic dumb-and-dumber, like Morecambe and Wise; the good cop/bad cop, where one's a bit spiky and the other's daft. Sue Perkins and I take what we might call the Ant and Dec approach: the double act came out of our friendship.
+- I can hold a tune but it's a bit ropey.
+- I love acting, I really do, I've always loved doing it, and it's a joy to be asked to do this. I mean, to do Beatrice, for God's sake, it is the best comedy Shakespeare role for a woman, and to be asked to do it.
+- Of course there's pressure on you whatever timeslot you're doing, but I think there's more pressure on you as you go into the evening and I think being tucked away in a nice teatime arena feels quite nice.
+- I'm going to be 50 in 2018 and I figure that I should try to get as much in before then. After 50, you never know what might happen.
+- We're so used to seeing Agatha Christie's work on screen that going back to the original is a real joy.
+- I'm bad on passive aggression. I know that.
+- Nobody likes a presenter melting in a self-indulgent puddle of tears.
+- Every year the British public are so generous. It is really moving living in Britain. Fundraising is something we do tremendously well.
+- Noel Fielding is a friend of mine and I love what he does.
+- I met Sue Perkins at the Footlights, where she brought the house down at the auditions.
+- Believe me, you don't want to play to an audience of seven in a village hall in Cumbernauld.
+- Any donation does make a difference. Getting involved is what makes BBC Children in Need so moving.
+- I can't take UKIP seriously. I should, I must, it's our duty to take them seriously, because they're coming out with some really heinous old crap about immigration.
+- There is surely a finite amount of European baked goods, isn't there?

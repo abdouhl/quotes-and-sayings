@@ -1,0 +1,92 @@
++++
+author = "Michael Shellenberger"
+title = "Michael Shellenberger Quotes"
+quotes_len = "86"
+description = "the best 86 Michael Shellenberger Quotes"
++++
+- Climate change is happening. It's just not the end of the world. It's not even our most serious environmental problem.
+- Only nuclear can lift all humans out of poverty while saving the natural environment. Nothing else - not coal, not solar, not geo-engineering - can do that.
+- Journalists and activists alike have an obligation to describe environmental problems honestly and accurately, even if they fear doing so will reduce their news value or salience with the public.
+- For years, I referred to climate change as an 'existential' threat to human civilization, and called it a 'crisis.'
+- Solar and wind advocates say cheaper solar panels and wind turbines will make the future growth in renewables cheaper than past growth but there are reasons to believe the opposite will be the case.
+- Hypocrisy is the ultimate power move. It is a way of demonstrating that one plays by a different set of rules from the ones adhered to by common people.
+- The flip side of renewables' low energy density is their low return on energy invested.
+- We should be concerned about the impact of climate change on vulnerable populations, without question. There is nothing automatic about adaptation. But it's clear that there is simply no science that supports claims that rising sea levels threaten civilization much less the apocalypse.
+- Wind energy threatens golden eagles, bald eagles, burrowing owls, red-tailed hawks, Swainson's hawks, American kestrels, white-tailed kites, peregrine falcons, and prairie falcons, among many others.
+- Hydroelectric dams remain the way many poor countries gain access to reliable electricity, and both solar and wind might be worthwhile in some circumstances. But there is nothing in either their history or their physical attributes that suggests solar and wind in particular could or should be the centerpiece of efforts to deal with climate change.
+- Before progressives were apocalyptic about climate change they were apocalyptic about nuclear energy. Then, after the Cold War ended, and the threat of nuclear war declined radically, they found a new vehicle for their secular apocalypse in the form of climate change.
+- Recognizing nuclear as renewable, and saving Diablo Canyon, would be a bold move for Governor Newsom. It would upset his traditional anti-nuclear environmental allies.
+- Voters must feel that that the burden of new housing is being shared equally and not falling disproportionately on any one group.
+- Paid child care would make child care more efficient, allowing more children to be cared for by fewer adults, and thus free up parents to work more.
+- At 17, I lived in Nicaragua to show solidarity with the Sandinista socialist revolution. At 23 I raised money for Guatemalan women's cooperatives. In my early 20s I lived in the semi-Amazon doing research with small farmers fighting land invasions. At 26 I helped expose poor conditions at Nike factories in Asia.
+- You cannot power the world on wind and solar.
+- Normally skeptical journalists routinely give renewables a pass. The reason isn't because they don't know how to report critically on energy - they do regularly when it comes to non-renewable energy sources - but rather because they don't want to.
+- Nations are reorienting toward the national interest and away from Malthusianism and neoliberalism, which is good for nuclear and bad for renewables. The evidence is overwhelming that our high-energy civilization is better for people and nature than the low-energy civilization that climate alarmists would return us to.
+- If you care about the environment, you want food and energy production to become more efficient and centralized. You want to put less inputs in and get more outputs out and get less waste.
+- Nuclear is the only energy source that has proven capable of fully replacing fossil fuels at low-cost in wealthy nations. While hydro-electric dams can sometimes play that role, they are limited to nations with powerful rivers, many of which have already been dammed.
+- The producers of 'Chernobyl' should tell the truth: the accident demonstrates the relative safety, not danger, of nuclear power.
+- Environmentalism, apocalyptic environmentalism in particular, has become the dominant religion of supposedly secular people in the West.
+- The industrial revolution in England was only made possible through intensified agriculture and the use of coal for manufacturing, which delivered far more energy for far less labor.
+- Nobody is suggesting climate change won't negatively impact crop yields. It could. But such declines should be put in perspective.
+- Privately, many climate and energy experts admit that the fastest, easiest, and cheapest way to decarbonize energy supplies is with nuclear power.
+- Solar makes electricity expensive for two inherently physical reasons. Sunlight is dilute, requiring 10 to 15 times as much materials and mining, and up to 5,000 times more land, than non-renewables. And sunlight is unreliable, which reduces the value of solar as it becomes a larger part of energy supplies.
+- The idea that we're going to replace oil and natural gas with solar and wind, and nothing else, is a hallucinatory delusion.
+- I became an environmentalist at 16 when I threw a fundraiser for Rainforest Action Network. At 27 I helped save the last unprotected ancient redwoods in California. In my 30s I advocated renewables and successfully helped persuade the Obama administration to invest $90 billion into them.
+- Some amount of fear of nuclear weapons is necessary for nuclear deterrence to work.
+- Neither solar nor wind are actually substitutes for coal or natural gas or oil.
+- It's when the conservationists became environmentalists that everything went bad. It stopped being about the environment. It became about controlling society.
+- Trump gives progressives a way to channel whatever guilt they might have - whether from preventing homebuilding, benefitting from unfair taxes and pensions, or depriving black and Latino students the teacher quality and school funding they need - into a sanctimonious tribal rage against Republican racism.
+- Humankind has never transitioned to energy sources that are more costly, less reliable, and have a larger environmental footprint than the incumbent - and yet that's precisely what adding large amounts of solar and wind to the grid requires.
+- If solar and wind farms are needed to protect the natural environment, why do they so often destroy it?
+- Nuclear is just a huge part of moving towards a cleaner electrical system.
+- YIMBYs should embrace a housing reform agenda broader than increasing urban density. This should start with ending tax shelters in the form of land conservation easements to cattle ranches and farms that abut suburbs. This would create an incentive for landowners convert them either to new housing subdivisions or to genuinely new natural areas.
+- It was only with the rise of capitalism and the need for workers to be freer, more mobile, and prosperous, that societies were able to undermine pagan morality and the ancient institution of slavery.
+- Now that Europe has developed through deforestation and fossil fuel use it is telling Brazil not to develop through deforestation and fossil fuel use. Bolsonaro is the backlash against such hypocrisy.
+- Like many environmental documentaries, 'Planet of Humans' endorses debunked Malthusian ideas that the world is running out of energy.
+- The rapidly spinning blades of wind turbines act like an apex predator that big birds never evolved to deal with. And because big birds have much lower reproductive rates than small birds, their deaths have a far greater impact on the overall population of the species.
+- I believe Forbes is an important outlet for broadening environmental journalism beyond the overwhelmingly alarmist approach taken by most reporters, and look forward to contributing heterodoxical pieces on energy and the environment in the future.
+- I actually argue that renewables are worse than fossil fuels. It's a physical manifestation of lower power densities. More land, more materials, more mining, more metals, more waste.
+- The only countries that have successfully moved from fossil fuels to low-carbon power have done so with the help of nuclear energy.
+- There are major groups, including the Sierra Club, that support efforts to deprive poor countries of energy.
+- Most people think of solar and wind as new energy sources. In fact, they are two of our oldest.
+- In many countries, wind turbines pose the single greatest threat to bats after habitat loss and white-nose syndrome.
+- Hypocrisy demonstrates how unaccountable one is to conventional morality.
+- Why are the people who are most alarmist about climate change so opposed to the technologies that are solving it? One possibility is that they truly believe nuclear and natural gas are as dangerous as climate change.
+- Climate change is an issue I care passionately about and have dedicated a significant portion of my life to addressing.
+- The underlying problem with solar and wind is that they are too unreliable and energy-dilute.
+- Hawks and doves have long found common ground opposing the spread of nuclear weapons to non-nuclear states.
+- Climate change has completely overshadowed the conservation concerns that used to be so important to the Democratic Party.
+- Sunlight and wind are inherently unreliable and energy-dilute. As such, adding solar panels and wind turbines to the grid in large quantities increases the cost of generating electricity, locks in fossil fuels, and increases the environmental footprint of energy production.
+- Dealing with environmental lawsuits and grassroots resistance is expensive. Industrial wind and solar developers have to hire lawyers, public relations specialists, and scientists willing to testify that this or that project poses only a modest threat to endangered birds and bats.
+- The Amazon uses as much oxygen as it produces.
+- If you look at all the energy that is used by an iPhone, not just to make it and to power it, but also to power all the servers, all of the stuff that you don't see that the iPhone is connected to, it uses as much energy as a refrigerator.
+- Homelessness has become a human rights crisis.
+- Celebrities, whether from the world of entertainment or politics, moralize about the need to change individual consumption when they should be moralizing about the need to change collective energy production.
+- We have good examples of successful adaptation to rising sea levels. The Netherlands became a wealthy nation despite having one-third of its landmass below sea level, including areas a full 7m below sea level, as a result of the gradual sinking of its landscapes.
+- The value of solar and wind decline in economic value as they become larger shares of the electricity grid for physical reasons. They produce too much energy when societies don't need it and not enough energy when they do.
+- In reality, Chernobyl proves why nuclear is the safest way to make electricity. In the worst nuclear power accidents, relatively small amounts of particulate matter escape, harming only a handful of people.
+- If you want to save the natural environment, you just use nuclear. You grow more food on less land, and people live in cities. It's not rocket science.
+- Reporters have an obligation to report accurately and fairly on all issues they cover, especially ones as important as energy and the environment.
+- Making anything more labor-intensive makes it more expensive.
+- Nuclear is the largest source of clean, carbon-free power in rich nations, and the science shows it is the safest way to make reliable electricity.
+- The main problem with biofuels - the land required - stems from their low power density.
+- The nature of nuclear weapons makes it impossible to either ban the bomb or wipe out an enemy's arsenal. Nuclear deterrence was unavoidable.
+- Cold white wine is so good with fatty, fried food.
+- When climate goes away as an apocalyptic concern, something else will emerge. No doubt about it.
+- If you think modernity is mostly to blame for pollution, visit Africa where people still burn wood and dung as an energy source.
+- Chernobyl' is supposedly about the lies, arrogance, and suppression of criticism under Communism, but the mini-series portrays life in the Soviet Union in the 1980s as inaccurately, and melodramatically, as it portrays the effects of radiation.
+- All renewables thus require a material throughput - from mining to processing to installing to disposing of the materials later as waste - that is orders of magnitude larger than for non-renewable energy sources.
+- The burden of higher cost electricity and benefits of renewable energy subsidies fall unevenly on Californians.
+- In truth, humankind has never been at risk of running out of energy.
+- The renewable industry claims technical innovations will improve solar and wind - but in reality nothing can change the lower power density of sunlight and wind.
+- While some wars are planned, others result from each side retaliating in ways it views as proportionate but viewed by the other side as disproportionate.
+- Renewables require the use of vastly more land, longer and less-utilized transmission lines, and large amounts of storage whether from lithium batteries, new dams, compressed air caverns.
+- I remained quiet about the climate disinformation campaign because I was afraid of losing friends and funding. The few times I summoned the courage to defend climate science from those who misrepresent it I suffered harsh consequences. And so I mostly stood by and did next to nothing as my fellow environmentalists terrified the public.
+- Both solar and wind produce too much energy when societies don't need it, and not enough when they do.
+- There is good evidence that the catastrophist framing of climate change is self-defeating because it alienates and polarizes many people. And exaggerating climate change risks distracting us from other important issues including ones we might have more near-term control over.
+- Allowing for suburbanization of California's ranches and farmlands would still allow for strong protections of California's truly natural areas like Yosemite, the redwoods, and oak woodlands and green spaces near cities.
+- Less land is being converted into agriculture globally in part because farmers are growing more food on less land.
+- Facts still matter, and social media is allowing for a wider range of new and independent voices to outcompete alarmist environmental journalism at legacy publications.
+- What we need to talk about is what we want America to look like: what a sustainable, economically prosperous America looks like in the 21st century, and what we need to do to get there.
+- The reason renewables can't power modern civilization is because they were never meant to. One interesting question is why anybody ever thought they could.
+- There has always been enough fossil fuels to power human civilization for hundreds and perhaps thousands of years, and nuclear energy is effectively infinite.

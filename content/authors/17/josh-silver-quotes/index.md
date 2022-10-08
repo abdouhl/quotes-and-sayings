@@ -1,0 +1,39 @@
++++
+author = "Josh Silver"
+title = "Josh Silver Quotes"
+quotes_len = "33"
+description = "the best 33 Josh Silver Quotes"
++++
+- We're not the millionaires that people think when they see busses.
+- I think that most artists are leaning towards fragile idiots.
+- My tastes lean toward the more negative, angry and eclectic.
+- Yeah, I guess everyone's had a reasonable amount of sex in their lives, some less than others.
+- Well, I love Pink Floyd, so I wouldn't be offended by it. I only intentionally robbed them three or four times.
+- That's what I do and I enjoy even the hateful moments of a relationship where two people or four people come together to make a bigger mess than originally intended.
+- We still have a very good core following, and the shows have been almost one hundred percent sold out.
+- In regards to the reaction to Life Is Killing Me, I would say that I'm never happy about anything.
+- I lean towards traditionally what people would consider the more negative side of life.
+- I think the fact is that World Coming Down was just a really hard album for people to deal with.
+- I really believe that we're a studio-based band, and I have always thought that.
+- We don't pump out albums eight months apart from each other.
+- No, I'm sure that there's a lot of L.A. bands out there.
+- You know, musicians aren't very stable, in case you hadn't noticed.
+- We think that we have great potential but never reach it.
+- Slow, Deep And Hard was a great album, even though it was probably our least selling record.
+- I definitely have favourites in terms of albums.
+- The World Coming Down tour was around four years ago, and other than the wear and tear we've all sustained in the last four years, nothing much has changed.
+- We'll look at a bunch of deals that are being offered to us, and we decide where to go and continue on I guess. It's not too early to start considering our options with other labels.
+- One album has absolutely nothing to do with the other.
+- So right off, I'm going to have to say that a lot of people have been comparing Life Is Killing Me to World Coming Down, and I think a lot of those people equate art and sales figures, and I don't do that.
+- I like working with other people but I'm not a songwriter, I'm a producer.
+- To compare the albums is like trying to compare apples and oranges.
+- I used to love Bach.
+- I was for a minor amount of time but I was probably a better pianist at 15 than I am now.
+- Like all of us, we have pretty serious mood swings.
+- I just want to focus on one thing at a time.
+- We're from New York, so we have a decent following.
+- Being in a band is far more than playing an instrument. It's surviving. It's getting an album together.
+- We do do such a variety, especially if you consider all five records.
+- I do my job in Type O Negative.
+- We seem to do better in the studio than we do in a live environment.
+- Peter has the biggest mouth, so it goes to be a mouth contest.

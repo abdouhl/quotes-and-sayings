@@ -1,0 +1,30 @@
++++
+author = "Mary Daly"
+title = "Mary Daly Quotes"
+quotes_len = "24"
+description = "the best 24 Mary Daly Quotes"
++++
+- I didn't study theology out of piety. I studied it because I wanted to know.
+- Despite erasure by the media and other patriarchal institutions, there was, by 1975, a substantial body of feminist writings as well as artwork, music, films, and organization of all kinds.
+- It is the creative potential itself in human beings that is the image of God.
+- Patriarchy appears to be everywhere. Even outer space and the future have been colonized. As a rule, even the more imaginative science-fiction writers (allegedly the most foretelling futurists) cannot/will not create a space and time in which women get far beyond the role of space stewardess.
+- Work is a substitute religious experience for many workaholics.
+- I hate the Bible. I always did.
+- Patriarchy has stolen our cosmos and returned it in the form of 'Cosmopolitan' magazine and cosmetics.
+- Women have had the power of naming stolen from us.
+- Courage to be is the key to revelatory power of the feminist revolution.
+- Almost everything has been stolen from us by the patriarchy. Our creativity has been stolen, our creative energies, our religion. I want it back.
+- Within a culture possessed by the myth of feminine evil, the naming, describing, and theorizing about good and evil has constituted a maze/haze of deception. The journey of women becoming is breaking through this maze - springing into free space, which is an a-mazing process.
+- The Adequate Protest demands far more than protests. It calls for Great and Daring Leaps of Integrity and Courage to See.
+- I don't want to be a fulfilled woman.
+- Think of Virginia Woolf, 'A Room of One's Own' - that's what women have always needed under patriarchy and can't be creative without. They took away my classroom and my status to teach, and now they have taken away my office, and all of it is giving the message that Virginia Woolf and I are losing what I call 'womenspace.'
+- Radical feminism is still threatening.
+- I was honestly a Catholic.
+- Women's minds have been mutilated and muted to such a state that 'Free Spirit' has been branded into them as a brand name for girdles and bras rather than as the name of our verb-ing, be-ing Selves.
+- I'm trying to get to a deep future, but in order to get to a deep future, I had to think about the deep past.
+- Why indeed must 'God' be a noun? Why not a verb - the most active and dynamic of all.
+- I have a theory of living on the boundary: on the boundary of patriarchy and the boundary of different dimensions.
+- I saw women that were repressed. When they're in classes with young men, they shut up all the time. They're laughed at if they have unusual ideas. They have to be sexy; then, they can't really think.
+- I'm a complete deviant. All creative work breaks new ground.
+- 'God's plan' is often a front for men's plans and a cover for inadequacy, ignorance, and evil.
+- The message is risk, really risk. Be yourself. Create.

@@ -1,0 +1,30 @@
++++
+author = "James Frey"
+title = "James Frey Quotes"
+quotes_len = "24"
+description = "the best 24 James Frey Quotes"
++++
+- When I go to an art gallery and stand in front of a painting, I don't want someone telling me what I should be seeing or thinking; I want to feel whatever I feel, see whatever I see, and figure out what I figure out.
+- I am essentially optimistic. Being alive is incredible. Life is extraordinary and beautiful. It can be hard and sad and terrifying, but it's all we've got.
+- Some people think memoirs should be held to a perfect journalistic standard. Some people don't. Obviously I don't. My goal was never to create or to write a perfect journalistic standard of my life. It was always to be as literature.
+- I always wanted to be the outlaw. And that's to a certain extent how I've lived.
+- I've always said I'm more influenced in what I do by artists, and how they work, how they think, and the freedom they're given to work and think, than I really am by other writers.
+- When I started writing 'A Million Little Pieces,' I felt like it was the right story with the style I had been looking for, and I just kept going.
+- I'm married, I have a couple kids, I've traveled a lot, I've done book tours a lot, I'm happy to stay home and take my kids to school and come to the office.
+- My wife says I'm only comfortable when there's a fight. And it's true. The thing that motivates me is struggle.
+- There are no categories in contemporary art. There are no rules. Artists are given the freedom to make and create whatever they please and call it whatever they please. I identify with that system, or lack of system, much more than I do the landscape of contemporary publishing.
+- I've always wondered what it would be like if the Messiah, or Christ Returned, were actually alive and living in our society; who would that person be, how we would identify them, how would they live and what would they believe in, how would society react to them? I decided to try and tell my idea of that story.
+- I'm a writer. I never expected to be recognised on the street. I never expected to get that kind of coverage, good or bad. I never expected to sell as many books as I have.
+- I wanted to be a writer that had an impact. I wanted, and still I say the same thing, I want to write books that change people's lives, change how we think and live and read and write. I wanna write books that are read in 50 or 100 years.
+- When I was a little boy, Marvin Hagler was my idol. He got no respect for most of his career. His fighting style was straight ahead. He took every shot thrown at him, and he kept punching back 'til he won. I honestly feel that's how I am. I take big shots from people. But I keep going.
+- When I was a screenwriter, I was doing it for mercenary reasons.
+- I think as an artist or a writer it's OK to want to control your own work.
+- Most books aren't pure nonfiction or fiction.
+- America was first colonized by Puritans. Most of our earliest immigrants, and many since, have come here in order to practice their religious beliefs as they please. Our culture has always been, and will most likely always be, profoundly influenced by religion.
+- I don't want to walk in the middle. I want people to read what I write and feel strongly about it. If, at some point, whatever I am doing is failing to elicit a response, whether it's very positive or very negative, then I am going to stop doing it.
+- Whatever hardships there have been in my life I still live in a very privileged position. Fear is not knowing where your next meal is coming from. Fear is seeing a child get hurt. Fear is watching someone you love waste away. Fear is knowing you are going to die yourself. But there's no fear in what I do. I write books.
+- I will not allow people to impose rules on me that don't make sense to me. And I live and work very much outside the literary world and the literary system. What they think and what they believe and what their rules are mean nothing to me.
+- The point of what I do is that it doesn't really matter what a book or a story is as long it moves you, informs you, challenges you, entertains you, or changes you.
+- Sometimes I really want to believe in God. I really admire, in a lot of ways, people who have faith. I think it must be a beautiful thing to believe.
+- I'm just going to write my books and do my work and release it. Let the world decide what it is, and if it's any good or not.
+- I've never had any interest at all in being a journalist or writing some sort of historically accurate autobiography.

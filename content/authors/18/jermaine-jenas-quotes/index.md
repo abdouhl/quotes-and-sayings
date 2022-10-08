@@ -1,0 +1,67 @@
++++
+author = "Jermaine Jenas"
+title = "Jermaine Jenas Quotes"
+quotes_len = "61"
+description = "the best 61 Jermaine Jenas Quotes"
++++
+- There's precious little incentive to try and make it in the world of management - and that's especially true in England.
+- Harry Winks is a very different kind of player to those we usually develop in England. He is more fluid in his play, very comfortable with the ball in tight spaces.
+- I used to find most joy with those long, bursting runs from your own box where the opposition's central midfield player has to track you. It gives them a decision to make: do they pass you on to a defender, or do they go all the way with you.
+- I've got to admit when I did my first ever Match Of The Day, I didn't realise how nervous I'd be. There's a real adrenaline rush as you know you're being watched by around eight million people who'll take the mick out of any mistake you make.
+- We are obsessed in England with the idea that we're not good enough at retaining the ball, and that our players treat it like a hot potato.
+- I'm not a robot: sometimes I wake up and I want to train, but I don't manage it.
+- As it is, I played 99 per cent of my football in the Premier League and I'd proud of that fact. That's where my history is.
+- I'm only 24, which is still young, but I don't think of myself as one of the young lads anymore. I suppose that's how people have always seen me. But there comes a time when you have to take extra responsibility.
+- I've never been a selfish player. I've never been able to just say I am going as well. I've always thought about the team first.
+- People sometimes ask me what my biggest regret is in football and it's not being able to have that 'Steven Gerrard' moment where he's playing for the team that he loves in terms of where he's from.
+- When Pep Guardiola accepted the Manchester City job, he would have asked himself one question about the club's current squad: is this a team that can win me the Champions League?
+- I had been played at left back, right back, and I just felt like I wasn't developing as a player. I saw the opportunity to join Tottenham and I took it, because I felt it was the best decision for all parties.
+- It doesn't really matter how much you've got saved up in your bank account. If someone offers you £10 million to play football for a year in a beautiful part of the world, who would turn that down?
+- A lot of the time at Spurs, I was fitting in around other people, letting the likes of Luka Modric go and do what they wanted to so I had to be the disciplined one.
+- In life it is easier to criticise people than be out there doing it yourself.
+- My career has been like that - when I went to Newcastle, Kieron Dyer and Gary Speed were ahead of me and I got into that team. Then they bought Hugo Viana, who had just been crowned Young European Player of the Year, and I still got into the side.
+- It's not that players feel no emotional bond to a team. When you've given so much of your career to a club, you can't help but feel affection towards them.
+- In my opinion, the root cause of all Arsenal's problems is that Arsene Wenger is just too nice. He's too nice, too patient and too accommodating, and that has been Arsenal's undoing.
+- Around the time Andre Villas-Boas became manager I went to a summer training camp in America. But when I got back, to my horror, I found that all my kit had been moved into the reserve team changing room. I was told I wasn't allowed in the first team dressing room anymore.
+- The FA finds itself in a situation where there is a glaring lack of English coaches, along with a generation of players with huge experience who will simply go missing.
+- We were from a predominantly white area, my dad was black and my mum was white, so that had its complications.
+- As a young player all you want to do is develop.
+- During my time playing for England we had Wayne Rooney, David Beckham, Michael Owen, Steven Gerrard, Frank Lampard, Paul Scholes. They were world-class players playing for Chelsea, Man United, Liverpool, Arsenal, all legends of the game.
+- If you want to make your mark as a footballer, you think England, Germany, Italy, Spain. Maybe France or Holland. But not China, not the Middle East.
+- Of course, stuff happens off the ball in any football match. Standing on people's toes, pinching, hair pulling, punching in the back.
+- To go to Milan and play against the European champions at the San Siro is phenomenal.
+- I've never looked at my job as pressure. It's always been fun, a privilege.
+- I can remember visiting one school in Nottingham - where there were about 10 pupils on the brink of exclusion. They had about a term-and-a-half to go and I said to them that - if they didn't miss another day - I'd get them football tickets at the end of their studies.
+- When I talk to my mates, they all have their opinion and though I'm a professional who's played the game and lived it they still don't agree with me. Every fan thinks they knows best, every fan is passionate about their club and their team and their points are valid because they watch them all the time.
+- With Tottenham's Mousa Dembele, there is a long list of reasons why he is an opponent I would hate to face.
+- When a new manager comes in you are naturally wary and it does cross your mind that you might not figure in his plans.
+- I wanted to play for England at a World Cup and to grace the pitch for even two minutes at such a big tournament would have been huge.
+- I wasn't the kind of player to make a fuss.
+- I think 90 per cent of players are still pursuing dreams of league titles and cups, but there is also a huge percentage of very good players who are strictly money motivated.
+- There is no doubt that not having Harry Kane and Son Heung-min will have an impact on your team.
+- In the weirdest way possible, I would rather be losing games but seeing a performance that suggests it is going to come good.
+- Speaking as a midfield player myself, I know it's easier to make your runs into the box from that deeper, more central position. You can gauge where the ball is going to land and how best to time your run.
+- Tottenham's number one derby will always be Arsenal.
+- My dad's a football coach, that's what he does.
+- You almost need a psychology degree to be a manager these days. Even with Fabio Capello - who may not have done too well with England - you could tell why he had been so successful in the past. He had real authority.
+- Professional footballers get up, train, play games, and that's it. They don't worry if the club gets fined. They don't investigate the intricacies of the business.
+- As a player or as a manager, you want to go to the biggest and best club.
+- Playing Tottenham seems to rile up West Ham like nothing else - something that when I first went to Spurs I didn't really understand.
+- As a player, you have a certain relationship with a coach or a number two, and it's a completely different to the one you have with the manager.
+- I've always had an appreciation of my life and the lifestyle me and my family have become accustomed to. It's more to do with the little things.
+- I remember when I left Newcastle to join Tottenham Hotspur, the money was in no way a motivation for me, it was all about becoming a better player.
+- I had a couple of moments struggling with imposter syndrome throughout my career as a player.
+- I'm a big fan of Steve McClaren. I worked with him over several years during my career and I can say with total confidence that he is an outstanding football talent, as well as being a top guy.
+- I want to be the kind of footballer who is willing to help out the young lads, even if it is only in a small way.
+- You don't need to be fast if you're clever in your positioning, and that's exactly what Mark Noble is.
+- I was quite fortunate as a player. I was always the one who needed to eat more. My body fat was three to four per cent at times, so I was always encouraged to overeat.
+- I miss the build-up to the games, the jolt of nervous energy that goes through your body before a match, walking out on to a pitch and the knowledge that a whole city can be caught up in supporting a club you play for.
+- I can bring my drive, I can get behind centre-halves, get on the other side of midfield players, score goals. That's what I can bring to a team when I am at my best.
+- When you get married and have your own family, it gives you the opportunity to look back on your own childhood I suppose, but you learn on the job really.
+- Me and my dad are mates now, it is quality, I love it. I feel like we are now on an even keel.
+- Aleksandar Kolarov has technical ability, but I'm not sure he has what it takes defensively.
+- When you're out there together on the pitch, you're fighting for each other. It's amazing, overwhelming and you either sink or swim in that atmosphere. It's what makes professional footballers what they are. You can't replicate that in any other job.
+- No player has a right to be in the team, but the minimum you expect is basic respect.
+- I never wanted to be a pundit who chases headlines.
+- I'm not saying coaching has never crossed my mind. But it's worth pointing out that if I decided tomorrow that I wanted to be a manager and I started getting my badges through the FA, it would take me four and a half years to complete my training.
+- A lot of the best managers in the game were forced into it by financial necessity. From Sir Alex Ferguson to Jurgen Klopp, their main incentive to move into coaching after their playing careers was to make a living.

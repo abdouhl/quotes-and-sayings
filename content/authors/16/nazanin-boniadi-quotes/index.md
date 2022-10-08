@@ -1,0 +1,64 @@
++++
+author = "Nazanin Boniadi"
+title = "Nazanin Boniadi Quotes"
+quotes_len = "58"
+description = "the best 58 Nazanin Boniadi Quotes"
++++
+- The entertainment industry isn't a line of work encouraged in the Persian culture. When I called my dad to say I wanted to quit medicine, there was about three minutes of silence. I'm not sure he knew what to do with himself!
+- I do think faith is important when it introduces positivity into your life and you see it with love in your heart because there's so many people who unfortunately use faith for detrimental things or to justify detrimental actions.
+- Frances Conroy - brilliant, brilliant actress.
+- A celebrated and hugely popular actress in her native Iran, Ahangarani first landed on the radar of the Iranian authorities for her open support of opposition figure Mir-Hossein Mousavi, which led to her arrest in July 2009 in the aftermath of a disputed presidential election in Iran.
+- The people of Iran have had to endure repressive laws that have stifled their freedom of speech and religion for too long.
+- I was shocked when I heard that Farghadani had been sentenced to 12 years and nine months in prison on spurious charges, as Amnesty International notes, of 'spreading propaganda against the system,' 'insulting members of the parliament through paintings' and 'insulting the Supreme Leader' with her cartoon.
+- In my role as a spokesperson for Amnesty International U.S.A. and as a supporter of various charitable causes including Unlock Iran, a campaign to release prisoners of conscience in Iran, I have never been faced with the threat of intimidation or arrest.
+- I retweet Amnesty International tweets a lot. It isn't just, 'This person is incarcerated unjustly.' It's also, 'This person was just released.' Those are the victories we work toward, so if we don't inform people of the victories, it does become doom and gloom.
+- Although each human rights victory energizes us to continue our work, there remains a deep sorrow for those prisoners still wrongfully languishing in jail.
+- I think a culture can really be elevated through the arts, and it's always a dream come true when I come across roles that enable me to fuse my love of storytelling with my passion for activism and raising social awareness.
+- 'Homeland' is great at challenging our preconceived ideas.
+- Women and girls, men and boys all share the right to live free of violence, which is, unfortunately, experienced by both men and women. Women and girls, however, disproportionately experience violence due to a deeply rooted global culture of gender discrimination.
+- As an Iranian woman and activist, Sotoudeh's plight resonated with me on a deeply personal level.
+- It's tougher for women than men in Hollywood, period, if you ask me. As with most professions, women have generally not found equality with men when it comes to income and influence. There aren't as many female directors, producers, and writers, which translates to fewer complex roles for women.
+- In 2013, I started playing Fara Sherazi on 'Homeland.' I love playing her, not just because she's a strong woman, but because for the first time, a Muslim woman is being portrayed on television as a regular person, rather than a cliche or collection of stereotypes.
+- I was very successful, and I graduated with honors. And then I called my dad, who still lives in London, and I said, 'Dad, thanks for college, but I'm going to go act now.' It didn't go over very well.
+- Our rights are interconnected and inseparable. When freedom of expression is threatened, the rights to freedom of association and assembly, of thought, conscience and religion, are also compromised.
+- In a lot of ways, I think television is better for women than film.
+- Old-school Dire Straits songs are on heavy rotation: 'So Far Away,' 'Romeo and Juliet' and of course 'Sultans of Swing.'
+- It's nice to see different dimensions of a character. A love interest and family life are always, I think, important in creating layers and textures.
+- My human rights activism has been widely met with encouragement and support. Ahangarani should earn plaudits, not only for her cinematic achievements, but also for her humanitarian deeds and her commitment to increased rights and freedoms for all.
+- Despite the fact that Rouhani has been a long-time insider in a government that has committed countless human rights violations, and that he himself called for the execution of peaceful activists in 1999, many people inside and outside Iran are optimistic that he might indeed favor greater respect for the rights of the Iranian people.
+- I entered the acting world at a time when there was a higher demand for Middle Eastern actors in the post-9/11 world, and yeah, the roles weren't great.
+- It's bizarre to be given an award for being empathetic and kind, which is what we all should be.
+- How often do we see a Muslim woman who is intelligent and independent, and has a voice of her own and is career-driven, on American TV?
+- First of all, I'm Middle Eastern; I'm Iranian, so to be playing a leading role in a big Hollywood movie, I think, is possibly one of the first times.
+- Artists often become vocal advocates of freedom of expression because we depend on it so heavily in our work. But it is an inalienable right that belongs to everyone on an equal basis.
+- For me, the struggle for women's human rights began the moment I was born in Tehran at the height of the Iranian Revolution, a time when the status of women was quickly deteriorating.
+- In real life, too, women love to be that girl who tames the bad boy.
+- The thing that I love about 'Scandal' is every character, it's not clear if they're good or bad. Everyone is both good and bad.
+- Generally, I love being part of a project that imparts a positive message, is somehow educational or enlightening, helps to bridge differences, or inspires viewers in some way.
+- Medicine, anything academic, is a very Persian Iranian route to take in life, in one's career.
+- My parents realized the dangers of raising a daughter in a social, political, and legal climate that was growing increasingly oppressive toward women and girls. Although they fled to London when I was just three weeks old, the challenges facing women's rights in Iran became ingrained in my social consciousness.
+- When you're devoted to a greater freedom in the world, you're willing to compromise something you love.
+- Clothes are a big part of a free society, I think, and what you wear is so indicative of the political climate you're living in.
+- History's lesson, of course, is that attempts to suppress free expression have merely confirmed the caricaturists' original critique of heavy-handed and objectionable actions of overreaching governments.
+- When President Hassan Rouhani was elected in Iran in 2013, he welcomed back the far-flung children of Iran. But one by one, they have been arrested and imprisoned upon their return, a fate that has made me increasingly reluctant to risk going back to a homeland I've not seen since 1992.
+- While awareness-building is a crucial first step, cohesive efforts are needed to translate this into real-world change.
+- Nazanin Zaghari-Ratcliffe was not engaged in subversive work; she was an apolitical project manager with the Thomson Reuters Foundation, the charitable arm of the Reuters news agency.
+- I was always fascinated with science, and being Persian, it's instilled in us at a young age to follow something very academic in our career.
+- It's been an interesting progression, going from soap to a sitcom with 'How I Met Your Mother' and now being a series regular on 'Homeland.'
+- The way we remember people, even their beauty is all so subjective and a matter of perspective.
+- As an actress, I value and rely on peaceful self-expression, not only in my daily life, but also in my professional work. This is particularly true, as my commitment to the promotion of human rights is an integral part of my calling as an artist.
+- To have art suppressed is very dangerous to society.
+- Belgian chocolate is my weakness. I like over 72 percent cacao, which shows you how much of a dark chocolate snob I am.
+- We all know in our hearts that forgiveness is the right thing; it's just a matter of being inspired to reach that place.
+- I always say, as an actress, I get to portray the human condition, but as an activist, I get to change the human condition.
+- For me personally, I'm an activist, so I see a lot of turmoil and heartache in the world and tragedy.
+- As far as the 2009 elections go, there has been a serious crackdown on human rights in Iran, a clampdown on the media and the wrongful imprisonment of journalists. So it seems what's happening is the government is going after people who have a voice, people who change society or public opinion.
+- I feel really connected to antiquity for some reason.
+- Violence against women and girls touches every corner of the globe and is one of the world's most pervasive human rights violations.
+- I decided to start acting in my mid-twenties. I studied pre-med, and I have a bachelor's degree in Biology, so when I decided to pursue a different career, I got a lot of, 'What on earth are you doing?' But, I gave myself a year and thought, 'You know what, I'm going to just beat the odds.'
+- Jason Rezaian, held for 544 days in Iran, was not a spy but rather a 'Washington Post' journalist whose work aimed to increase cultural understanding between Iran and the world.
+- Although it is hard to see why any sensible authority would feel threatened by the peaceful expression of one's point of view, there is a long history of trying to repress subversive depictions of political figures - back in the 19th century, for example, France's King Louis Philippe was depicted as a piece of fruit.
+- I was born in Iran, which has a predominantly Muslim population, and I have relatives who are devout Muslims, so I know what it means to be judged based on your appearance and what you're wearing. But your ethnicity and your clothing do not define who you are.
+- The idea that an actress - mostly lauded for her performances in more than a dozen films - somehow represents a threat to Iran's national security is laughable at best. But in Ahangarani's case, far from anything humorous, the allegations have actually resulted in the sober prospect of real prison time.
+- Dance connects us to the musicality of life and to one another. No one should be denied such basic pleasures.
+- When you or your loved ones escape repression, you often find yourself committed to ensuring that freedom prevails.

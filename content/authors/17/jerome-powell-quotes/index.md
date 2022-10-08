@@ -1,0 +1,98 @@
++++
+author = "Jerome Powell"
+title = "Jerome Powell Quotes"
+quotes_len = "92"
+description = "the best 92 Jerome Powell Quotes"
++++
+- There is clear empirical evidence that the response of EME financial markets to different shocks, including changes in U.S. interest rates, depends importantly on the state of economic fundamentals in the EMEs themselves.
+- The Federal Reserve is not charged with designing or evaluating proposals for housing finance reform. But we are responsible for regulating and supervising banking institutions to ensure their safety and soundness, and more broadly for the stability of the financial system.
+- The Federal Reserve places great importance on our relations with the Bundesbank. Few such relationships have been as important, over the decades, in promoting financial stability and prosperity around the world.
+- It is quite plausible that the process of increased fragmentation of production across borders is subject to 'diminishing returns' and has its natural limits.
+- In a world of global trade and integrated capital markets, it is natural for economic and financial shocks and policy actions to be transmitted across borders.
+- It is worth noting that 'too big to fail' is not simply about size. A big institution is 'too big' when there is an expectation that government will do whatever it takes to rescue that institution from failure, thus bestowing an effective risk premium subsidy. Reforms to end 'too big to fail' must address the causes of this expectation.
+- Although I have never worked in a community bank, I have been a customer, and I know from personal experience the special skills that these institutions bring to their customers.
+- Regional interest rate differentials persisted until around the time of World War I and helped shape the attitudes of Americans living in western areas toward the nation's financial system.
+- The question of how to structure our nation's financial system arose in the early years of the republic.
+- Congress created Fannie Mae in 1938 and Freddie Mac in 1970. For many years, these institutions prudently pursued their core mission of enhancing the availability of credit for housing.
+- We need a resilient, well-capitalized, well-regulated financial system that is strong enough to withstand even severe shocks and support economic growth by lending through the economic cycle.
+- Given that trade benefited the Asian economies on the way up, it seems natural that the slowdown in global trade, whatever its causes, could lead to some loss of dynamism and growth in the region.
+- The United States has never prioritized or failed to pay any obligation when due during a debt limit impasse. Despite the institutional risks and the lack of clear legal authority, we assume that Treasury will attempt to prioritize payments in a last-ditch effort to avoid default.
+- The success of monetary policy should be judged by the economy's performance against our statutory mandates of price stability and maximum employment.
+- Emerging market economies have long grappled with the challenges posed by large and volatile cross-border capital flows.
+- The TMPG is the place where market participants recognize and address their responsibilities to each other.
+- As with so many sectors of the economy, technology is transforming the retail banking sector.
+- Perhaps the greatest challenge for the resolution of a systemic global bank is the possibility that public or private actors in different countries might take local actions that would cause the overall resolution to spin out of control.
+- Real short- and long-term rates were relatively high in the late-1990s, so financial excess can also arise without a low-rate environment.
+- Regulatory changes have forced banks to closely examine their liquidity planning and to internalize the costs of liquidity provision. The costs of committed liquidity facilities will be passed on to clearing members. These costs are perhaps highest in clearing Treasury securities, where liquidity needs can be especially large.
+- Long experience, in the United States and in other advanced economies, has demonstrated that monetary policy is most successful when decisions are rendered independent of influence by elected officials.
+- Community banks are a crucial part of our economy and the fabric of our society.
+- One factor that favors easier adjustment in EMEs is that U.S. monetary policy normalization has been and should continue to be gradual, as long as the U.S. economy evolves roughly as expected.
+- The financial crisis involved significant failures in the functioning, regulation, and supervision of OTC derivatives markets.
+- While the move to central clearing has made the system safer, we need to make sure that the central counterparties have the resources and risk-management practices to withstand plausible but severe shocks.
+- Against this backdrop of technological change and heightened expectations, it is worth remembering our broad public policy objectives, which are driven by the fundamental importance of the payments system in our society.
+- We need a system that provides mortgage credit in good times and bad to a broad range of creditworthy borrowers.
+- My colleagues on the Board of Governors and I understand the value of having a diverse financial system that includes a large and vibrant contingent of community banks.
+- The Congress has tasked the Federal Reserve with achieving stable prices and maximum employment - the dual mandate.
+- The FOMC has considerable control over short-term interest rates. We have much less influence over long-term rates, which are set in the marketplace.
+- Alignment of business strategy and risk appetite should minimize the firm's exposure to large and unexpected losses. In addition, the firm's risk management capabilities need to be commensurate with the risks it expects to take.
+- By the beginning of the 20th century, the debate about monetary policy and the nation's financial system had been going on for over a century. Increasingly, the shortcomings of the existing system were causing too much harm to ignore.
+- We need a national focus on increasing the sustainable growth rate of our economy.
+- Bailouts may have been more tolerable in the early 1990s when they were rare and their use for a failing bank was uncertain. That is no longer the case.
+- The main long-run contribution monetary policy can make is to provide a stable macroeconomic and financial environment.
+- The Federal Reserve seeks to support MDIs in a number of ways, including our Partnership for Progress, our program for outreach and technical assistance to MDIs.
+- All economic forecasts are subject to considerable uncertainty. There is always a wide range of plausible outcomes for important economic variables, including the federal funds rate.
+- By purchasing and holding large amounts of Treasury securities and MBS, we put additional downward pressure on term premiums and so on long-term rates.
+- Liquidity problems can occur in central clearing, even if all counterparties have the financial resources to meet their obligations, if they are unable to convert those resources into cash quickly enough.
+- A digital currency issued by a central bank would be a global target for cyber attacks, cyber counterfeiting, and cyber theft.
+- A risk-insensitive leverage ratio can be a useful backstop to risk-based capital requirements. But such a ratio can have perverse incentives if it is the binding capital requirement because it treats relatively safe activities, such as central clearing, as equivalent to the most risky activities.
+- If the public understands the central bank's views on the economy and monetary policy, then households and businesses will take those views into account in making their spending and investment plans; policy will be more effective as a result.
+- The overwhelming majority of new mortgages are issued with government backing in a highly concentrated securitization market. That leaves us with both potential taxpayer liability and systemic risk.
+- The Federal Reserve is committed to fulfilling our statutory mandate of stable prices and maximum employment.
+- Higher capital requirements increase bank costs, and at least some of those costs will be passed along to bank customers and shareholders. But in the longer term, stronger prudential requirements for large banking firms will produce more sustainable credit availability and economic growth.
+- The longer workers are unemployed, the greater the likelihood that their skills will erode and workers will lose attachment to the labor force, permanently damaging the economy's dynamism and potential output.
+- I support adjustments designed to enhance the efficiency and effectiveness of regulation without sacrificing safety and soundness or undermining macroprudential goals.
+- Higher asset prices increase wealth and, with a lag, induce higher spending.
+- The Fed's organization reflects a long-standing desire in American history to ensure that power over our nation's monetary policy and financial system is not concentrated in a few hands, whether in Washington or in high finance or in any single group or constituency.
+- The Federal Reserve and other central banks have adopted broad public policy objectives to guide the development and oversight of the payments system. At the Fed, we have identified efficiency and safety as our most fundamental objectives, as set forth in our Policy on Payment System Risk.
+- Our discussions of the economy may sometimes ring in the ears of the public with more certainty than is appropriate.
+- My own experience is that the best outcomes are reached when opposing viewpoints are clearly and strongly presented before decisions are made.
+- Over the longer run, advanced economy policy actions that strengthen global growth and global trade will benefit the EMEs as well.
+- There is no risk-free path for monetary policy.
+- More regulation is not the best answer to every problem.
+- The GSEs became powerful advocates for their own bottom lines, providing substantial financial support for political candidates who supported the GSE agenda.
+- We do take seriously our obligation to assess whether our reforms are achieving their desired effects without imposing unnecessary burden.
+- The sale of Treasury bonds, notes, and bills finances the U.S. government, and those securities are, in turn, a primary vehicle for savings for a wide range of U.S. households. Treasury securities are also an important source of collateral within the financial system.
+- AIG's failure revealed systemic problems in the OTC derivatives market that went well beyond the failure of a single market participant.
+- The revenue stream for Social Security benefits comes from payroll taxes, which are credited to the Social Security Trust Fund - accounting for the program's finances separately from the rest of the budget.
+- Businesses and households react to lower rates by investing and spending more. Lower rates also support the prices of housing and financial assets such as stocks and bonds.
+- If investors avoid the Treasury market, we could be unable to pay off maturing securities, which would mean an immediate default. Market participants generally agree that even a brief default would create potentially catastrophic risks to the financial system, like the meltdown of 2008.
+- Below-target inflation increases the real value of debts owed by households and businesses and reduces the ability of central banks to respond to downturns.
+- No single housing finance institution should be too big to fail.
+- The financial crisis and the Great Recession posed the most significant macroeconomic challenges for the United States in a half-century, leaving behind high unemployment and below-target inflation and calling for highly accommodative monetary policies.
+- We live in a world defined by the rapid pace of technological change.
+- Loss-absorbing capacity among banks is substantially higher as a result of both regulatory requirements and stress testing exercises.
+- While monetary policy can contribute to growth by supporting a durable expansion in a context of price stability, it cannot reliably affect the long-run sustainable level of the economy's growth.
+- The too-big-to-fail reform project is massive in scope. In my view, it holds real promise. But the project will take years to complete. Success is not assured.
+- An efficient payments system provides the infrastructure needed to transfer money in low-cost and convenient ways. Efficient systems are innovative in improving the quality of services in response to changing technology and changing demand.
+- The financial crisis and the Great Recession left firms with excess capacity, reducing incentives to invest. If businesses expect slower growth to continue, that will also hold down investment.
+- We understand that America's prosperity is bound up with the prosperity of other nations, including emerging market nations.
+- Central banking often comes across as obscure and complicated, and we try to help the public understand what we do.
+- By fostering the economic health and vitality of local communities throughout the country, community banks play a central role in our national economy. One important aspect of that role is to serve as a primary source of credit for the small businesses that are responsible for creating a substantial proportion of all new jobs.
+- I am unable to think of any critical, complex human activity that could be safely reduced to a simple summary equation.
+- Over time, low rates can put pressure on the business models of financial institutions.
+- The expectation of gradual policy normalization should reduce the likelihood of outsized movements in interest rates.
+- Mobile devices, high-speed data communication, and online commerce are creating expectations that convenient, secure, real-time payment and banking capabilities should be available whenever and wherever they are needed.
+- The only way to ensure that inflation expectations remain safely anchored near the FOMC's target is to keep inflation close to that target on a consistent basis.
+- The Government Securities Act gave the Treasury Department some rulemaking authority over all government securities brokers and dealers. But the act also required these firms to register with the SEC.
+- To ensure financial stability, we expect the provision of U.S. government securities settlement services to be robust in nearly all contingencies.
+- With customers' permission, fintech firms have increasingly turned to data aggregators to 'screen scrape' information from financial accounts. In such cases, data aggregators collect and store online banking logins and passwords provided by the bank's customers and use them to log directly into the customer's banking account.
+- Legislative reforms in the 1990s and the public/private structure led managements to expand the GSEs' balance sheets to enormous size, underpinned by wafer-thin slivers of capital, driving high shareholder returns and very high compensation for management.
+- In normal times, at the beginning of each month, the federal government makes a cash advance to the Social Security Trust Fund called the 'normalized tax transfer,' in an amount equal to the estimated payroll taxes for the coming month.
+- As long as global financial conditions normalize in an orderly fashion, EMEs should have sufficient time to adjust.
+- There is certainly a role for regulation, but regulation should always take into account the impact that it has on markets, a balance that must be constantly weighed.
+- The financial crisis revealed important weaknesses in many areas of our financial system.
+- The banking industry has traditionally been characterized by physical branches, privileged access to financial data, and distinct expertise in analyzing such data.
+- An increase in the debt ceiling should be accompanied by fundamental policy reforms, substantial budget savings, and a strong enforcement mechanism to tie the hands of any future Congress.
+- Increased fragmentation of production across international borders - a natural outgrowth of the gains from specialization - meant more trade for any given value of final production, thus adding to the major expansion in gross trade flows in the 1990s and 2000s.
+- Long-term economic growth depends mainly on nonmonetary factors such as population growth and workforce participation, the skills and aptitudes of our workforce, the tools at their disposal, and the pace of technological advance. Fiscal and regulatory policies can have important effects on these factors.
+- Risk management systems and controls may discourage or limit certain revenue-generating opportunities. Failure to ensure the independence of these functions from the revenue generators and risk takers has been shown to be dangerous, and this is something for which the board is accountable.

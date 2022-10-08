@@ -1,0 +1,23 @@
++++
+author = "Kara Hayward"
+title = "Kara Hayward Quotes"
+quotes_len = "17"
+description = "the best 17 Kara Hayward Quotes"
++++
+- I would say that Emma Stone and Emma Watson are two very talented young actresses who are very intelligent and have a great sense of humor and have learned to balance what they love with their acting career, and I think that's really a great thing.
+- I would definitely love to continue acting, and I also really enjoy school, so I would like to balance the two somehow.
+- I think I would like to write screenplays, books, really anything.
+- I think that a lot of kids today focus on impressing each other. And while that's really nice, you also have to think about your future, about getting into a good school.
+- In a play, you only get one chance, and you have to get it perfect. In a film, you can change and fix it whatever way you want, so really, there's a pretty big difference.
+- Two young actresses I admire are Emma Stone and Emma Watson, because they are intelligent, talented actresses and have a great sense of humor. They have learned to balance what they love in life - acting, school and everything else.
+- As an actor, I'm my own worst critic, but after awhile, really, when you watch 'Moonrise Kingdom', it's such a fantastic film that you sort of get sucked into the story, and then you kind of forget about everything else.
+- Anything with a good story and characters I think would be great.
+- I'm starting to find my own style.
+- I got a manager, and I thought, since I was going out on auditions, I should do this for a living. Then there was this moment on set when I realized I was having a lot of fun, and I really wanted to do this forever.
+- If I have to go to New York or something, I'll bring my books and read and do homework. It's not really a big deal.
+- I'm pretty casual, but I'm starting to obsess a little bit; like, one of my favorite things to do is to pair really feminine accessories with edgier outfits or vice versa.
+- I love to write.
+- I read whatever is put in front of me. I gobble up books.
+- You have to find out how to become the character.
+- One of my favorite films is 1994's 'Little Women', with Winona Ryder and Kirsten Dunst.
+- I would love to continue acting. Maybe one day I would like to try writing and directing.

@@ -1,0 +1,61 @@
++++
+author = "Moliere"
+title = "Moliere Quotes"
+quotes_len = "55"
+description = "the best 55 Moliere Quotes"
++++
+- One should eat to live, not live to eat.
+- Ah! how annoying that the law doesn't allow a woman to change husbands just as one does shirts.
+- The duty of comedy is to correct men by amusing them.
+- Grammar, which knows how to control even kings.
+- It infuriates me to be wrong when I know I'm right.
+- Books and marriage go ill together.
+- To marry a fool is to be no fool.
+- It is a strange enterprise to make respectable people laugh.
+- People of quality know everything without ever having learned anything.
+- I feed on good soup, not beautiful language.
+- If everyone were clothed with integrity, if every heart were just, frank, kindly, the other virtues would be well-nigh useless.
+- It is a fine seasoning for joy to think of those we love.
+- I live on good soup, not on fine words.
+- If you make yourself understood, you're always speaking well.
+- There is no praise to bear the sort that you put in your pocket.
+- All which is not prose is verse; and all which is not verse is prose.
+- There are pretenders to piety as well as to courage.
+- All the ills of mankind, all the tragic misfortunes that fill the history books, all the political blunders, all the failures of the great leaders have arisen merely from a lack of skill at dancing.
+- Every good act is charity. A man's true wealth hereafter is the good that he does in this world to his fellows.
+- Oh, how fine it is to know a thing or two.
+- I prefer a pleasant vice to an annoying virtue.
+- Frenchmen have an unlimited capacity for gallantry and indulge it on every occasion.
+- It's true Heaven forbids some pleasures, but a compromise can usually be found.
+- I want to be distinguished from the rest; to tell the truth, a friend to all mankind is not a friend for me.
+- Writing is like prostitution. First you do it for love, and then for a few close friends, and then for money.
+- People don't mind being mean; but they never want to be ridiculous.
+- Don't appear so scholarly, pray. Humanize your talk, and speak to be understood.
+- Oh, I may be devout, but I am human all the same.
+- Some of the most famous books are the least worth reading. Their fame was due to their having done something that needed to be doing in their day. The work is done and the virtue of the book has expired.
+- Of all the noises known to man, opera is the most expensive.
+- The more we love our friends, the less we flatter them; it is by excusing nothing that pure love shows itself.
+- One ought to look a good deal at oneself before thinking of condemning others.
+- No matter what Aristotle and the Philosophers say, nothing is equal to tobacco; it's the passion of the well-bred, and he who lives without tobacco lives a life not worth living.
+- True, Heaven prohibits certain pleasures; but one can generally negotiate a compromise.
+- Unreasonable haste is the direct road to error.
+- The trees that are slow to grow bear the best fruit.
+- A learned fool is more a fool than an ignorant fool.
+- If you suppress grief too much, it can well redouble.
+- Esteem must be founded on preference: to hold everyone in high esteem is to esteem nothing.
+- As the purpose of comedy is to correct the vices of men, I see no reason why anyone should be exempt.
+- The greater the obstacle, the more glory in overcoming it.
+- Love is often the fruit of marriage.
+- Reason is not what decides love.
+- A lover tries to stand in well with the pet dog of the house.
+- He who follows his lessons tastes a profound peace, and looks upon everybody as a bunch of manure.
+- I have the knack of easing scruples.
+- We die only once, and for such a long time.
+- There's nothing quite like tobacco: it's the passion of decent folk, and whoever lives without tobacco doesn't deserve to live.
+- Of all follies there is none greater than wanting to make the world a better place.
+- It is the public scandal that offends; to sin in secret is no sin at all.
+- A wise man is superior to any insults which can be put upon him, and the best reply to unseemly behavior is patience and moderation.
+- Perfect reason flees all extremity, and leads one to be wise with sobriety.
+- Solitude terrifies the soul at twenty.
+- I have the fault of being a little more sincere than is proper.
+- It is not only for what we do that we are held responsible, but also for what we do not do.

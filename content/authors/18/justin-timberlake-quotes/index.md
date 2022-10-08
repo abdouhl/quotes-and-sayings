@@ -1,0 +1,108 @@
++++
+author = "Justin Timberlake"
+title = "Justin Timberlake Quotes"
+quotes_len = "102"
+description = "the best 102 Justin Timberlake Quotes"
++++
+- I feel very fortunate to be compared to somebody so incredible. Michael Jackson's an icon.
+- As time goes by people will see who I am for who I am.
+- That's something I learned from both my stepdad and my grandfather - that there is a thing called chivalry, and it doesn't have to die with the birth of the Internet. The way I see it, if you're asking a girl out on a date, it's only right to do it in a way that she can hear your voice.
+- Most guys in high school wore clothes seen only by their classmates. I wore clothes seen by the world.
+- The only thing that I travel with is an Ole Henriksen facial cleanser, something that my skin is used to avoid using different soaps at different hotels all the time, and Givenchy Man Pro-Energizing Massive Moisturizer. I usually keep my hair pretty short, too, so I don't require a lot of stuff.
+- I had a Jackson 5 wig that I would wear around, and I would do, like, the dances from the Jackson 5, and, you know, my mother thought that was hysterical. So of course, that seed got planted very early, the physicality of comedy.
+- Hosting 'SNL' was something I'd always wanted to do. The show allowed me to play to my strengths - mixing music with comedy seemed like a way into that world.
+- I really didn't try to make an effort to make urban music, but I am a product of my inspirations.
+- I like to play golf. I like to shoot hoops.
+- My mother is a ball of fire in the world, and I love that about her. But what I have learned from my stepdad is something as important, which is patience and compassion. Because when you are living with someone else, those two qualities go a long way.
+- I guess, for me, I've always thought that there was humor everywhere. And as a kid, I just, you know, I grew up an only child, and I - sort of nothing made me happier than to make my parents laugh. I remember I had costumes and things laying around the house that I was, you know, anything that I could do to make my parents laugh.
+- The thing is that my idols have always been the types of guys who could do anything: Gene Kelly, Fred Astaire, Sinatra, Dean Martin; and when you look up to people like that, you don't accept that you need to be compartmentalised.
+- If you put out 150 percent, then you can always expect 100 percent back. That's what I was always told as a kid, and It's worked for me so far!
+- My career decisions have nothing to do with my personal life.
+- My earliest memories as a kid was I would always try to make my mom and my stepdad laugh at dinner. Or make my friends laugh in class. And, I don't know, it's something I just really enjoy doing.
+- The fans have been great to me. I don't think it's asking too much to have me sign something for them.
+- I'm a mutt as far as music is concerned because I listen to everything.
+- I sang in church growing up. Memphis is the blues capital of the world, we like to say.
+- I think my style is kind of a cross between a skater hippie and an R&B star. If there were something I was going to endorse, it would probably be something like sneakers. Something that would be me.
+- I train in the mornings, and I'll eat two breakfasts. I'll have waffles with flax seed and almond butter and one egg scrambled. Then I'll work out and have a second breakfast - another egg or a protein shake. Within a half-hour to 40 minutes after a workout, that's when you want to load up on protein.
+- I'm not trying to sound pretentious, but we did sell 12 million records on the first album, so we did get paid a little bit.
+- I think when I was about 12 or 13, my dad started taking me out to the local golf course, and that's the first time I ever hit a golf ball. I picked it up pretty quickly, just kind of monkey-see, monkey-do. But when I was 12, golf was so slow to me. For me, it was basketball, girls and music.
+- I don't think men figure out what they're really about until they're 25. That's when they start to feel like themselves.
+- I'm very thankful to be doing what I'm doing. I feel very blessed.
+- You have a lot of time on these tours. As Alice Cooper said, you can either drink all day or golf.
+- Talent doesn't always equal success.
+- I know what it takes to put on a good show for the fans.
+- The many sounds of Memphis shaped my early musical career and continue to be an inspiration to this day.
+- I think it's important to remember that you go into something like marriage knowing that you don't know very much about it at all. But I do look at the marriage of my mother and stepdad, and what makes it work for them is that it's a team effort.
+- I mostly work out so I can eat religiously. I'm such a foodie. The only way I can make myself feel better about what I eat is to work out.
+- I can honestly say I am a Christian, but my spirituality has been developed on the road and is based on my experiences with God.
+- If I did any movies I'd have to take a break from singing, because I'd want it to be really good.
+- The way I grew up, I was always taught that it's uncouth to talk about money, and that's not what should inspire you.
+- You spend so much time developing a character when you do a film; so much of your work is done before you get set to shoot because you've been working on the character: the way he walks, the way he talks, what might upset him, what might make him happy.
+- The worst thing about being famous is the invasion of your privacy.
+- I think music will always be a big part of my life. I can't go five minutes without singing, sometimes unconsciously. And people stare at me, and I'm wondering why they're staring, and then I'm realizing that I'm belting out a tune.
+- 'Celebrity' is sort of an idea. I mean, I get to do something extraordinary, but I don't think it makes me extraordinary. That's my opinion. I like to be an artist; I like to do things that are involved in the arts, but I don't think it makes me more special than a doctor, for example. A doctor is an extraordinary person.
+- I will always come with something that's aesthetically pleasing.
+- Golf is me and buddies out having a good time, but most of all, golf is about me and my dad. Anytime I think of golf, I think about my dad. He taught me how to hit a golf ball, and he got me playing.
+- I have OCD mixed with ADD; you try living with that.
+- If you asked me what pop is right now. I'd say hip hop.
+- My favorite moments in the show are when I stand by myself and sing.
+- Sometimes I wake up and stretch and do 20 minutes on the treadmill, or anything to just break a sweat. And then I have the weekends where I can get out and play nine holes and maybe go to the gym.
+- The best part about being alone is that you really don't have to answer to anybody. You do what you want.
+- Senorita was fun to sing, but I don't really have a favorite. When you write a bunch of songs, they're like your babies. You don't pick favorites.
+- I needed freedom to really express myself. That's really what Justified is about.
+- I was raised in a very humble environment, and I was always taught to be humble to the things that are happening in my life because they're blessings. They're blessings in every way. Whether you're able to help someone get through a tough time in their life through your music or through comedy, or whatever it is, you're just a channel.
+- Honestly, the only thing I loved when I was a kid was basketball. I was an athlete when I was a kid, and that was it.
+- The right scent can make you feel a little more stylish, but it should never eclipse who you are. It should complement who you are.
+- If there were something that I was going to endorse, it would probably be something like sneakers.
+- True love, to me, is when she's the first thought that goes through your head when you wake up and the last thought that goes through your head before you go to sleep.
+- 'Friends With Benefits': it feels like a two-hander to me, but it is a big movie, and this is the first straightforward male I've been able to play. I would describe my character in 'The Social Network' as a kind of sociopath. I would describe my character in 'Bad Teacher' as... just a weirdo. But this is a male's male.
+- I have 20,000 girlfriends, all around the world.
+- Honestly, when you're making a movie, you never say, 'Oh, this one's going to suck and go straight to video.' When you're in it, you think you're doing the best work you can do. You're surrounded by people who are working hard. Everybody's hopeful.
+- I'm such a Type A personality - when it comes to a road trip, I plan my food so far in advance. I roll hard with a cooler. I don't mess around. I want to avoid ending up eating fast food. I try to stay away from that.
+- I like simple things. I like to sneak in the theatre and watch movies. I'm a movie buff.
+- I'm completely removed from any hype that comes my way.
+- The most boring thing in the world? Silence.
+- When I was a kid, I played basketball religiously. I begged my mom to get me voice lessons because I wanted to learn to sing the right way, but at the same time, I was playing Junior Olympic basketball, and I was playing point guard for my school. But I was wanting to get into entertainment, into music and film and television.
+- I think I had a knack for music, but I think what I was more sort of talented at more than anything, because I don't think I'm a great singer, I think that I grew up imitating different voices that I heard.
+- The only thing I wasn't prepared for was being everywhere all at the same time.
+- The golf swing is very, very rhythmic. There's a certain tempo to it, just like in music.
+- When I'm not on stage, I'm kind of shy. If you see me and I don't say much, don't think I'm not taking in what you have to say. I'm just not a big talker.
+- The hardest part about making movies is staying the exact same weight every day and looking the same.
+- I didn't put out this album because I wanted everybody to know I was grown up. I'm 21 and that's not grown up.
+- The best part about being with a group is that you don't have to do everything alone. You're with your friends.
+- This isn't about the money. This is just for me. I love music.
+- I used to keep my Air Jordans icy white. I had one toothbrush for my teeth - and a couple of toothbrushes for my shoes.
+- Music is for dreamers, I think.
+- With the exception of octopus, I don't think I've met any food that I didn't like. And by the way, sometimes I do like octopus. I'm just not crazy about it by itself. I love sea urchin. I love uni. If I'm going to die of anything, it's going to be gluttony.
+- Technology's related to everything. Technology is making the world more accessible, so yeah, as generations go by, they'll become more and more married to each other, for sure. I think they go hand in hand - fashion inspires design, and technology inspires design as well.
+- In films, I didn't crave the type of attention I had sort of stumbled into in my music career. And I do not audition well. I'm really not good at it. Early on, I did movies like 'Alpha Dog' and 'Black Snake Moan' because the directors didn't ask me to audition.
+- I think the only way to achieve something that's classic is to be in the moment. You don't sit around and think, 'Oh, I hope this is remembered forever!' You just have to be honest, and I think that requires being in the moment.
+- Just writing and being in the studio was like therapy for me.
+- You can say things a million times, but if you can't sing it, then it really isn't much of a song.
+- I remember my mom saying, 'I will take you to every audition, I will support you, but the minute you stop caring about it, I will stop.'
+- Gossip is called gossip because it's not always the truth.
+- I believe people can move things with their minds.
+- If entertainment years were dog years, man, I'd be like Gandhi. I'd be, like, 250 years old.
+- There's nothing wrong with shooting for the stars.
+- My biggest challenge was to make sure that the songs I did were who I am.
+- I think I have to laugh about the fact that I grew up in public. All these weird stages in my teenage years are documented. Why did no one tell me how terrible some of those outfits were?
+- I don't see myself as someone who's ever going to be defined by one moment. It's on to the next.
+- I have really great, great parents, and they were very supportive of me.
+- Sometimes a producer and an artist get together and they make magic like Quincy Jones and Michael Jackson. As far as my own music career - you could liken my chemistry with Timbaland to Marty Scorsese and Robert De Niro.
+- My teenage years were exactly what they were supposed to be. Everybody has their own path. It's laid out for you. It's just up to you to walk it.
+- Every time you do a project, you learn something new.
+- As far as the press is concerned, they're going to say what they want to say. Probably about 10-15 percent of the time It's accurate.
+- Teen pop will never die as long as there are teens and popular music. It just takes a different head.
+- What makes most people comfortable is some sort of sense of nostalgia. I grew up in a small town, and I could count my friends on one hand, and I still live that way. I think I'll die in a small town. When I can't move my bones around a stage any more, you'll find me living in a place that's spread out and rural and spacious.
+- I would never do anything just for spite.
+- Every relationship I've been in, I've overwhelmed the girl. They just can't handle all the love.
+- I was an only child and was obviously really bored, so I would entertain my parents by imitating cartoon voices like Scooby Doo, Boo Boo and others.
+- I pick my nose and I'm not ashamed to admit it. If there's a bogey then just pick it, man.
+- Sometimes I don't even know what to name a song when I get done with it, and I'll let somebody else tell me what I should call it because it's whatever stuck in their head.
+- We've been in that situation where you're just so happy to be doing what you love to do that you get taken advantage of.
+- When I was a kid, I would impersonate anything that I would hear. It's - actually, I attribute that more to why I actually was able to become a musician and a singer.
+- I'm a perfectionist. I can't help it, I get really upset with myself if I fail in the least.
+- I get way more nervous playing golf in front of 500 people than being on stage in front of 20,000 people.
+- I'm not in this for the money because if I was, I would have jumped out after our first album.
+- I used to think I actually was Batman.
+- When I'm in the studio, there are no boundaries.

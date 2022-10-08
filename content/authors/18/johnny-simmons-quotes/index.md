@@ -1,0 +1,20 @@
++++
+author = "Johnny Simmons"
+title = "Johnny Simmons Quotes"
+quotes_len = "14"
+description = "the best 14 Johnny Simmons Quotes"
++++
+- I've done a lot of movies, but none of them that have blown up the way that 'Divergent' did.
+- 'Hotel For Dogs' was fun for my family, but it was kind of hard to get in the audition room for 'Jennifer's Body' after that, you know? But I think the roles find me, in a way.
+- I'm so freaking happy when I talk to people who saw 'The Greatest.' I love that movie. It was the most intense job.
+- Just trust those around you and trust yourself.
+- If you want to be real about it, the fact that any actor books a job is a one-in-a-million shot. I've been so fortunate to have worked on even a few films, so, no, I don't wake up feeling bad.
+- I have a couple of friends who have gone pro in sports, and if you are off by an inch, it's an entire mindgame for the next week. That's how it works: like, your whole world is based around an inch. Being an actor, your whole world turns on an inch, too.
+- Jason Schwartzman's, like, one of my favorite actors, for sure.
+- It's always amazing to me how hard the crew works.
+- I think turning 30 - and same with turning 21, 25, or turning 18 - those are moments in life where something new is expected of you, or you expect something new from yourself.
+- It's so easy to become caught up by, 'I've got to do this,' or, 'I've got to do that,' and most of the times, the best stuff comes from when you are not trying to do anything and when you let go.
+- Everybody is going to have their own issues that they bring to the table, but for me, the best thing is just giving over to whatever is there and trusting whatever is there and enjoying it.
+- Sometimes I feel I have no idea what I'm doing as an actor. I just did a tape for the TV remake of 'The Rocky Horror Picture Show,' and I think it could be the worst thing I've ever done.
+- Every time I get a role, I'm surprised. It's like, 'Alright, when am I going to stop fooling them?'
+- I get shy. I think that's in any situation.

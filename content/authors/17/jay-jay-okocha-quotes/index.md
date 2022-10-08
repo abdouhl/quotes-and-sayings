@@ -1,0 +1,106 @@
++++
+author = "Jay-Jay Okocha"
+title = "Jay-Jay Okocha Quotes"
+quotes_len = "100"
+description = "the best 100 Jay-Jay Okocha Quotes"
++++
+- Sometimes having the best players is not enough to win the Champions League.
+- I played in Qatar only because I had a great offer and I am not ashamed to accept. We played in empty stadiums! I realised what a mistake I made and decided to leave the club immediately.
+- For me racism doesn't belong to football and it doesn't belong in our society any more.
+- People just don't want to pay to see players diving around.
+- It's always nice to be among the best teams but not everyone can do that.
+- Football is a show and you have to enjoy what you are doing.
+- I think sometimes players must have a wake-up call before they realise they are back in African football.
+- The life was good in Qatar but I did not enjoy the football. For me, 12 months was enough. The standard was low, but not that low. It was OK but the ambition was not there from the players. It was like playing for nothing. I didn't like that feeling.
+- It's a team sport but every player's ego will kick in at a certain point.
+- Stars don't necessarily make a good team and that is what we must learn.
+- I love playing and I'll do everything to be a first-team regular.
+- I felt like a prisoner. In Qatar, you need a sponsor to get a work permit and you cannot leave the country unless you have an exit permit from your sponsor.
+- Leaving the stage would pave the way for younger players to come up too.
+- You can't play football without having a good training pitch.
+- I have been following the Premier League very closely because once you have been a footballer you have an affinity with the game.
+- My biggest opponent was 'me.'
+- I love showing off my skills on the pitch. You can make opposing players look stupid.
+- Nigerian footballers who have played in Russia improved their ability here.
+- I think the way I played, I would have suited Sundowns.
+- I don't have to think about other players. I'm more concerned with my own game and how I can influence things on the field with my ability.
+- People in Nigeria weren't happy that I went to Qatar. They said 'why did you go there of all places?' They missed watching me on television but sometimes you have to think about yourself and your future as well.
+- After playing in England, going to a place where you have 40, 50 people at the stadium was no fun.
+- When I was in Paris I was at a big club in a major city, but nobody really cared about each other. It didn't have that family feeling, I didn't see any team spirit.
+- To be honest, I can live anywhere.
+- I have got my pride to defend.
+- There always be rumours. That is also part of the game because it is a global game and a massive business.
+- Ronaldo is a fantastic player, one of the best I've ever seen, but he's been a bit unfortunate to be of the same generation as Messi. Consequently, they have to share the limelight.
+- I used to say that I got to Germany as a boy but I left as a man.
+- You can come up with whatever tactics you want as a coach but if you don't have the tools to execute you will struggle, and if you don't have willing players that are ready to commit to the cause than you will struggle.
+- How can you be a giant of the sport when you are not consistent?
+- So, we know that when the going gets tough, the tough get going. I still believe that is the good thing about Nigerian players. We can always spring up so many surprises.
+- I think I maximised my opportunity at Bolton, changing the mindset of the people from when I arrived till the time I left.
+- Preparing well for a tournament sometimes is not enough to win it as you also need a lot of luck in order to win.
+- When you don't spend or invest in the future, you can't always get away with it.
+- I've trained my whole life to be a winner and if I know two things it's that to be the best takes passion and persistence.
+- My faith comes before anything. It has also taught me to respect and admire people for what they are and who they are.
+- Everybody wants to play in the Premiership and I like a big challenge.
+- It is always nice to play for the bigger teams, contesting titles and Champions League rather than relegation.
+- I can't play football forever, I am not a greedy person.
+- I should have got a medal at Neunkirchen, my first club in Germany.
+- The way I learnt to play was to go out there and enjoy myself. I never thought I'd play professionally.
+- There were very few TV sets when I grew up... We could not see matches and did not know too many players. Only Pele was a household name and he was the one most children idolised.
+- I am an instance of what is possible with a lot of hard work.
+- If you score goals late on it's not the sign of a lucky team, it's the sign of a fit team who are close together and fight for each other.
+- People wonder why I chose to come to Bolton. There's a different pressure and mentality here to PSG, where we were expected to challenge at the top every year, but look at our squad - quality throughout.
+- I think it's always easier to sit on the outside and act as if you have the best solution.
+- Nobody likes it when people dribble past them, me included, but I can't tackle.
+- If you work hard, dedicated to what you are doing, and you are disciplined, you will succeed in the end.
+- I wanted to play in the Premier League and Bolton offered me that opportunity at that time and that was why I signed for Bolton.
+- I know there are millions of football fans who love this game, but can see the world outside it.
+- For me, there is no limit to success.
+- I think it is also the most demanding league; the pace of the game in the EPL is something else and rightly for me is maybe the best league in the world.
+- It's not easy to break into an Arsenal team from youth.
+- I believe that it is not worth it to train from Monday to Friday just to have 20 minutes on the pitch or sit on the bench on Saturday.
+- It would be in my interest to have great players around me because, if you're playing with good players, it makes your job a lot easier.
+- Sometimes money is not everything.
+- Messi and Ronaldo have dominated world football for a decade and, given the nature of football, at a certain point the baton will have to pass to someone else. I think Neymar has a great chance of filling that role.
+- I've wanted to be a part of the Premiership for some time, to experience the excitement and the atmosphere.
+- Traditionally it's been difficult for Africans to play over here, mainly because the African calendar is very different to that in Europe. Most of the coaches over here can't accept that we have to go back home to play at the Nations' Cup for a month while the season is still on over here. That made people reluctant to sign Africans.
+- I can proudly say that I had no scandal throughout my career. And there was no serious injury worries because of what I was taught how to live off the pitch. It was very important.
+- I'd say the player whose style most resembles mine would be Neymar. That's because I played with a sense of joy and you can see that he feels the same and really enjoys his own play. He doesn't play for himself or just to entertain the fans - he plays for his team. He uses his quality and skill for the good of the team.
+- I got to Germany without being scouted, and without any experience of playing for my country. But I was given the chance to excel.
+- I'd be lying if I said I never had any issues with players but at some point you have to stamp your authority because if you're good at taking free-kicks, for example, they should let you take them.
+- I believe an African team will one day win the World Cup, and it could even be in Brazil.
+- It's always good to have more than one player who can take free-kicks or penalties.
+- I've invested in pitches and continue to run clinics to help encourage others to do the same.
+- If I had the opportunity, I will ask every Nigerian kid to start his career in Germany. The structure they have in the Bundesliga is far from what is obtainable in other leagues.
+- Bolton was one of the relegation candidates when I got there but we took the club to another level and even had the opportunity to play for the first time in the Europa League.
+- In football, everything can change.
+- My first World Cup appearance remains fresh in my memory and what made it incredible was that I had made my first appearance for Nigeria just a year before.
+- I was gifted with the ball, and I saw the opportunity of playing in the Bundesliga as the tool I needed to make a name for myself.
+- Aboutrika has done well with Egypt, winning the Nations Cup in Ghana, as well as helping Ahly win the Champions League for a record sixth time.
+- I knew I was in charge when with the ball. But on the toughest defenders I faced, I would say that my African brothers were the ones. We have the same mentality and thought the same way. Osei Kuffour was the toughest of them all.
+- Winning the Carling Cup would be the ultimate for me.
+- I experienced life in a struggling team at Eintracht Frankfurt, but I was still young then and didn't understand what it meant to be relegated.
+- I'm friends with Igor Yanovsky from when we played together at PSG and he suggested a few Russian dishes to me. I really love borsch!
+- I came out of a background of want, but today I give glory to God.
+- I always ask God if it is his will, and if so, then let it be. Whatever comes out of it I will accept it. That's the message I got and that's why I'm here at Hull.
+- The Bundesliga is the league that made me, and it changed my life.
+- My Nigerian colleagues gave me a good impression of the Premiership and I am glad to be here.
+- My advantage is my skill so I have to use it.
+- You have every right to set yourselves targets and whether you achieve it or not is entirely a different matter but at least you have to be ambitious and set yourself challenging goals.
+- When you want something desperately and you lose it, no matter how hard you try to get yourself motivated, it's always difficult.
+- I am very competitive.
+- Education from six-year-old to 14 is compulsory in Nigeria, but the simple fact is that a lack of resources, coupled with peoples' inability to afford books and uniforms mean the reality for millions of Nigerian children is a life without education.
+- As kids, we were used to playing football with anything that we managed to kick and whenever we got a ball, it was a bonus.
+- I don't want to stay on the bench all the time.
+- I am proud of the part I have played in the development of Bolton.
+- I often come across Russians and they're all interested in football.
+- I don't mind if we play ugly and win, as long as we win.
+- Football has an important place in Russia.
+- Well, I think sometimes I am brutally honest.
+- I am grateful to God for that because people can still identify me with something in Germany.
+- Well of course, as a fan I think I'd love to see Neymar play.
+- Maputo is a difficult place to play.
+- Playing in the German Bundesliga gave me the platform to excel in my football career.
+- I realized at a very young age that I had a gift to do special things with the ball.
+- It is a very physical league but if I can play in the Premiership then I won't have any problems playing in the Championship.
+- I don't walk around with a bible or preach to people and I don't want to disturb my team-mates on match days by praying in the dressing room, so I do that at the hotel before I leave. I respect their way of life and do not insist that my way is best. I have not tried to convert anybody.
+- I pray a lot and it has helped me throughout my whole career to stay calm and focused.

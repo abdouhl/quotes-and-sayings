@@ -1,0 +1,29 @@
++++
+author = "Justin Roiland"
+title = "Justin Roiland Quotes"
+quotes_len = "23"
+description = "the best 23 Justin Roiland Quotes"
++++
+- Every fandom has, you know, it's made up human beings, of people. And there's good, bad, in every group, so we can't worry about that stuff.
+- We would never do anything for the sole purpose of bumming people out or upsetting people.
+- You can have an absolute laugh-out-loud-till-you're-crying game, but if it's not fun to play, if the mechanics aren't there, it doesn't matter.
+- I'm just insane. So what usually drives me is pure joy for something stupid. I'm also very visual. I'll have an idea in my head that I really can't shake.
+- Anybody in animation today would be lying if they said they weren't somehow influenced by 'The Simpsons' to a certain degree. Except for the shows that go out of their way to look as far from 'The Simpsons' as possible.
+- Everyone's going to have their own experience and perspective on everything.
+- In 2006 or something, I was recording the voices for this short, 'The Real Animated Adventures of Doc and Mharti.' I was having fun doing these really crappy Doc Brown and Marty McFly impressions. During the middle of a line, a burp came out naturally. It was just so funny and gross.
+- There are very few VR games with really strong characters and voice acting.
+- When you kind of don't care, for some reason, that's when things happen.
+- Tonally, the stuff I want to do in VR will, of course, always have a comedic backbone and be a bit absurdist and colorful with really interesting and bizarre characters but supported by really strong gameplay mechanics.
+- I'm not a big burper. It's not easy for me to do.
+- Definitely that's the worst, to discover that something you're doing has already been done.
+- With video games, imagine it's not locked - it's a TV show people can reach in and do this and do that, and you need to have dialog for all of that stuff.
+- The first 'Interdimensional Cable' episode is amazing because it's filled with such absolute drunken nonsense.
+- I would probably struggle a bit more with a really dramatic serious-intent story. You have to really bring it. My brain is so comically wired, though.
+- I know, on 'Rick and Morty,' we had the time where they unfreeze time, and they're in trouble because of it. The time starts splitting. That episode, we got a little too focused on 'how,' the hows and the science behind it, and oh my God, it was - it was spiraling us for sure.
+- The biggest thing you can do in VR that you can't really do in non-VR games is a huge focus on exploration and interaction.
+- I absolutely love VR.
+- The goal for us to do with Squanchtendo is to approach all of our projects with a goal of adding interesting characters, personality, and a story to interact with in-game. Every game we make will be built from the ground up for whatever hardware it will launch on.
+- 'Futurama' is this awesome, animated sci-fi show.
+- I can't burp on command.
+- My secret to comedy is don't offend anybody. Don't offend anybody ever. That's my secret.
+- I had a job on a Spike TV show called 'Fresh Baked Video Games.' I was the animation producer/kind of a writer, but I couldn't get anything through.

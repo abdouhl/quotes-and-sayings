@@ -1,0 +1,15 @@
++++
+author = "Michael Lynton"
+title = "Michael Lynton Quotes"
+quotes_len = "9"
+description = "the best 9 Michael Lynton Quotes"
++++
+- We released 'The Interview' through a variety of platforms, and we continue to look for other distribution options. Throughout this whole process, we never stopped - not for a single moment - trying to secure a broad release. Our studio takes great pride in continuing to grow the release of this movie and making it a success.
+- The entertainment industry at large has pretty much given away high definition to consumers. They haven't really charged a premium for it on television. That makes consumers more likely to buy Blu-ray but less likely to pay a premium for it.
+- For the most part, Hollywood is very transactional. People want to make movies and television shows.
+- We will continue to renew and redefine Sony Pictures.
+- The teams that worked on the innovative distribution of 'The Interview' are just a few of the many that put in long hours over our studio holiday to ensure business continuity, rebuild our systems, and protect our company.
+- I think DVD has been a real gold mine for a lot of reasons. You were selling a packaged good in a big mass market, so you could make it huge. You were selling or renting a thing that people didn't consume. You go to Blockbuster, rent five movies, and only watch two. That's a good business to be in.
+- I was one of two Jewish kids in my school. We were probably one of two Jewish families in our town.
+- People are paying a premium to see movies in 3-D, and that's a very big deal. It's never been done before that someone says you have to pay more to see 'Spider-Man' than a romantic comedy.
+- What is unusual about the United States - and it's something that I have never gotten used to - is that Jews here, there are so many of them, and they are so important to the culture.

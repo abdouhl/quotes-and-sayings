@@ -1,0 +1,60 @@
++++
+author = "Ayman Odeh"
+title = "Ayman Odeh Quotes"
+quotes_len = "54"
+description = "the best 54 Ayman Odeh Quotes"
++++
+- A man who dies, no matter how terrible his crime was, must be brought to burial.
+- Netanyahu personally is leading the campaign against the Arabs.
+- I remember, I used to get off a bus, and if there was someone sitting in the station, I remember thinking maybe they were from Shin Bet and came for me.
+- Israel cannot be a democracy if it occupies land of other people.
+- The Knesset members - Jews and Arabs - don't represent the state of Israel. The government is the one that represents the state of Israel officially.
+- Israel made peace with Egypt, the largest Arab State. There are militant Islamists there, but there is also law. There are agreements and also defense arrangements there.
+- There can't be real peace without improving the integration of Arab society and making it part of the political game.
+- My biggest goal became to bring the weight of and the voice of the Arabs into the Israeli political sphere.
+- My goal is that Jews feel safe in their country.
+- I have no doubt that the Palestinian Arab leadership made a mistake when it did not accept the partition plan in 1947, but I want to try to understand it.
+- If Jews don't come to Nazareth, Arabs don't go to Afula. There is fear on both sides.
+- When I began my political career, I identified with Malcolm X.
+- A popular intifada is most beneficial for the Palestinians.
+- The U.S. is friends with dictatorial regimes, then invades places like Iraq and Afghanistan, and what happens afterwards is a catastrophe. In the place of their leaders, fundamentalist movements that use the name of Islam spring up, and all that's left is terror and bloodshed.
+- We in the Joint List are living proof that Arabs and Jews refuse to be enemies.
+- Arabs don't have to be the victims of the Jewish war between Lieberman and Netanyahu.
+- The al-Aqsa compound is occupied territory that, as per the status quo, is administered by the King of Jordan and the Muslim Waqf.
+- Incitement and anti-Arab hatred increased significantly during the Gaza conflict.
+- Maybe for you in America, Dr. King has become boring because you hear about him so much. But for me, he is the man who has most inspired me.
+- I can argue like a Marxist about whether there was a global Jewish nation 200 years ago or whether it was just a religion. But this really doesn't matter.
+- I agree with myself on 80 percent of things, but when I look at myself in the mirror in the morning, I still have inner debates about the right thing to do.
+- In reality, civil rights are more important than national rights. They're the content, the day-to-day: work, life. But people are sensitive to national rights.
+- The Palestinian people choose how to fight against the occupation.
+- Martin Luther King fought for blacks, and democratic whites were with him.
+- Every nation has a flag.
+- Just as Jews in the U.S. joined Martin Luther King, I'm sure hundreds of thousands of Jews will join the struggle for civil equality in Israel.
+- If you believe you're a nation, then I accept you as a nation.
+- I do not put red lines on the Arab Palestinian nation.
+- I don't accept the Zionist idea.
+- I am an elected official; I was not elected by the Right.
+- Occupation is the Palestinian people's tragedy, but also Israel's present. We must liberate both people from the occupation.
+- Al-Aksa is a religious and national symbol.
+- If America would really stand behind the two-state solution, they could make real pressure on Israel.
+- I have a lot of warm feelings towards the Palestinian people.
+- According to Netanyahu, he should rule like a Caesar, and the Knesset should be run by the tyranny of the majority.
+- I flee from symbols. I think those who don't want to solve problems go to the symbols. I'm looking for content.
+- The struggle for equality is really a struggle for democracy, and that's why it's a struggle for all the population.
+- I am very wanted in my homeland. I am part of the scenery, part of the region. I resemble it.
+- The Arab population does not want to turn inward and be isolated.
+- My people are from Haifa.
+- Where there is law, and where there is government, there is security.
+- No one is speaking about the Arab citizens of Israel.
+- Our beautiful homeland is enough for us, Arabs and Jews. If we turn her into a battlefield, she will spit us out.
+- Eventually, I moved from a place of anger toward the Jews of Israel toward a place of embrace.
+- Abu Mazen has no more hope for Netanyahu's approach. He's searching for a way to establish the Palestinian state. He doesn't want a militarized struggle with Israel.
+- I am not some intellectual hoping to be understood a century from now. I'm a political leader. I have to stand in front of my community. If I am a metre too far out in front of the people, I'll lose them.
+- Only the public that elected me can dismiss me.
+- The Right everywhere in the world gains more by forming a security agenda while the Left gains from a social agenda.
+- When I read Malcolm X, I didn't agree with it all, but I inhaled it; I connected to his rage.
+- Attacking innocent people is always obscene.
+- I was a member of the Haifa City Council when I was 23 years old, which made me the youngest city councilman in Israel.
+- I come from a place of loving people - all human people.
+- An Arab who works and pays taxes is good for everyone. An Arab who doesn't work and receives social security stipends is bad for everyone.
+- I believe that the U.S. is the strongest country in the whole world and the country that supports Israel the most. I believe that it has the strength to push Israel towards peace.

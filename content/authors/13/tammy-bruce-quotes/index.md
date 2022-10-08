@@ -1,0 +1,31 @@
++++
+author = "Tammy Bruce"
+title = "Tammy Bruce Quotes"
+quotes_len = "25"
+description = "the best 25 Tammy Bruce Quotes"
++++
+- From the subtle to the extreme, our culture and our values are under unrelenting attack from the media.
+- The liberal feminist movement never imagined that women would take seriously the encouragement to become our own heroes and claim life for ourselves, on our terms, no matter who we are. Pro-choice and pro-life, Christian and not, poor and rich, black, white, gay and straight. It is a dream we all hold dear, and it's called the Tea Party.
+- Republicans have never been good at public relations.
+- The Left Elite only pretend to be concerned about what's best for everyone else because it is the most effective way to manipulate you and your children into their abyss.
+- How one stands up to any sort of allegation in the heat of political battle reveals the strength and nature of your character. It's one of the reasons we have campaigns.
+- Believing a person deserves a defence is not the same as doing anything in your power to get him off scot-free.
+- In politics, the reaction to a controversy is very often more enlightening and important than the details of the allegations themselves.
+- Trials are no longer about freeing the innocent, punishing the guilty, and making restitution to the injured. They have devolved into a contest over who will win.
+- My friendships and relationships in the conservative world are not predicated on political correctness and enforced conformity of thought. They are based, instead, on mutual respect, honesty and understanding - concepts many modern liberals should consider revisiting.
+- Remember, social progress only happens when those in society's privileged classes choose to give up their status.
+- Gone are the days when reality fed the feminist movement.
+- Blacks who have not succumbed to the victim culture have been, are, and will be doing quite well - all on their own, without handouts, affirmative action, and other patronizing measures.
+- The United States has grown into a remarkable nation specifically because of our independent spirit and free market.
+- As you might have gathered, I prefer the honest, decent and genuinely accepting friends and family I have in the conservative world.
+- Horrible things happen when you run out of other people's money, and life and work becomes a burden when there is no reward for your effort.
+- When the courts decide that murderers, rapists, and others who maliciously break our social contract deserve health care that most working Americans can't afford, they are condemning good people to death.
+- The question we all face is what sort of culture we will live in for the rest of our lives and then hand on to the next generation - one that embraces these most basic of values, or one that collapses because of their absence.
+- One of the biggest problems with the modern feminist movement is its failure to bring men along with us.
+- Unfortunately, what many people forget is that judges are just lawyers in robes.
+- Sarah Palin may have chosen to not answer the call for the presidency, but make no mistake, the principles that garnered her the unique support she enjoyed continue to inform and drive the base that lifted her.
+- For the gay establishment, the death of right and wrong began when gaining civil rights ceased to be enough.
+- The Tea Party represents stakeholders in the American system; people who were never involved in politics or thought they had to be, yet realized that political corruption and incompetence threatened not only their families, but the future of the nation itself.
+- For women who turn to welfare, Big Brother becomes Husband.
+- One of the goals of the Feminist Elite is to reinforce to women the idea that men are obsolete.
+- Yes, we have the freedom to do what we please, but it only works because we don't do everything we might please - we should exercise some degree of personal, and corporate, responsibility.

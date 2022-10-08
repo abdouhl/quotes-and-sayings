@@ -1,0 +1,25 @@
++++
+author = "Jonas Armstrong"
+title = "Jonas Armstrong Quotes"
+quotes_len = "19"
+description = "the best 19 Jonas Armstrong Quotes"
++++
+- My mother asks when I will do some theatre, and there is something about getting your 15 minute call. That is what you become an actor for - performing in front of people and getting the love from the audience.
+- I was always interested in films and thought that was the path I should go down, but I didn't start pursuing acting until I was 17.
+- Robin Hood is often seen as the hands-on-hips, archetypal, tally-ho hero. But, realistically, the one calling the shots wouldn't be at the front shouting about it. He'd be the one you don't expect.
+- I was proud of 'Robin Hood,' even though critics wrote negative things. But I had to laugh when this big, shaven-headed Hungarian stunt guy first saw me. He said, 'You Jonas? You playing Robin Hood? You need to go to the gym today.' So I thought, 'I'm going to show people.'
+- I can't remember what Michael Praed looks like. I'm too young!
+- When I was 14, I almost had a big green leprechaun tattooed on my forearm. Thank God I didn't - it would have been a nightmare to cover up as an actor. I went with a group of mates and, being Irish, thought a leprechaun would be perfect.
+- I'm a big fan of the Adidas three-stripe old-school zip-up tracksuit tops. I've got several for everyday wear, including an olive-green one, a burgundy one and a cream one with leather arms.
+- I'm a clean liver; I'm no thief. Kids go through phases of nicking stuff. I've nicked stuff - most people have - but I haven't nicked anything of significance.
+- If I don't go to the gym and work out, I look like a bag of bones. I go three times a week usually and it's nearly all weights work to help with definition.
+- Jewellery's not a big thing for me. The only thing I wear is a gold cross on a chain that I got for my 21st birthday. You have to take it off every day for filming, but that's the only time I'm not wearing it. You won't find me in rings, bracelets or earrings.
+- I'm always polite in auditions, but I wasn't like, 'Oh, please give me the job,' for 'Robin Hood' because I didn't think I'd get it. I got told about the audition just a few days before I went to India to film something else. I must have been a bit cocky with it.
+- It's flattering that there are lots of Internet fan sites about me. I'm a bit of a technophobe and I don't even own a laptop, but it's probably a good thing I'm not logged on, checking up on what everyone is saying about me.
+- If you find yourself desperate for money, you sometimes do whatever, but on the other hand, if you really want to be known as a certain type of actor, then you have to restrain yourself.
+- The first time I've actually filmed in London, the locations we've all had have been real inner city, grimy urban places which has been great. Filming here, you've got everything on your doorstep, so when you've got time off, you can go into town, so I've really enjoyed it.
+- I live in Sheffield, and most auditions are in London, meaning I'm normally a bag of nerves on the train to London because you have all that time to think.
+- I've always been a stubble man; I don't do clean-shaven.
+- Plain white T-shirts do it for me every time. You can spend anything from £3 to £50 on a T-shirt, but I've bought some great ones from H&M, as well as shelling out on Duffer Of St George and a Polish label I discovered while filming 'Robin Hood' in Hungary called Scotch And Soda.
+- All my friends were choosing university courses, but I had no interest in anything other than acting, so I applied to go to RADA.
+- I do remember a lot of teachers saying I would do well on TV, as I have a 'modern look,' but I never knew how to take that.

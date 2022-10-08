@@ -1,0 +1,100 @@
++++
+author = "Timothy Morton"
+title = "Timothy Morton Quotes"
+quotes_len = "94"
+description = "the best 94 Timothy Morton Quotes"
++++
+- My mates Dominic Boyer and Cymene Howe have put together thirty one episodes of a really really nice podcast at Rice as part of the Center for Energy and Environmental Research in the Humanities and Social Sciences. The 'Cultures of Energy Podcast' is so good!
+- I find it beyond stunning that there is a school of thought or two out there that swears we are into solids and that solids are bad and liquids are good.
+- Trivially speaking, ecological awareness means realising that beings are interconnected in some way, but then we have to figure out what this interconnection actually means.
+- Am I simply a vehicle for numerous bacteria that inhabit my microbiome? Or are they hosting me?
+- It's easier to be Eric Idle than to be Paul McCartney.
+- A job letter, an interview - even a writing sample - have far less to do with intellect and far more to do with aesthetics than you think.
+- Losing a fantasy is much harder than losing a reality.
+- There is no essence, but there is a flux that is more real than any instance of the flux, such as a milk bottle or a tiger.
+- We're all human beings, in the end, despite our differences.
+- Since a thing cannot be known directly or totally, one can only attune to it, with greater or lesser degrees of intimacy.
+- Always say less than you think you need. Inject some space into the conversation.
+- If you're facing rejection right now, it's very important to realize, especially in a down market, that it's not personal. Really. Truly. The indifference of the system is also crushing. But perhaps it's better than thinking that someone was out to get you.
+- I try to have little or no alcohol when I go to a big conference. Sorry to be a party pooper, but that stuff can regress you really fast, and this is not a good place to regress.
+- If you're applying for jobs, get a suit now, whether or not you get an interview. Spend as much as you can on it without breaking the bank. It will do you some good.
+- When I make music, I often sound better singing as a woman, go figure, so I like to tweak the format and pitch and suchlike of my recorded voice. Sounds better.
+- Unfortunately, of course, guilt is an artifact of agricultural-age religion and is designed specifically to prevent humans from thinking and operating on a collective level.
+- Applying for a job after finishing a Ph.D is about turning yourself inside out. You've been involved in the most introverted process you've ever done, and now you have to show yourself to the world at large.
+- I always knew Andy Hageman would publish incredible eco stuff.
+- OOO objects have all the abjection added back in. They don't behave like normalized patriarchal subjects at all.
+- Bohm's 'ontological interpretation' was so called because of the bad rap the word 'ontology' has had in our correlationist age. As a bit of a put-down.
+- One advantage of arguing that causality is aesthetic is that it allows us to consider what we call consciousness alongside what we call things.
+- 'Humankind' is an attempt to think the human species without Nature and without humanity.
+- 'Do not touch ontologically' doesn't mean 'are separated by empirically measurable hard edges.'
+- I can get quite well known, and then I can unleash this kind of anarchist-hippie thing that I've been holding like a very precious liquid, carefully, without spilling any, for years and years and years. And now I'm going to pour it everywhere.
+- When you look for the environment, you find things that are in it: a hammer, a smartphone, some rusty nails, a shed, a spider, some grass, a tree. So there is a big difference between environmentality and Nature. Nature is definitely something you can point to: it is 'over yonder' in the mountains, in my DNA, under the pavement.
+- Anyone who has trouble imagining causality as magical and uncanny need only consider the existence of children.
+- I love David Bohm. I started to get into speculative realism because I started reading his work.
+- Pollution is everywhere, in that ancient Greek sense of miasma: guilt experienced as abject body fluid, moral pollution defining what kinds of beings count in social space.
+- In the U.K. - correct me if I'm wrong - there is a legal definition of 'not being in possession of yourself' aka 'not being a person.' That's the fun thing: someone such as a lawyer needs to define, using some empirical signal, something supposedly transcendental like 'person,' something lawyers argue and argue about regarding, say, chimps in zoos.
+- Our ecological emergency demands proactive choices, not reactive sideswipes.
+- Inevitably, ecological awareness has this kind of '70s flavour to it.
+- 'Free speech' isn't speech at all if it's being used without listening, attention, or care.
+- The Severing is a catastrophe: an event that does not take place 'at' a certain 'point' in linear time, but a wave that ripples out in many dimensions, and in whose wake we are caught.
+- I love folding laundry.
+- It's easier to be the art school band than to be the Beatles.
+- After a lifetime of listening to every Floyd album pretty much all the time - they're etched - 'Animals' is the one I can listen to again and again.
+- I've managed to persuade Yoko Ono to put some of her work in my Penguin book!
+- I believe art is a way to attune to what reality is, which is a weird reality.
+- Psychologism holds that logical assertions are percolations of brains. Thus logic is a set of rules for how healthy brains operate. Aside from the infinite regress of a brain determining whether a brain is healthy, we have the infinite regress of the idea 'All concepts are brain percolations' being itself a brain percolation, on its own terms.
+- Since appearance can't be peeled decisively from the reality of a thing, attunement is a living, dynamic relation with another being.
+- Reductionism and elimination make one feel clever, but what happens when the meditator drops her fixation on feeling clever?
+- You wouldn't believe how many philosophers are afraid of movement.
+- When you make or study art, you are not exploring some kind of candy on the surface of a machine. You are making or studying causality.
+- The belief that 'animals' are superior or inferior to humans because they live in an eternal now is untrue, because no being lives in a now.
+- A weird thing is a strange loop, what some of us call 'an object.' Thus it is looked down on by the constructivist spokespeople of anti-art, which is also an anti-products movement - the dominant mode of high art since the inception of the Anthropocene.
+- Kant described beauty as a feeling of ungraspability: this is why the beauty experience is beyond concept.
+- Since when did scientific evidence become a reason to shy away from ecological action just because it wasn't popular?
+- The ideal job letter starts with a brilliant light. Then we realize that this brilliant light is actually sunlight, shafts of it, pouring through trees onto a thick bed of pine needles. Soft dusty resin floats in the sun shafts, invitingly. The smell of pine and sap rises from the forest floor. A twig snaps underfoot.
+- Symbiosis can fail in various different ways: if there's too much stomach bacteria in my stomach, I might have some problems. If there's too little, I might have some problems. There's a sort of dynamic system there.
+- The trouble with ecological invocations of Nature is that they're like calling for a medieval tool, perhaps a portcullis or an arrow slit, to fix a modern problem.
+- Invoking Nature always measures the distance we have yet to travel to achieve real progress on environmental issues.
+- We like to think, in our anthropocentric way, that irony means that you transcended something, but actually, what it means is that you've realised that you're stuck in something, and you have this kind of uncanny awareness of that, and there's not much you can do about that feeling of stuckness.
+- I like to think of myself as the corniest, most awful thing you could possibly imagine.
+- If you've read 'Dark Ecology,' you'll know there's a whole thing about cats in it, more than once.
+- Before there was Bjork, there was Prince. That's a very simple encapsulation of my personal pop life.
+- It truly seems to me that there is some kind of shift happening towards ecological awareness - not just in terms of PR for the science.
+- Ecological thought rejects consumerism at its peril.
+- In many cases, contemporary materialisms map uncannily well onto Pre-Socratic ideas such that instead of Anaximander, we have the physicist David Bohm and his idea of an underlying 'implicate order' that transcends time and space.
+- Humans can no longer ignore nonhumans: they end up haunting the words we use and interrupting everyday talk.
+- 'Nowness' is a dynamic relation between the past and the future.
+- The waste products in Earth's crust are also the human in this expanded, spectral sense. One's garbage doesn't go 'away' - it just goes somewhere else.
+- The present is haunted by the X-present. I call this manifold of present and X-present 'nowness': a shifting, haunted region like evaporating mist; a region can't be tied to a specific timescale.
+- I'm not unhappy with the idea of appealing to people's self-interest if that's what makes them understand something about the non-human world.
+- In the end, a lifeform is always a hybrid, a being endowed with some X-power such as being able to breathe for a few seconds out of water. That's how evolution works. Spectrally. We are all mermaids.
+- Being seen means that your being is held by the other person without comment, without praise or blame or indifference - just with some kind of open care.
+- Does anyone recall hippies designing things for Generation X? Does anyone recall the elegance of that? How design was about making things simpler?
+- Nature was developed to resist the onslaughts of capitalism, but it's really not a very good defense - rather like resisting a steamroller with a Christmas tree ornament.
+- I grew up in a haunting postindustrial landscape where prehistoric ferns grew among tens of railway tracks surmounted by brilliant arc lights where birds nested and sang in the dead of night, because for them, it was day.
+- It's very important that we keep our imagination, which is our capacity to open the future, awake at a time at which the urge to collapse into the fetal position is high.
+- Somewhat selfishly, perhaps, I like to think that the best people sometimes take a few goes to get a job.
+- I so totally refuse to 'make an effort to understand' the people who have become vectors for a fascist spectacular politics.
+- Aesthetic experiences are powerful, to be sure, and probably inescapable, but Nature will not remain effective for very long.
+- Beauty doesn't have to be in accord with prefabricated concepts of 'pretty.'
+- Everything is a railway junction where past and future are sliding over one another, not touching.
+- An adjective, such as 'flimsy,' describes someone's access to a thing, such as 'argument.' But that's just that someone's access. It may be accurate. But it's theirs nevertheless.
+- When you watch one person on stage trying to surmount their fate only in that very action to embody it, it's called a tragedy. When you see a lot of people doing it on stage, it's called 'Fawlty Towers.'
+- Fear of nothingness is fear of a certain physicality, a physicality whose phenomena I cannot predictably demarcate from its reality in advance.
+- Unfortunately, there are some ecological phenomenological chemicals within consumerism.
+- American voting districts are, across a lot of the country, deeply messed up by having been gerrymandered by right-wing politicians.
+- If you have suffered from trauma, one of the most healing things that can happen to you is being seen. Being seen doesn't have to mean that someone actually lays their eyes on you, although that certainly helps.
+- I'm the absolute worst at getting jobs, ever. I had 100 rejections before I landed one. I kept all the letters in a folder until I realized I could just chuck them away.
+- The Left is correctly wary of talk about nonhumans in the key of Nature and its spiritual partner, humanity.
+- In my experience, academia is a World War 1 kind of a domain, and I do my best to avoid all that trench warfare.
+- An artist attunes to what things are, which means sort of listening to the future, which is just how things are - I think time is a sort of liquid that pours out of hatpins, underground trains, salt crystals. So a work of art is also listening to itself, because what it is never quite coincides with how it appears, too.
+- I used to keep a folder with all my rejection letters in it - a few years into having a job, I burned it.
+- The noises Russia makes on the world stage are deeply misogynist, homophobic and racist.
+- Job applications are an aesthetic event. They are performance art. They are not about proving you are smart - well, maybe your writing sample does that, but even then, the main point is to get an interview.
+- I like being irritating.
+- Nothingness is not nothing at all, so it is physical, but not in the sense of constant presence. Nothingness is disturbing. It is there in a mind-independent sense; it is part of what is given.
+- An environment is precisely something one is unable to point to yet is strangely there nonetheless.
+- I discover in my experiential space evidence for the wrongness of solipsism, and this evidence is called beauty.
+- You don't eat a painting of an apple; you don't find it morally good. Instead, it tells you something strange about apples in themselves.
+- Spending some money on the you who is going to get a job is essential.
+- We intellectuals are not stupid: we know the phenomenology of guilt is a bad photocopy of the phenomenology of thought, so it's much cheaper to press that button.

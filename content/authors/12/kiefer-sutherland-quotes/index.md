@@ -1,0 +1,53 @@
++++
+author = "Kiefer Sutherland"
+title = "Kiefer Sutherland Quotes"
+quotes_len = "47"
+description = "the best 47 Kiefer Sutherland Quotes"
++++
+- When we shoot 24, there are so many things I have to worry about, from the script to technical things to my performance, that I don't have a second to be bored or take anything for granted. We produce 24 hours of film a season, which is like making 12 movies.
+- If you are going to do something potentially for another eight years, you want it to be something that you can really sink your teeth in and that's going to be different and interesting for this next period of time.
+- I was 20 when my daughter was born, and making all these plans during my wife's pregnancy. I was going to be the perfect father. Once she was born, it was suddenly, 'Oh, my God! I'm a parent!'
+- I would love to do '24' until I was 60, but I don't think anybody would accept it.
+- When I started, with films like 'The Bay Boy' and 'Stand by Me', I look back on those interviews and I'm amazed; there's no mention of my father; it's not even 'son of Donald Sutherland.' I caught a bit of a break in that it never felt like a weight to me.
+- Youth is an amazing thing: I think back on when we did The Lost Boys, and I didn't think I could do anything wrong.
+- I think the most attractive thing is a sense of humour. If someone can make you laugh, you've gotten a lot out of the way.
+- I feel extraordinarily peaceful when I'm watching the sun set.
+- '24' and 20th Century Fox and Sky TV are not responsible for training the U.S. military. It is not our job to do. To me, this is almost as absurd as saying, 'The Sopranos' supports the mafia, and by virtue of that, HBO supports the mafia.'
+- You can't ask the press to service you with everything that they have and not expect some of the other stuff in return if you're going to live your life like I have.
+- I'm a huge fan of Canadian rock-and-roll. When I was growing up, Rush came out with a record called Hemispheres, and I must have listened to that record for two years straight. Even when I was asleep I had it on. So, yeah, whenever I hear a Rush tune, the first thing I think of is Toronto.
+- There are aspects of '24' where I love its politics and aspects where I hate them.
+- I loved '24', but I didn't think anyone else would. I had absolutely no idea.
+- My whole mood or sense can change by virtue of the music that I'm listening to. It really does affect me on a visceral and emotional level.
+- I've always traveled with a picture of my daughter from 1989, her kindergarten school picture, that has 'I love you, Daddy' written on it. She's always made fun of me because I never changed that picture out. It's like my resistance to her getting older. It was the first thing she'd ever written to me and it means the world to me.
+- I did a play called Throne of Straw when I was 11, at the Odyssey Theatre in Los Angeles. It became really clear to me at that point that I enjoyed acting more than any other experience I was having.
+- Some days I'm in better control and can navigate my way through stuff, and other days, not so much.
+- My mother's five-foot-two, and I'll be honest with you - she's the only person I'm scared of.
+- When Julia and I broke up and I was really scared to go into a market or anywhere because I thought, 'Oh God, everyone must hate me. And that wasn't the case. People said, 'I'm sorry this happened, man. Are you alright?'
+- I've had some amazing people in my life. Look at my father - he came from a small fishing village of five hundred people and at six foot four with giant ears and a kind of very odd expression, thought he could be a movie star. So go figure, you know?
+- There are three things we need to do for a band. We need to make a great record; we need to get the record played; and we need to find an audience for the live shows.
+- I couldn't see my father's films because they were restricted and we didn't have videos or DVDs back then.
+- When I was younger, my whole sense of self-worth was based on whether or not I was working, which was awful. And I had a baby at 20 years old, so it wasn't just about me. At around the age of 30 there was a stretch where I wasn't working - certainly not on anything I liked, anyway - and I started to do other things.
+- The biggest mistakes I made in my career were when I said, 'If I do this movie, I'll be able to do a couple more movies.' Those are the times I really got ugly.
+- If your ethics in the military, in your training, is going to be counterminded by a one-hour weekly television show, we've got a really big problem.
+- The writers keep managing to turn the show in on itself, coming up with something that's well thought-out and miraculous.
+- I am a bit obsessive about tidiness. I need to make my bed in the morning and leave it perfectly made up.
+- When I wasn't the flavor of the week or month or day, those were hard times.
+- Yes, I do believe that there is a cause and effect and a ripple effect upon everything everybody does, and they have positive consequences and negative consequences. If you start to focus on the kind of minutia of that, it's really quite extraordinary.
+- I've made films that I've given all I had to, that no one has seen. The bottom line is I want to work and I want someone to enjoy it.
+- I think that the day you've figured out the differences between women and men is the day that you're no longer attracted to women. It's the difference that is so fantastic and frustrating and angering, and really sexy.
+- When you're a young actor you like to go for characters with a bit of flair, so in many films I ended up playing the weirdos. I can assure you I'm not a psycho or a criminal or a bully.
+- There are two things that Jack Bauer never does. Show mercy, and go to the bathroom.
+- I do believe very strongly that all of us and all of the other things in the context of our planet with Mother Nature, all of these things absolutely have a profound effect.
+- My parents not only did it for a living, but they were really good at it.
+- My focus on 9/11 was on the victims - in the towers, in the planes - and all that loss.
+- I like chatting with people. If people ask me a direct question, I give them a direct answer and I feel I've always done that with the press.
+- I'm always jumping in my seat or gasping during a good horror movie.
+- There's a confidence that comes from youth and not knowing better. But there comes a point, as an actor, when you do know better, and that is when the fear starts.
+- I didn't realize that television has gone through immense changes and has become very progressive.
+- One of the big draws of the show is here's a guy who is ordinary in a lot of ways but, due to his profession, he's placed in extraordinary situations that he has to make right with action and with thought. That's what is appealing about Jack - he takes charge.
+- Some people think it's because '24' was jump-started by what happened on 9/11. That was never why we made the show. We started production six months prior to 9/11, and we'd already done ten episodes.
+- There are a lot of movies I'd like to throw away. That's not to say that I went in with that attitude. Any film I ever started, I went in with all the hope and best intentions in the world, but some films just don't work.
+- When I saw Virginia Woolf, somewhere between the first and second acts, someone I had known as my mother became somebody else.
+- I love collecting guitars, even though I can't play well. My favourite guitarists are Richie Blackmore, Jimmy Paige, and John Mayer.
+- I have a very strong political outlook, and that is something I'd like to take more responsibility for in my life. I don't believe in utilising certain aspects of the power I have with celebrity to push that forward, but I would like to make some films that address some of those political issues.
+- I had an unbelievable experience on '24'. We shot 198 episodes, and I was as excited about shooting the 198th as I was the first.

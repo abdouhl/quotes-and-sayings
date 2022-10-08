@@ -1,0 +1,26 @@
++++
+author = "Terry Jones"
+title = "Terry Jones Quotes"
+quotes_len = "20"
+description = "the best 20 Terry Jones Quotes"
++++
+- The funny thing about history is that we imagine that people didn't laugh in the old days, but of course they did, at stupid things.
+- I don't think people who have children are acting selfishly or unselfishly. Having a child who'll be loved, to parents who love each other, is the important thing.
+- I like fantasy.
+- Medieval learning was really advanced.
+- I don't think you need religion.
+- Some people are passionate about aisles, others about window seats.
+- I'm a good cook; one of my specialities is reindeer and potato pie.
+- I'd like something that peels potatoes really quickly - that would be wonderful.
+- Every age sort of has its own history. History is really the stories that we retell to ourselves to make them relevant to every age. So we put our own values and our own spin on it.
+- I'm cheerfully optimistic about life. Optimism is very important!
+- I've got a soft spot for Theatr Colwyn because my granddad used to run the Colwyn amateur dramatic society in the 1930s.
+- I'd always thought that if Python was going to go on at all, it'd be nice to get into storylines.
+- I spent my earliest years in Colwyn Bay in north Wales with my mother and grandmother, while my father was stationed with the RAF in India.
+- You know, I've never thought of myself as a comedian.
+- I like my stories once removed.
+- It doesn't worry me what anyone says, except when publicity hurts others.
+- We think of medieval England as being a place of unbelievable cruelty and darkness and superstition. We think of it as all being about fair maidens in castles, and witch-burning, and a belief that the world was flat. Yet all these things are wrong.
+- I've never been good at improvising.
+- I've been very lucky to have been able to act, write and direct and not have to choose just the one thing.
+- Fatherhood is wonderful.

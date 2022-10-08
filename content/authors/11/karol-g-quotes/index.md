@@ -1,0 +1,70 @@
++++
+author = "Karol G"
+title = "Karol G Quotes"
+quotes_len = "64"
+description = "the best 64 Karol G Quotes"
++++
+- If we want to get to the next level, let's take a risk and try something different.
+- Machistas are out of style.
+- As an artist, I really just want to do everything.
+- In her verse, she says: 'It's me and Karol G, and we let the rats talk.' I died, I revived, I died and revived again until I understood Nicki Minaj had said my name in her verse.
+- Urban music in the Spanish-language is a force to be reckoned with, there's truly something for everyone in it.
+- I'm not cute.
+- I wanna be remembered as someone who broke all the norms.
+- It surprises me that criticism on social media is worst than ever... more and more people tend to seek perfection in others.
+- I do have those high peak moments when I feel my best.
+- Everywhere I went, people would tell me that trap and reggaeton was for men, not women. I wasn't being taken seriously, and I was often being told to do something else.
+- I use creams for my undereyes, my face, a morning cream and a night cream.
+- One of my dreams is to become a female entrepreneur with other projects not just related to music.
+- A lot of people may know me for my music now. It took me almost 14 years to get where I am, and it was really hard.
+- I want to show girl power.
+- Before I met Bad Bunny, I had this image of him from his lyrics and songs, and I met a very cultured and nice man that I could have deep conversations with.
+- What I really spend money on is finding a nice place to stay near the sea.
+- I have different sounds... I don't want to be just that girl that sings reggaeton or trap music.
+- It is our job to make a difference and leave the world a better place.
+- Diddy and Ciroc are moving culture forward, while communicating the importance of social responsibility.
+- Honestly, maybe I'm not as skinny as I've been at some point in my life, but I like how I look! You look at Beyonce, at Rihanna, at Jennifer Lopez and they have curves you can grab onto.
+- Collaborating on 'Tusa' with Nicki Minaj came into my life unexpectedly and I wanted to keep it like that for my fans.
+- I worked with different producers from all genres, trying to bridge different styles of music, from urban to electronica to ballads.
+- When I saw Anuel for the first time singing live, I kissed him. That was the kiss that everyone saw.
+- It's good to have experience in other ventures and have other goals. Like acting, having businesses, starting from zero and making something grow.
+- There's a strong wave of songs by women. Even if the songs are collabs, women have the intro and the chorus, which is what people can sing. We're getting the credibility, the spaces in the award shows, and people want to hear our point of view.
+- I want to be a mom. It's something that when I do have kids, I think I will retire from making music for a while.
+- Instead of speaking of men versus women, we should speak about artists rising at a worldwide level.
+- I want to take that step, being a Latin girl, and doing my Spanish music, but I want to go global. International.
+- In my songs there are no bad words, so kids can sing them, and girls can identify with singing with them, too, because it's not like a man singing reggaeton.
+- The Latin urban genre is getting bigger and bigger and bigger.
+- There's no path to success. Everyone constructs their own path. The important thing is to follow your heart. Find your niche, is my best advice.
+- When 'Ahora Me Llama' was out, I was looking for someone to do the remix. Among those people I was looking at was Anuel, who was in jail. We tried, but it was impossible to record it because of his situation.
+- I represent and defend my style.
+- I have a personal dream to be a mom, to have a family and all that but - when I do take that break to fulfill it - I want everything else to be so strong and set that people don't forget me.
+- We see leaders in social media starting fights. I'm on the other team who likes to inspire, to leave a positive message.
+- My message is very simple: I'm for women, I'm about women, and I want to help create lanes for more of us.
+- All my songs could speak about the same person in different situations.
+- I think I'll be one of those moms that doesn't raise her kids with too much technology around because I didn't have much of that growing up. I was creative and played with what I had.
+- I want to be that Latin girl doing big things around the world.
+- When I get by the ocean, that's the only moment that I get that silence and that connection, not with the ocean, but with myself.
+- I did everything to break in. I even recorded covers of Alicia Keys and Lauryn Hill, and put them on Youtube in the hopes that Drake would discover me like he did Justin Bieber.
+- I know Becky G, Natti Natasha, and other Latina singers, we have been working many, many years and now we have the opportunity to show what we have, to show what we have been doing for many years. Great things are happening for women in the Latin music industry.
+- I have this weird thing about my face that it needs to look super young.
+- Empowerment is a word that comes with liberty.
+- Obviously, I respect the expression of different artists. I do not judge or criticize the style of anyone.
+- I used to hate to be a girl.
+- There are not many girls doing reggaeton or urban music in the Latin music industry.
+- In Las Vegas, a day before the Latin Grammys, I was walking backward and hit a light and fell down. The worst part is that I was singing with Becky G and Mau y Ricky - they all rushed over to help me. It was very dramatic.
+- I went through a difficult time, gaining 24 pounds in one month. A few haters attacked me online for how I looked, even though the majority of my fans were supportive. Those were the ones that kept me going.
+- Ten, 15 years before, the Latin industry was singing Anglo music, trying to get an opportunity with them. Everything changed, and now around the world everyone is listening to our Latin music.
+- I'm thrilled to represent Ciroc Summer Colada.
+- Artists come and go, and that's my fear... that's what keeps me focused.
+- What I love about 'Culpables' is that it's a completely clean song. We do not speak ill of women or men. The song is clean. It does not have bad words.
+- In the beginning it was very frustrating, being told girls don't sing this kind of music, and, 'Maybe you can try with pop or songs that are more romantic.'
+- If you look at the 'Casi Nada' video, I'm, like, a good girl.
+- I would love to perform with Rihanna. That's one of my biggest dreams.
+- I love making music but there has to be variety in life.
+- I think that my fans are the most important thing in my career.
+- I'll admit that I am not always 100 percent confident because I'm a woman. I'm a woman and I'm human.
+- I just want other women to be able to see themselves in the music.
+- When I go on trips, I like to have everything in one place. Someone to be in charge of the food, someone to keep things organized, and someone to attend to us. I need the house to be awesome, by the water, with all the amenities I need.
+- Every day, I feel I can do more things - not as a character but as myself.
+- Family gatherings were very important to me growing up.
+- I was thinking of the parallel between the ocean, the life and the music. The ocean is everything. It's calm, but brave - it's life.

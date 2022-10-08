@@ -1,0 +1,106 @@
++++
+author = "Marc Gasol"
+title = "Marc Gasol Quotes"
+quotes_len = "100"
+description = "the best 100 Marc Gasol Quotes"
++++
+- I'm a big Quentin Tarantino fan.
+- I can only control the way I play.
+- When people know that you're going to give them the ball where they want it, then they're going to try to do the same thing for you. And then, they're going to play hard defensively.
+- That's what the offseason is for, to work on your game.
+- In any relationship, there's multiple moving pieces. Not just one.
+- Big guys are Great Danes. We don't last very long.
+- Gardening does so much for your brain. You're learning how a process works, and how important it is to do everything right so that you can eventually enjoy a tomato three months later. I've always been patient, but gardening really helps you with that.
+- It's important as an athlete to know your body and how things affect it.
+- You always have something. You always have a challenge.
+- The whole process of trying to win a ring, it's beautiful.
+- The architecture in Barcelona is very unique, and I think it's something to truly spend some time getting to know all the cool places.
+- You can't change what Memphis means to me, what Memphis has meant to me. It's a special place for me. There's no doubt.
+- With years, you change. You're not as hardheaded or stubborn. You are more malleable.
+- The way I grew up was making the right play every time.
+- I don't know how many Michelin stars Barcelona has, but you don't have to spend big money to eat great.
+- Every loss, every defeat is tough in its own way.
+- I'm more on the country side than big cities.
+- The game comes natural for me.
+- I'm a team guy, obviously. When a team needs me to be aggressive, I have to be aggressive.
+- Just because it says 'zero calories' or 'sugar free' or 'fat free' doesn't mean it actually is good for you. It's a way to get you. Just make sure that you know. We think that we can put stuff in our body. Just know how it affects you.
+- Everybody that's come to Memphis has been welcome with open arms.
+- If you grow the food you eat, it tastes better. Seasonal vegetables are grown at the right time, and you can make sure everything matures on the plant or on the tree. It's as fresh as you can get.
+- Sport's about patience and keep working no matter the outcome.
+- People think that a good passer is a flashy passer. But that's not a good pass. It's just a flashy pass. A good passer is someone who's gonna hit the guy right on the hands, and the timing is correct. You pass late, and it's not a good pass. You pass too early, it's not a good pass, either. If it's off-target, it's not a good pass.
+- Different coaches have different schemes, so for me, it's about learning and being able to adjust and adapt to these coaches. It fills your toolbox.
+- Pau has a game that's impossible to imitate. He's so finesse and so skilled, it's impossible to imitate. Honestly, I'm a big fan of the game. I've never seen a player his size who has so many moves, so many counters and it's impossible. His length, his size, his skills - I mean, you can't teach that.
+- You just need to be happy, and once you're happy with yourself then you can do more things.
+- It's never been about me... It's a team sport. It's basketball. It's not how good you are, it's how good your team is.
+- The older you get the more you realize that life is more than just basketball. Your vision of the world gets much wider, and you're not the centre of it no more. You understand that you're a moving part and that you have other responsibilities.
+- As a tall guy, you always think the over-the-top pass is the easiest way out. But sometimes you can fake that, and throw it under their arms.
+- I don't read the papers. I don't want to read what the press says.
+- If I'm not on the floor, I'm not valued.
+- That's how I was taught my whole life. Like when you get a bad wheel, you got a sprained ankle, whatever you have, go find a way. Give your maximum or your highest percentage possible, for the best of the team. So that's the way I was always raised as far as basketball goes. And everything in life, but for sure basketball.
+- You can be selfish by being too unselfish at times.
+- Before being an athlete, I'm a person, a human being, like the ones Open Arms are saving every day.
+- I listen to rap, reggae, Nirvana and Guns N' Roses.
+- You read the play that's in front of you. You don't try to look back; you don't look forward. You deal with the game that you have in front of you.
+- I'm team-first.
+- I fell asleep during the draft, actually. I woke up, and I was picked No. 48. I didn't even know what number I was picked.
+- When you grow tomatoes, you're going to get a lot of tomatoes. So you want to learn how to preserve.
+- For as much respect and love as we have for this game, there are other things things in our lives that are important to us, too.
+- I'm somebody that really locks in to play, and it's not easy to say hello to all the ushers and all the people who work around the team and then try to execute the game plan and beat the other team.
+- What matters to me is that we win games and we do our jobs.
+- I make gazpacho with a little bit of bread, so it's thicker, and I like it to be more tomato- and green pepper-based. Everyone has their own preferences, of course. But I think my gazpacho is the best.
+- If you only take money in the bank and never put money in the bank, you'll go broke.
+- Nobody likes to see a coaching change during the season.
+- There is no difference between the way we see basketball; the way we execute is a little bit different. The way he uses his right shoulder, drop-step to his left hand, is a thing of beauty. There is no doubt in my mind that Pau will be a Hall of Famer because of what he brought to the game, and there's no such players like him anymore.
+- When I see somebody, I try to beat him on both ends of the floor. It's the game within the game that you've always got to win. That's always been my mindset. That's how I was taught how to play the game. That's how I learned. And that's what I enjoy.
+- When you accomplish something, or you don't accomplish something, automatically your brain goes to the next challenge. That's your next focus.
+- As an athlete, if you train your body but don't fuel it the right way, that doesn't make much sense. Adopting a plant-based diet with the right amount of proteins that came from the right places was the way to go. I also just love gardening.
+- That makes you a better player, when you go through the process of seeing what other teams are doing to you.
+- I could always shoot and pass.
+- It's not a lie that I'm a stronger guy than Pau. There's nothing wrong with that.
+- You have pretty much the same fan base in Memphis, year over year the same group. We watched teenagers in the stands become parents. You'd see little kids become young men and women. Those relationships mean much more than just basketball.
+- In the frenzy, roller coaster of the season, you can play up and play down. But if you're strong enough, you can change those habits and tendencies and make them into championship-type habits and tendencies. That doesn't guarantee you that you're going to win, but it gives you the best chance. That's all I can ask for. That's all I want.
+- I grow strawberries, watermelon, onions, you name it.
+- I really want to live longer. It's a goal of mine.
+- It's never just about one player. Together, you have to figure out other ways to score and get opportunities.
+- My grandma used to have a backyard and we put a hoop, a shaky hoop, up there. We used to just shoot at it. We shot at it so many times, we broke it. We had to get a better one, because that one wasn't good at all.
+- People say, 'Well, you're not Pau's little brother anymore.' I'm always going to be Pau's younger brother and Adria's older brother.
+- I'm somebody that sets goals, enjoys the preparation and the planning to achieve those goals, and then really enjoys going through that plan really disciplined and achieving those goals... I enjoy the whole process. If you fail, you can backtrack and see, 'OK, that didn't go well, let's try something else and let's go that other route.'
+- I was just having fun because everybody was so much shorter than me. Honestly, my stats in high school were ridiculous. They made no sense.
+- Being young and dumb, honestly, you pick up some bad habits.
+- I don't think the Lakers really knew me when they first drafted me. They just saw my name and my size and my stats. They just picked somebody because they had to.
+- Once you work for your team-mates and help each other - thinking about them before you think about yourself - it always works out.
+- Athletes are moved - human beings are moved - by challenges.
+- Homemade gazpacho tastes different than any gazpacho you can buy because you know exactly how much time it took for each plant to mature. That's why I would encourage buying at a farmers' market or at Whole Foods, because it comes straight from the source to your table.
+- When you're young, you make mistakes. But eventually you learn from them.
+- We gotta educate the kids. You've got to do your job as a citizen, but the same time, you have to also give the tools to the society to learn and create their habits so it's a seamless transition to become a better society.
+- I just try to compete every night.
+- I was never insecure. A lot of people ask me that - especially, did you feel pressure being Pau's brother? No, because I saw success through him. And I felt it. Because we're so close of a family, when he got recognition, I felt happy for him. I felt genuinely happy for him.
+- There have been few players that haven't been traded over the years in the NBA.
+- My relationship with the Grizzlies might change, but my relationship with Memphis won't. What I feel inside and how I feel about Memphis and its people has nothing to do with a franchise or a temporary thing. It's not going to change.
+- Obviously, for my line of work, I cannot eat barbecue that often. It takes a little bit to digest and it's not the healthiest thing to eat.
+- I think once I had my kids that kind of made it like, 'Look, you have to be the best you can be so they have a good example at home.' You want to give them the best food, what's best for them.
+- When you see the floor and you understand the game and you're trying to break it down with what you have in front of you, you can do it offensively and defensively. And you try to take advantage of it both ways. You see where the offense's head is and you can kind of read what you want to do.
+- We're humans, and we're moved by emotions.
+- Everybody has goals, dreams, whatever you want to call it. But are you willing to pay? You have to be honest with yourself: What do I need to do every day to reach those goals and achieve the level that I want, not only for yourself but also for the team?
+- I honestly don't see anything that extraordinary about my game.
+- Adjusting and evolving as a player and not being stuck in a certain way, I'm happy for those things.
+- It's hard for me to sit still in one place. I like to move around.
+- Nothing guarantees a championship. Nothing. Not having the best players, not practicing the most. Your best chance is if you do the right thing every day.
+- Basketball is about relationships. The bond that you create by playing together, going through battles together. The trust that you build goes a long way. It goes beyond the game of basketball.
+- I was a different kind of kid. Pau always knew what he wanted. He was really good at school, really responsible. I was more of a loose cannon, honestly. I was running around and outside, and getting into a little trouble more than anything. But always in a good way. It was never my fault. It was the other guy. I was just there.
+- I am a father. I have children.
+- I still run into a lot of people from Memphis, all around the NBA. I feel like they're with me every game. I feel their love, their support, their pushing. I know they still cheer for me. They let me know they cheer for me. And there's a part of them with me in every game I play.
+- A homegrown tomato, you're never going to taste anything like it. There is nothing close to it, the sweetness. And strawberries: The ones you get in the store are so hard; but you get a homegrown strawberry, it just melts, I'm telling you.
+- I didn't care about the draft. I didn't want to do the workouts - they put you in two-on-two full-court drills with guards. That's not going to help me.
+- Where I'm from, we don't take shots over two guys. When someone is doubled, it's the next man's job to take the shot and make it.
+- I had the worst habits that you could imagine. Pizza, burgers, even a little bit of sweets.
+- I think you could say that, a lot of players are insecure and sometimes we have this shield around us that we don't want to accept that we have problems sometimes or we don't know how to do things because we're these superheroes.
+- It's a thing I have to continually do, taking care of my body.
+- That's the only way I know how to play - dedicating yourself to the game, to the city, to the fans.
+- I like to communicate, to share the ball.
+- You really watch basketball and study basketball, the more you realize, the pass really is beautiful. I'm not just talking about the pass where you look away or anything. Just the right pass at the right time to get somebody open is just beautiful. There is nothing better than that. It's contagious - it makes everybody happy.
+- I like the Patagonia in Argentina.
+- I've made pretty much every mistake you can make as a young man, eating and drinking the wrong things at the wrong times.
+- Going through processes as a team and getting better each and every night, that's what you do it for - to eventually win games as a group.
+- We gotta leave a better planet for our kids. And I would say we gotta leave better kids for our planet as well.
+- What the game gives you, you've got to take it.

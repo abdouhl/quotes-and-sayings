@@ -1,0 +1,85 @@
++++
+author = "Todd Young"
+title = "Todd Young Quotes"
+quotes_len = "79"
+description = "the best 79 Todd Young Quotes"
++++
+- As someone who took an oath to defend this country, I refuse to sit idle until the unimaginable occurs: Iran cheats or simply runs out the clock, and the largest state sponsor of terrorism threatens the United States and its allies with a nuclear weapon.
+- The skilled workers at AM General help ensure that our troops and our allies have the best and most modernized vehicles, and AM General serves as a major economic engine for our state.
+- Establishment, career politicians are about saying one thing and doing another.
+- We need to simplify the tax code to reward Americans for working hard, investing, saving - and allow families to keep more of their own money.
+- Our message of ensuring every Hoosier has access to a quality education that turns into a good paying job, that ultimately leads to a meaningful career with access to affordable health care, is resonating.
+- My wife Jenny and I have four young children of our own.
+- I'm a pro-life, pro-gun Marine that wants to repeal and replace Obamacare.
+- People are so frustrated by electing people to represent them in Washington, D.C., and having them immediately forget about the Hoosiers they represent.
+- There is a responsibility as president to choose your words carefully, especially on foreign policy, and to speak as clearly as possible.
+- Part of my responsibility as an officer was to oversee a team of analysts charged with synthesizing all of the data points on the map to see how one related to another. By bringing those data points together, a broader picture could be drawn and a strategy developed to counter the existing threat.
+- U.S. national security interests are best served when the United Nations effectively fulfills this core purpose.
+- Clearly, there are persistent differences in our country.
+- Our nation must come together as only Americans can.
+- I think I've demonstrated... that I'm a good fundraiser.
+- I'm a libertarian-conservative. I believe the state should focus on defending lives, rights, and property instead of depriving its citizens of their God-given liberties.
+- The best way I can think of to give back is to ensure that every Hoosier family enjoys a better future.
+- There's an appetite for advancing conservative solutions and not just talking about them.
+- Most Hoosiers aren't really political people.
+- Under Obamacare, rates are skyrocketing, and insurers are leaving the marketplace.
+- John McCain and Lindsay Graham have a habit of communicating with great passion and regularity. I have great respect for both individuals, but their style is not everyone's style.
+- When countries with the worst possible human rights records sit on the UNHRC, seek to deflect attention from their own egregious human rights abuses and attempt to pass judgment on Israel - a country with a vibrant liberal democracy - the credibility of the UNHRC is further undermined, and the United States must not be silent.
+- The Humvee is an American military icon and will continue to be for decades. It is an essential part of U.S. military operations.
+- One of the things I learned at the Naval Academy and the Marine Corps is we have to make tough decisions.
+- I think Evan Bayh directly should answer to the many Hoosiers I've spoken with who have questions about his ethical practices, or lack thereof, when he served in the United States Senate.
+- Through a respectful exchange of ideas and emphasis on shared goals, I am confident we can put many of our disagreements behind us to ensure a better future for all Americans.
+- Social-impact partnerships address our moral responsibilities to ensure that social programs actually improve recipients' lives, and to do so in a fiscally prudent manner.
+- We need a conservative welfare reform initiative that is focused on putting people back to work and ensures taxpayer money is only spent on programs that have been proven to work.
+- In the House, you can predictably spend roughly four to seven days back home with family.
+- It sounds outright bland, but people here in Indiana want conscientious public servants who have deep convictions but are prepared to work across the aisle when possible.
+- If we're going to make sure that we get our legislation right... we need to actually be spending time with Hoosiers.
+- Typically, discussions of the safety net boil down to one side wanting to spend more in the name of compassion, and the other side wanting to spend less in the name of fiscal restraint. In both cases, money serves as a proxy for moral responsibility.
+- Indiana's ninth congressional district isn't historically known as a fount of congressional contributions. That said, if you look at my fundraising history, we've succeeded.
+- As a parent, I know I speak for millions when I say that every child deserves to grow up in a stable, loving home.
+- Safety-net programs must make efficient use of taxpayer resources and harness the capabilities of recipients by helping them move back into the workforce.
+- Does it seem like Washington's rigged for the well connected? That's because it is.
+- Modern media has a real tendency to focus on the divisions rather than the commonalities.
+- We should not just talk about conservative principles, but we should actually advance them.
+- In my experience, all Americans - Republicans, Democrats, and everyone in between - want roughly the same thing: an assurance that if they work hard, they can create a better life for themselves and their families. They want to feel safe in their communities and secure in their future.
+- It is both wrong and short-sighted to believe that we can better protect our national security interests by ignoring or sidelining human rights.
+- The American people deserve an honest assessment of the state of our foreign affairs.
+- I go to Washington, D.C., to work and come home at every opportunity.
+- Getting the budget balanced, regulatory reform, tax reform - I think these lead to economic growth.
+- Everything in my life I owe to God, my family, the Naval Academy, and the Marine Corps.
+- I'd like to solve more problems and help Hoosiers with more opportunities by serving on more committees.
+- Washington's foot-dragging, obstructionism, and overreach must end.
+- We may not realize it, but a crucial step in building a healthy economy is helping people move from welfare to work.
+- Elections should highlight principled disagreements, but they must not obscure our capacity to cooperate for the common good.
+- In each and every election, it's your rights, it's your freedoms, it's your interests that are on the ballot.
+- Promoting and protecting human rights internationally is not just a matter of principle or morality - doing so also serves our national security interests.
+- In the Marine Corps, we're taught to put America above ourselves.
+- I like to overcome great challenges.
+- Hoosiers are practical people, and Hoosier Republicans in particular have a history of unifying.
+- Not everything can be solved by government.
+- The issue most on Hoosiers' minds is job creation, job retention, and household income.
+- I spend roughly two out of every three nights at my house in Indiana.
+- I actually understand what a Marine on the ground goes through. I've seen generals and admirals struggle with different situations.
+- Our safety net must reflect our country's belief that - without exception - Americans are not liabilities to be written off but assets to be realized.
+- We live in a representative democracy, characterized by free and fair elections and peaceful transfers of power. After most elections, roughly half of Americans are thrilled with the results; the other half are profoundly disappointed.
+- I'm proud of my dad's name. But I'm not running on my dad's name. I'm running on my dad's values.
+- If you look in a dictionary, the word 'Indianan' may appear. But the first task, the litmus test as to whether or not someone really is from Indiana or has spent any kind of considerable time in Indiana, is whether or not they use the word 'Indianan,' because no one in Indiana ever uses that term. We refer to ourselves as Hoosiers.
+- Intelligence work in the Marine Corps proved to me the strategic value in establishing a Central Command to act as a clearinghouse for disparate bits and floating bytes of information.
+- The Senate, as opposed to the House, has been less successful in advancing some of the legislation that I think are important to Hoosiers.
+- It's extremely hard for the economy to grow when the workforce is shrinking.
+- As bad as the Obama administration is at trying to legislate without legislators, all too often, Congress is responsible for handing them the 'pen and phone.'
+- It typically takes bipartisan work to build enough consensus to get things through our legislative process.
+- As the son of a small business owner, I know how regulatory overreach can stifle our economy and cost Americans jobs.
+- A rising tide lifts most boats. But some boats require patching.
+- We need to make sure that joblessness never pays more than employment.
+- I'm a competitive person.
+- It's not often that a United States Senate seat comes open.
+- The vast majority of my job is, and should be done, in the state of Indiana.
+- Freedom requires us to view people as wanting the opportunity to earn their success.
+- Most Hoosiers intend to support the Republican nominees. Most Hoosiers believe leaders like myself should speak out when we disagree.
+- We can score political points. We can try to advance some important initiatives. But at some point, it takes sober-minded, responsible conservative leaders to identify when you've pushed as far as you can and to have the courage to go back and face the electorate and explain to them why you voted the way you did.
+- This is an appropriate role for the federal government - to invest in basic research.
+- Most Hoosiers underestimate their ability to effect change.
+- I will never, ever balance a budget on the backs of our seniors.
+- I think it's essential that we do more than talk about austerity measures and cutting.
+- In the absence of specific solutions or evidence that we have people in Washington, D.C., who can make a significant difference... people will cling to those who at least speak to their frustrations.

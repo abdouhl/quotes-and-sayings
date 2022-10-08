@@ -1,0 +1,33 @@
++++
+author = "Joanna Kulig"
+title = "Joanna Kulig Quotes"
+quotes_len = "27"
+description = "the best 27 Joanna Kulig Quotes"
++++
+- On television, I love 'The Crown,' and 'The Affair' is so psychological.
+- When I was small - I grew up in a village outside of Krakow - my brothers and sisters and I would play folk instruments and make music in our home.
+- I grew up in a small village outside of Krakow, and when I was small we had only a small television, and we had only one and two programs. I remember it was black and white. And I loved to watch Charlie Chaplin. I was so small, but I remember his movement.
+- When you play a person who exists in real life, it is different than when you play fiction.
+- I like the French kind of style because it's simple and minimal. I have blonde hair and big lips, and when I do too much I think sometimes I don't look very well, you know?
+- An actor must take care of her health.
+- Sometimes I like to be more simple - simple colours, to be completely empty.
+- I think that the two worlds of fashion and acting world have a lot of common things, because we all build a character.
+- My university organised a casting call for a film and I won the role. I played a character who was dying of cancer. I remember in the middle of shooting going, 'Oh my God! Why did I decide to do this?' But people noticed me in it and I started getting invited to castings.
+- Yes, I started piano and classical singing, I wanted to study jazz, but I tried to go to the Polish University of Jazz, but they didn't want me. In Krakow, I wanted to conduct, they didn't want me. And I start to think, 'I have to do something.' In Krakow there was drama and music. I started to study.
+- I like being in groups rather than alone - I'm very open to people.
+- Music was my first love; acting was something that wasn't important to me early on.
+- I was 6 when communism was finished.
+- You can't really plan with acting!
+- When we are older we are very smart, but when we are younger we don't think we are happy, we have all of life ahead of us.
+- I am a very neurotic person all the time.
+- Being from the countryside gave me a spine, and it's why I'm so accepting - I don't judge people for how they look or how they talk... I just accept everyone.
+- When I was between 18 and 25 it was like I had problem finding the middle of my personality.
+- Anyone can fall in love.
+- I'm not a professional dancer.
+- My experience with the National Theatre in Kracow often involved many changes of storyline and character. This was particularly useful when working with a director such as Pawel Pawlikowski who is quite intuitive and demands flexibility in an actor.
+- My grandmother would hide bread for when maybe another war would come. You had to be ready.
+- I played a bee! It was a Polish fairy tale we performed at school when I was seven or eight. I had wings fixed to me.
+- Poland is a country of strong women.
+- I'm open. I like new experiences in life and new cultures.
+- I never thought of being an actress, I was always singing or playing on the piano.
+- I love 'The Godfather.'

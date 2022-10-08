@@ -1,0 +1,89 @@
++++
+author = "J. Michael Straczynski"
+title = "J. Michael Straczynski Quotes"
+quotes_len = "83"
+description = "the best 83 J. Michael Straczynski Quotes"
++++
+- All love is unrequited. All of it.
+- As kids, we spontaneously sing and dance and tell stories, and along the way, someone comes and says, 'No. You shouldn't be doing that.' And we slowly begin to unlearn our passions. I think you have to hold on to those things.
+- You should do what you enjoy doing, what brings you passion. As kids, we spontaneously sing and dance and tell stories, and along the way, someone comes and says, 'No. You shouldn't be doing that.' And we slowly begin to unlearn our passions. I think you have to hold on to those things.
+- If a person with a bullet in Dallas can change the world, imagine a person with an idea could do.
+- My philosophy: find what it is you want to say, walk in the room, say it, and get the hell out.
+- Whenever you can bring your chops in as a reporter to unearth a cool story, that's always a good thing.
+- For me, there's nothing sexier than a woman who can argue me into the ground and outsmart me... a woman who knows her own mind and isn't afraid to speak it.
+- I don't start writing a script until I can see it all in my head, then it's a matter of getting it down in white heat.
+- The point of mythology or myth is to point to the horizon and to point back to ourselves: This is who we are; this is where we came from; and this is where we're going. And a lot of Western society over the last hundred years - the last 50 years really - has lost that. We have become rather aimless and wandering.
+- If I feel that I'm not able to do my best work - whether that's my own fault or as a result of an editorial situation - then I need to stop doing it. I would rather not do something than do it badly or ineffectively. It's the only way I can live with myself and do right by the fans in the long haul.
+- I grew up on comics and cartoons. So, as an adult, I like comics and cartoons.
+- I think that we are already making steps toward mapping out the brain so we can identify the chemical patterns that create and store memory.
+- Everyone in the entertainment business gets crappy contracts when we start out, and into the middle of our careers. It's the nature of the business.
+- Understanding is a three-edged sword. Your side, my side, and the truth.
+- I sometimes find reality far more fantastical and unlikely than what I could just make up.
+- I always knew that I was going to be a writer. There was no question in my mind about that.
+- I don't need to write comics for a living. I have movies and TV for that. I write comics for one reason and one reason only: I love comics. I love the form, the structure, the storytelling process, I love everything about it.
+- No dictator, no invader, can hold an imprisoned population by force of arms forever.
+- A changeling is one child substituted for another. I couldn't find anything more apt. We had to kind of fight that supernatural element in the publicity, and I offered to try and find another title, but Clint liked it, and it stayed.
+- I've always been a science fiction fan since I had understood the conception of what a story was.
+- The whole point of having great characters is the opportunity to explore them more deeply with time, re-interpreting them for each new age.
+- Life isn't about the final moments, it's about the journey, it's about process. What makes 'Rocky' work as a movie is seeing him working his way up from the streets to the arena and the fight of his life. You could just show that fight, and it would be great, but seeing that journey illuminates that fight and adds profound meaning to it.
+- We know that if memory is destroyed in one part of the brain, it can be sometimes re-created on a different part of the brain. And once we can unravel that amino chain of chemicals that is responsible for memory, I see no reason why we can't unlock it and, essentially, wipe out what's there.
+- I wake up every morning knowing how ridiculously lucky I am to be able to do what I love for a living, and that sense of wonder never, ever wears off.
+- There's a rule of writing: if everything is funny, nothing is funny; if everything is sad, nothing is sad. You want that contrast.
+- Here's the miracle: I grew up thinking, 'Wouldn't it be great to write 'Superman' someday? Wouldn't it be great to create my own show, or work on 'Lensman,' or 'Forbidden Planet?' Those were very literally the goals I set for myself, the dreams that I thought I didn't have a chance in hell of ever actually achieving. But it's happened.
+- The problem with writing a monthly book is that you're going through your work like a man running for a bus, red-faced and out of breath. There isn't time for reflection or critical self-examination.
+- I am a control freak. I will admit that freely.
+- I was very clear that I wanted to keep 'Thor' out of the rest of the Marvel universe for no less than the first six issues. And the success of the book, I think, speaks well to that decision.
+- Take care, don't fight, and remember: if you do not choose to lead, you will forever be led by others. Find what scares you, and do it. And you can make a difference, if you choose to do so.
+- Follow your passion. The rest will attend to itself. If I can do it, anybody can do it. It's possible. And it's your turn. So go for it. It's never too late to become what you always wanted to be in the first place.
+- When I saw Wonder Woman being constantly put in positions where she'd get tied up with her own rope, or held hostage, even as a kid, my reaction was 'C'mon, she's too smart for that.'
+- The American Way is an amalgam of our compassion, our strengths, our failings and our attempts to build a better world, a more perfect union.
+- Every time I got 'Amazing Spider-Man' or 'Fantastic Four' or another book firmly on the rails, we got pulled into some big event book or crossover and it cost momentum and messed badly with the pacing and structure of the book.
+- Growing up as a kid, we moved all over the country on a fairly frequent basis, from New Jersey to Texas, California, Illinois... we moved 21 times in my first 17 years.
+- I'm a big believer in the idea that while we are the sum of our tears, we are also the product of our choices in how we deal with those tears.
+- When you're writing a story in bits and pieces, month in and month out, there really isn't time or space for reflection, no room to learn what those scripts had to teach you.
+- I've always been kind of a mutt creatively. I started off in journalism, and I've actually done more police and procedural shows than I've ever done science fiction shows. I was on 'Murder She Wrote,' I was on 'Walker, Texas Ranger,' I was on 'Jake and the Fat Man.'
+- I've written for every medium except poetry, at which I suck.
+- The only thing that I discovered very early on is that, even though we might change schools and cities and towns and states, the books in the library were the same. They had the same covers. They had the same characters. I could go and visit those people in the library as if I knew them.
+- There's a lot of comics writers out there whose work I appreciate and who are nice guys. I really want to work with guys I really respect and enjoy.
+- We are in a tech-heavy society, plunging headlong into an unknown future. Science fiction is what allows you to stand back and analyze the impact of that and put it in context of how it affects people.
+- When the 'Seinfeld' show said it was going to be a show about nothing, everybody said it couldn't - wouldn't work. It did. 'Thor' is about something, about that character finding his destiny, but it's not doing what was expected... and yet it's doing very well.
+- A movie is a movie and a book is a book, and they have different rules.
+- It's really important to me to keep growing as a writer, to look for new challenges and be harshly critical of my own work in order to learn and tell better stories.
+- I can easily come up with ten really iconic stories/trade paperbacks for Superman, Batman, others... name me ten equally big, iconic Wonder Woman stories. Much harder. That ain't the character's fault, that isn't sexism, that's just not servicing the character.
+- I like writing. It's partly control freak, and partly I really like what I do for a living. I have the luckiest job in the world. I can get up every day and do what I love for a living.
+- When a book of mine comes out, I instantly go hunting the net, not for praise, but for criticism, because that's how you learn, from people who don't have to be polite to you.
+- On a certain level, I don't think there is an answer to what the American way is, because it is constantly being re-defined. It's also been exploited and capitalized upon and politicized by one side or the other to the point that a certain degree of cynicism has attached itself to that term.
+- On a purely personal level, it's very strange, because as a kid, Superman informed my personality. Now I've been given the job of forming Superman's personality and, in some ways, drawing on my own background.
+- I'm delirious with joy. It proves that if you confront the universe with good intentions in your heart, it will reflect that and reward your intent. Usually. It just doesn't always do it in the way you expect.
+- To have someone like Clint Eastwood come along and shoot your first draft as written is just any screenwriter's dream. And Clint is very straightforward. If it's good enough to get his attention, it's good enough to produce.
+- Never follow somebody else's path; it doesn't work the same way twice for anyone... the path follows you and rolls up behind you as you walk, forcing the next person to find their own way.
+- For me, growing up in a ridiculously poor family living in dead-end neighborhoods, Superman was a deeply personal icon, one that said you can do anything if you put your mind to it. What he stood for formed the core of who I wanted to be as I grew up, and informed how I view the world and my responsibilities to other people.
+- Coming from TV and film, rule number one is that you always service the main character first and foremost. If that's not working, you've got nothing.
+- I've made a decision and now I must face the consequences.
+- The whole point of Superman, as originally created, was to be the ally of those who had no other allies. It put that magnitude of power, the most powerful guy in the world, in the service of those who had no hope, no chance.
+- To me, science fiction is about the sense of mystery, the sense of awe. Not 'shock and awe', just 'awe.'
+- I am a huge zombie fan. I have probably seen the George Romero movies 100 times each, without exaggeration.
+- When it comes down to it, the reason that science fiction endures is that it is, at its core, an optimistic genre. What it says at the end of the day is that there is a tomorrow, we do go on, we don't extinguish ourselves and leave the planet to the cockroaches.
+- The quality of our thoughts is bordered on all sides by our facility with language.
+- Again, one of the problems I have with television, as I mentioned before, is it's trivial in many ways, and I think that a lot of folks out there are looking for new metaphors and new ways of thinking about things.
+- My house looks like it was decorated by a 14-year old with a platinum American Express card.
+- In every other science fiction series, humans are at the top of the food chain. In the 'Babylon 5' universe, they're in the bottom third.
+- There are those who seem to feel they have no choice about being jerks in the present because they had a crappy childhood. Well, that's the definition of childhood; nobody gets out alive. You either get stronger from what you experience, or you turn it into a crutch, an excuse, a dodge.
+- A story is a story is a story. The only difference is in the techniques you bring to bear. There are always limitations on what you can and can't do. But I enjoy that. Just like when you write a sonnet or haiku, there are rules you have to abide by. And to me, playing within the rules is the fun part. It keeps the brain fresh.
+- When writers don't know what to do with a character, they build up the supporting cast and universe to kind of hide that fact. After a while, you can no longer see the character for the underbrush. When that happens, you need to bring out the weed-whacker to clear some of that away so you can focus on the main character.
+- For a lot of people, Superman is and has always been America's hero. He stands for what we believe is the best within us: limitless strength tempered by compassion, that can bear adversity and emerge stronger on the other side. He stands for what we all feel we would like to be able to stand for, when standing is hardest.
+- It's been amazing to watch, because for 'Thor', which was always a mid-selling book, to be in the top ten for every single issue since the reboot is just a great compliment.
+- Anyone who sets foot into the 'Watchmen' universe and isn't just a little nervous should be given a few days of electroshock therapy. I've always considered 'Watchmen' to be one of the best graphic novels ever written, and when it came out back in 1986 I was as blown away as everyone else. Just masterful.
+- On the Internet, inside information is currency, and there will always be counterfeiters among us.
+- I keep waiting for a paradigm shift to happen that will let network and studio execs see that sci-fi is the same as any other genre in terms of how you approach it - logically, character-based, with challenging ideas and forward thinking - but I worry that it might never happen in my lifetime.
+- There was a point when comics were considered to be mainly of interest to kids, and it was decided that kids could relate more to someone their own age than an adult. So suddenly all these previously grownup comics were lousy with sidekicks: Aquagirl, Aqualad, Robin, Kid Flash, Speedy, Stripesy... the list goes on.
+- I was born in Patterson, New Jersey, and raised pretty much all around the country. My family tended to move from place to place following economic prospects and jobs and looking for new opportunities, so we changed schools, colleges, grade schools, high schools every 6 months to a year - depending on the breaks.
+- People spend too much time finding other people to blame, too much energy finding excuses for not being what they are capable of being, and not enough energy putting themselves on the line, growing out of the past, and getting on with their lives.
+- Writing is the process of asking the next logical question.
+- All you can do is focus on telling the best story you can with compelling characters. If you do it right, it will endure. If you do it wrong, it won't.
+- Whenever you write for someone else, you're always aware - sometimes overtly, other times at an almost cellular, subliminal level - of the rules about what you can and can't do.
+- I also like to look at the dynamic that takes place between religion and science because, in a way, both are asking the same questions: Who are we? Where do we come from? Why are we here? Where are we going? The methodologies are diametrically opposed, but their motivation is the same; the wellspring is the same in both cases.
+- Writers write for one reason: to create an emotion in the reader, to reach across and make them feel something. You want a reaction. Yeah, it's nicer when the reaction is to throw flowers than it is to throw brickbats, but you have to accept both equally.
+- Superhero stories are kind of in my DNA from childhood on, so I think I'm genetically drawn to playing in the genre when the opportunity presents itself.
+- Stage-persona notwithstanding, I'm extremely shy and quiet. Almost painfully shy. People misinterpret that as being above it all or not interested.
+- A lot of the futuristic space stuff seemed to me to be a very cool form of science-fiction, so that was my first real baptism in the genre.

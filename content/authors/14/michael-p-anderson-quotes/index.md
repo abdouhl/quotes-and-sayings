@@ -1,0 +1,17 @@
++++
+author = "Michael P. Anderson"
+title = "Michael P. Anderson Quotes"
+quotes_len = "11"
+description = "the best 11 Michael P. Anderson Quotes"
++++
+- If you want something that's going to provide you with a lot of challenges and a variety of different things to do, then you really can't beat a place like the Air Force. I don't mean this to sound like a recruiting pitch. But it's been a lot of fun.
+- There are just hundreds of people that have inspired and influenced me in a number of different ways. First of all, you can't forget your parents and all they've done to help you to get here.
+- Fortunately, I got called down to NASA for an interview. And one thing led to the next, and one day I got that call. I've been here about seven years now and am really enjoying it.
+- I went to the University of Washington as a physics and astronomy major. My other interest, of course, was aviation. I always wanted to be a pilot. And if you're going to fly airplanes, the best place to be is the Air Force.
+- It looks like the future's really bright.
+- It's a great view from here. I'm having the time of my life.
+- I was always fascinated by science-fiction shows, shows like 'Star Trek' and 'Lost in Space.'
+- As you look back at your life, there are just a million different things that have happened, just in the right way, to allow you to make your dreams come true. And you know, someone has all that under control.
+- Like most kids growing up, I had a very wide interest. I was interested in everything. I tried to take advantage of everything, from the sciences to music to writing to literature.
+- Science was something that really caught my attention. It was something I really could sink my teeth into.
+- When you launch in a rocket, you're not really flying that rocket. You're just sort of hanging on.

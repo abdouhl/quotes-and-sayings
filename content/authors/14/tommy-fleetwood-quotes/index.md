@@ -1,0 +1,92 @@
++++
+author = "Tommy Fleetwood"
+title = "Tommy Fleetwood Quotes"
+quotes_len = "86"
+description = "the best 86 Tommy Fleetwood Quotes"
++++
+- This is my third year in a row where I'm one of those players that has a chance to win the Race to Dubai. I just think it's important this year that I take the experiences of 2017 and 2018 into it and know that it still takes a lot to do it and it's not in my hands at all.
+- It's nice to have a few moments at night to help me switch off.
+- I always try and watch how business people think. I like to read a lot about business people. I'm not going to say I've got a great business mind, but I enjoy learning from the world of business.
+- I'm not going to lie and say I don't really mind about winning in America. Of course I do.
+- I got recognized at the market the other day, but, no, nothing that spectacular. There's nobody fainting in the street as I walk past.
+- It's hard if you don't quite feel on your game to go out and put scores on the board.
+- You know, some of the performances, I have put myself on the world stage a bit more.
+- Seriously, as a father, I want golf to be cool for my children. Easy to access. If they want to play in tracksuits and trainers, why not?
+- When I started playing well all I wanted to do was win. Which was a problem. When it became clear I wasn't going to win, I would get fed up. I played poorly on a few Sundays, finishing 50th because I wasn't interested in finishing 30th. But I've learned not to do that.
+- It was such a relief to win. You tell yourself you can do it, but until you do you don't know for sure. And I found out I can do it by doing what I do, not what others do.
+- I can always take a moment when things are going well, when pressure might build, to think: 'You've had a lot worse than this.'
+- Every round I have three little targets. Maybe it is just 'talk to myself properly' or 'stand up straight on the greens.' One day I might say, 'Don't talk to anyone.' On another I'll be a lot chattier. Or I might say, 'smile all the way round.' Little things. But little things turn into bigger things.
+- I don't have the look of a golfer. Do I look like a rock star? I didn't make it playing guitar so I started playing golf!
+- It is the biggest sporting occasion in the world when it comes around so I want to be there, I want to play multiple Ryder Cups. I just want to be part of that whole thing.
+- Race to Dubai winner, playing in Ryder Cups, winning majors - these are all great parts of a career you want to have.
+- When it is on, the Ryder Cup is by a country mile the biggest sporting event in the world.
+- I have one idiosyncrasy that helps my driving accuracy. I grip down on the club. This makes it easier to control the clubface.
+- The U.S. Open was something I loved.
+- You never really get a chance to sit back and look at where you are or what you've done. If you stop working, you're gonna get overtaken quickly. You can't really take your foot off the gas - until you decide to pack it in.
+- I have the confidence knowing if the game is on I can win the big events. That's a massive difference. Until you've done it and proven it to yourself, you can't know if you can.
+- It's really, really cool when you win a tournament. And it's great for the people who go on the journey with you.
+- I shaved my head once and learned that I've got, like, a cone head. So I'm never gonna do that again.
+- My game is getting better all the time. I'm consistently working hard, and I feel like I'm always doing the right things.
+- Going into my first Ryder Cup, my big fear was that I would contribute nothing to the team and that we'd lose.
+- My driver is my strongest club - it's what my game kind of revolves around.
+- I think there are certain events that would be an amazing torch for a turn in how the world is getting on, and the Ryder Cup would be one of them that is like a shining light at the end of the tunnel.
+- No matter what's going on, on the leaderboard, you have to know that par is a very, very good score and just keep playing.
+- You can roll the ball a long way with a stroke that has the force of a five-yard chip. Good rhythm and less effort are how you control the putterface and, in turn, the ball.
+- I think the winning scores are always pretty much the same but it's a very big deal to sort of prove yourself against some of the world's best.
+- I had a few moments in Hong Kong, the odd minute where you sit down and reflect more than anything of having that ticked off in your career. It's something special.
+- I have always been a very patient person, I am a perfectionist but have a high level of patience and think that's one of the things when I started my comeback that really helped... I wasn't rushing anything as long as I knew I was on the right track.
+- It's good for me to get home and re-connect with everyone.
+- It's so easy to just give up or get angry with the course or the conditions, but you can't do that.
+- My ultimate goal in life is to be the best player in the world.
+- I think as golfers, whenever you've had a long period off, you always sort of plan for a bit of rust. Not necessarily how you hit it, but just how you go about playing golf.
+- It's good to look back and know where you come from.
+- I think when you get to majors, there are definitely certain names and certain people that you've got to beat, and most of the time certain names and people pop up on the leaderboard. But that's the game, and that's what we're here for.
+- Struggling has done a couple of things for me. It is an experience to have and it makes you appreciate the good stuff.
+- I remember going to The Open in 1998 aged seven and snatching a picture of Tiger walking past.
+- The Ryder Cup is an event people dream about and sometimes it can only happen once.
+- I've pictured winning the U.S. Open a lot of times before.
+- There's a lot of worse things going on in the world than me hitting a bad five wood.
+- I tried changing my swing because I thought it would make me better. I thought it would make me a world-class golfer. I was a bit naive and I was a bit silly and just got going the wrong way.
+- Good putting starts with understanding the difference between a stroke and a hit. You want to make a stroke and let the energy of that back-and-through motion carry the ball to the hole.
+- Of course it's a big moment for me in my career if I could win on the PGA Tour.
+- You can't really force four tournaments a year.
+- Being managed by your wife means you just get told what to do all the time as opposed to some of the time.
+- Everyone wants to look to the future and into the past. I stay focused on now.
+- You don't know where your career is going to take you. It might all go wrong and I might never play in a Masters again. So it's important to keep things real.
+- I think at the end of the day, winning is very difficult.
+- Clare makes life so easy for me. From a business perspective, to being my wife, to being my friend. It allows me to go out and just play golf and work on a daily basis. I consider myself very, very lucky. She's the person I trust the most and when it comes to business, that is extremely important.
+- I'm 28, your career is a long time. We're not tennis players or football players. I'm just about reaching what should be my peak year.
+- I think I can compete in any company.
+- Golf's not an easy game. You keep working at it and, sooner or later, something good will happen.
+- I'm playing in the best tournaments in the world with the best players in the world. That's good stuff. It's great. The extra attention hasn't made a difference to me.
+- Expectation is a good thing. I think it shows you're doing a lot of good stuff. Clearly, I'd rather it to be that way than people expecting it to be the other way.
+- It is not a cliche to say golf is for the well-off. It is the reality. But the old system which used to make it elite is fading away.
+- I just had to get on the golf course and play holes whether it was practice or tournaments. Just keep playing. There's nothing else you can do.
+- I had a really rough time from sort of July 2015 to July 2016. I was really struggling with my game.
+- There's always a sense of, 'Oh, if I change my irons, they might not be as good or might not perform as well.'
+- Every time you tee off as a professional golfer, whether people say it or not, your first prerogative is to make the cut. You can't win if you don't make the cut.
+- To be on the winning team on your debut is amazing enough anyway but to do so alongside one of your best mates is the stuff of dreams.
+- Whether I win or not, it won't be down to inexperience and hopefully it won't be down to some sort of mental misjudgment.
+- I'd much rather be in this position where people might be talking about me as a contender than turning up and sort of being a no-show.
+- The hard part is majors are exhausting on their own. They're a long week. So the hard part is your energy levels.
+- The hardest part is finding that time to actually develop your game and get in practice. Literally going week in and week out playing with what you've got a lot of the time.
+- Winning is just such a good feeling.
+- The majors and big events eventually bring the best players to the top so if I play well or not I always find playing the big events very motivating because it shows you where the game is at.
+- I was a big kid who could putt well.
+- I have plenty of improving to do.
+- I've used Nike clubs since I was 13.
+- You can have ups and downs, and I know that as good as anybody because I've had them.
+- Par is your friend out there. Doesn't matter what holes they are.
+- When you're growing up, what it's really all about is playing so well the crowd get into it, and the roars you hear are those that you are creating.
+- Never rush through the stoke. Nervous or not, take your time, and the result is almost always better.
+- The American fans have taken to me, so I'm very grateful for that.
+- It's a different style of golf; that stands out for sure when you come over to America. The style of play and the golf courses in America. Most golf courses in America either stretch your game, and test different elements of your game and the margins for error are smaller.
+- The frustrating part is knowing that you've done it before, knowing that you can play, but then your game starts going down the wrong path and you lose confidence. It's so easy to just start slipping away.
+- Golf has been the sport of the social elite, with lawyers and doctors. But I have never been embarrassed by the looks I've been given by others. I have sometimes been looked at with condescension and it still happens now, but I know how to deal with it - I know whose opinions count.
+- Two birdies and a lot of bogeys doesn't really help. I say if you're going to do it, do it properly and be dreadful on all fronts.
+- Every time I'm practicing, playing or prepping, Majors are always going to be the ones everybody wants to win. But putting the urgency or too much pressure on yourself is not going to do any favors.
+- If you like dry humor, Henrik Stenson thinks he's very funny, but I think I'm very funny in a dry sense as well.
+- I don't particularly like talking about it much, but after a year of struggling, when you start playing better, you have a much better perspective on the game.
+- I'm not saying I'm anywhere near the David Beckham league, but because I played well and Moliwood and probably the hair and everything, I did start to get recognized more and more.
+- If I'm going to be away from my family then I want to make the practice count more.
+- At Isleworth, they get the greens up to the sort of speeds we see at Augusta, so it's really helpful.

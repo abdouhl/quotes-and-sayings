@@ -1,0 +1,32 @@
++++
+author = "Marcel Marceau"
+title = "Marcel Marceau Quotes"
+quotes_len = "26"
+description = "the best 26 Marcel Marceau Quotes"
++++
+- Dance is in the air, pirouettes, very difficult. Mime is on the floor, like Spanish dancing perhaps, and very often in slow motion.
+- I was brought up in a Jewish home, but I was brought up to be human - not fanatical, which is something that I don't appreciate at all. I learned to become a humanist and not to dwell on the differences between Jews and Christians.
+- I started under my master, Etienne Decroux, who taught me a new grammar for mime he called statuary mime. This grammar brings style creations. Without it, no art survives.
+- Do not the most moving moments of our lives find us without words?
+- I have designed my style pantomimes as white ink drawings on black backgrounds, so that man's destiny appears as a thread lost in an endless labyrinth. I have tried to shed some gleams of light on the shadow of man startled by his anguish.
+- Music conveys moods and images. Even in opera, where plots deal with the structure of destiny, it's music, not words, that provides power.
+- In silence and movement you can show the reflection of people.
+- In a clown, we see what we do that makes us laugh and cry. I kept the white face, the tradition of the Pierrot. My clown became a romantic and stylized figure. I wanted to be an abstract and concrete figure, a symbol of humanity.
+- Bip is the romantic and burlesque hero for our time. Bip is a modern-day Don Quixote.
+- I don't want our youth to become anti-romantic. We have to make room for the soul.
+- It's good to shut up sometimes.
+- Never get a mime talking. He won't stop.
+- Music and silence combine strongly because music is done with silence, and silence is full of music.
+- I have never been a victim of antisemitism - if you put to one side my war-time experience. That said, I am lucky not to have been sent into a concentration camp.
+- There is only one Marceau.
+- Mime is an art beyond words. It is the art of the essential. And you cannot lie. You have to show the truth.
+- To communicate through silence is a link between the thoughts of man.
+- Today, my heart and soul lives peacefully for the hope that the 21st century will have to face a great challenge, a peaceful struggle for the enlightenment of humanity.
+- When you're in a play, 50 percent is the genius of the actor, 50 percent is the genius of the author. When a mime is not perfect, you see nothing.
+- With time, art developed Bip, my alter ego. He was not only a lion tamer or a street musician but a soldier revealing the tragedy of ephemeral life.
+- I wouldn't imagine I would become famous in America for my talk shows.
+- Silence in the turmoil of the theater world made me survive 50 years without speaking on a stage, only to say 'No' in Mel Brooks' film, 'Silent Movie.'
+- All wars are criminal.
+- What sculptors do is represent the essence of gesture. What is important in mime is attitude.
+- I am a company in myself. My repertoire has become a bible for all mimes in the world.
+- The great problem of humanity is life and death. Every person dreams of becoming invisible one day.

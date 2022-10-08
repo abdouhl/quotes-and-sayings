@@ -1,0 +1,104 @@
++++
+author = "Matt Gaetz"
+title = "Matt Gaetz Quotes"
+quotes_len = "98"
+description = "the best 98 Matt Gaetz Quotes"
++++
+- Russia engages in a malign influence campaign all over the world. I would expect that they would try to undermine democracy here just that they - as they have in other places.
+- Tax Day is right up there with 'Root Canal Day' in terms of days that no one wants to celebrate.
+- Kneeling for the anthem does nothing to advance solutions to racial injustice, police brutality, or any other social plight. It is a slap in the face to patriotism itself. It is a statement that America as a country is no longer worth standing for.
+- I do think that if you've got a compelling argument to make in this country, going on television, going online, being on social media, you've got a broader ability to be effective at communicating your message if you engage a wide span of platforms rather than just standing on the House floor in the middle of the night, speaking to an empty room.
+- No one wants to be the next Pete Rose.
+- We need the speaker to be an institutionalist for the Congress, not to be a defender of the deep state.
+- Democrats want to peer into every second of President Trump's life, hoping to find a smoking gun.
+- I never underestimate the power of the American people.
+- We're called conspiracy theorists because we see this cabal right in front of us. We're able to aggregate these data points and show what was really going on.
+- No reasonable American believes that someone can investigate their own boss.
+- Choosing to disrespect our flag is an over-generalized indictment of the greatest nation on Earth.
+- We should not be a party that is opposed to science.
+- The Green Real Deal rejects regulation as the driving force of reform and instead unlocks the unlimited potential of American innovation and ingenuity.
+- If we got more efficient with electric grid capacity, we would substantially reduce our carbon footprint, and people would be likely to copy us.
+- President Trump is draining the D.C. swamp by fighting against corporate welfare.
+- While the Washington swamp, which loves shipping American jobs offshore to make a buck or Euro, is already rising up against the proposed legislation, the USRTA is just plain common sense.
+- There's not an American that would want to be investigated by someone they passed over for their old job back within the last 24 hours.
+- President Trump says his highest priority is America and the American people. The fact that this idea has been met with shock is itself shocking; if America's success is not the president's goal, what is? Is it looking good in photo-ops, while debt grows, jobs dwindle, bureaucracy reigns supreme, and the American people suffer?
+- History will judge harshly my Republican colleagues who deny the science of climate change. Similarly, those Democrats who would use climate change as a basis to regulate out of existence the American experience will face the harsh reality that their ideas will fail.
+- For the good of the American people, we must place our own interests first.
+- If we become better with carbon capture technology, I think we can start a global trend toward carbon awareness.
+- I'm on the pro-science side of the Republican Party.
+- People in the media grew up in the Northeast and can't comprehend the notion that there are people who like to go out to the clay pits and shoot and, afterward, go eat fried chicken.
+- I spoke at, I think, four of the Trump rallies that were in Florida, and these were not highly coordinated events. I would often learn of the program of one of these events just a day or so before the event itself. That seems to evidence the point that these were not people off colluding with Russia.
+- I have litigated in my private life, and I will say there are many reasons why a judge could be recused from a case that have nothing to do with their prior decisions or rulings on facts which may be relevant.
+- I did one cable news hit during my first 10 months in Congress.
+- The Russians win when we allow our intelligence community to be politicized, when we allow political opposition research to function as a basis for a warrant to spy on American citizens.
+- If you are anonymous, you are a less capable disrupter.
+- At best, a 100-day measurement of a new presidency is a meaningless abstraction. At worst, it's an invite to cheap politicking at the expense of the common good.
+- The most valuable real estate in the world lies between the president's ears.
+- Mass migrations of climate refugees erode borders and nations, creating a global playground for terrorists and traffickers.
+- It's easy to have strong, visceral feelings about disrespecting America. It's harder to get passionate about tax law.
+- I don't think anybody, regardless of tragic circumstances, can expect to come to a congressional hearing and take it over with a series of interruptions.
+- Agricultural products ranging from citrus and dairy to beef and chicken face stifling tariffs or nontariff barriers in many countries around the world.
+- You don't just get to show up in Washington and, because a terrible thing has happened to you, that you get to jump up and scream and yell.
+- I'm very concerned about the integrity of the vote and the ballot, and that's why we've got to secure our cyberdefenses.
+- Holding Congressional hearings is the purview of the majority, and during the first years of the Obama administration, Democrats could not be bothered.
+- I don't even think the biggest divide is between Republicans and Democrats. I think it's between institutionalists and reformers.
+- To sustain the Trump Revolution, we must empower Trump's champions to drive positive change across America. And we must defeat 'Never Trump' elements wherever we find them.
+- It's a huge deal when you have got people of the Department of Justice and FBI making fundamental misrepresentations to the FISA court.
+- You can't go do the Green New Deal. It's a set of aspirations that don't really bring us to sensible action.
+- My work on the Judiciary Committee has made me more aware of the InfoWars content than when I appeared previously in a very standard and respectful interview.
+- The reality of climate change is a stupid thing to argue about.
+- I believe that individuals in our country should not face discrimination for their sex or their gender or their sexual orientation.
+- I have to say, I have never watched 'Infowars.' I know that they say zany things that are patently untrue. But I also think that MSNBC says zany things that are patently untrue.
+- Ask anybody on Main Street whether it makes any sense to allow foreign countries to charge higher tariffs than we charge them, and the answer will surely be a resounding 'heck no!'
+- While I unconditionally support the First Amendment, inciting violence against others due to their political affiliation is not constitutionally protected speech.
+- If you think I have the power to determine when people leave their spouses, you attribute far too much credit to me.
+- It's a big deal when you have got to fire the deputy director of the FBI because he lies four times, twice under oath. It's also a big deal when you have got to reassign people off the Mueller probe, when you have got cash at the Democratic National Committee that is convertible into a warrant to spy on American citizens.
+- I love going on Chris Hayes' show. It probably is my favorite because of the intensity of the intellectual combat.
+- Tax reform has been a congressional priority for decades. It should be a bipartisan issue. I don't know why anyone in Congress would want their constituents to pay more.
+- One of the great things about technological innovation is that we haven't found out a way to make it partisan yet, and so we can actually bring Republicans and Democrats together to use innovative technologies to generate a cleaner environment, and we don't need excessive regulations to do it.
+- In some egregious cases, cities built new stadiums even while their citizens were still paying off old stadiums that had since closed. This is corporate welfare run amok, and a gross misuse of American citizens' tax money - something the government must treat with respect.
+- It is bizarre to see the NFL attacking an America that has treated it so well over the years. Taxpayers pay over 70 percent of the cost of stadiums. Our citizens pay more and more for tickets, and valuations of professional sports franchises have skyrocketed. Player compensation keeps growing.
+- I strongly support the rights of transgender individuals. I will not denigrate or deny their struggles.
+- Upon further reflection, I think that the things Alex Jones has said and done are so hurtful to so many people that a member of Congress should not grace that platform and legitimize it, and I would not go back.
+- If President Trump were to say, 'I'm am now the first female president,' who would celebrate that?
+- Legalizing betting would create over a hundred thousand new jobs, over $6 billion in wages, and inject $25 billion into our economy.
+- If players want to protest, let them do it on their own time and on their own dime.
+- The black market poses a greater risk to the integrity of sports than open, visible, and regulated betting.
+- Climate change isn't something people get to choose to believe or not: it's happening.
+- I don't understand what Republicans have to gain from appearing like we're mean to gay people.
+- Typically, members of Congress don't just hear a story about a program and indicate whether they support it or not.
+- We cannot live in a country where losing an election functions as de facto immunity deal.
+- I will be damned if the people in South Florida are going to dilute the legal votes of my constituents, who have a right to an honest, fair, representative republic.
+- Climate change is real.
+- Congress has broad powers to regulate and control commerce. Congress also cannot force a state to 'un-decriminalize' something; states' rights are routinely upheld by the Court.
+- Why should 'big sports' get tax breaks that businesses and families across America don't get?
+- While we glorify football players for their accomplishments on the field, they are not heroes.
+- I don't trust CNN anchors.
+- Our generation, I think, has a demand for authenticity that exceeds any prior generation.
+- The question for America is pretty simple: either we want a bunch of bureaucrats in Washington telling us what we can't do, or we empower American innovators to unlock things that we can do.
+- President Trump's coalition clearly involves creating massive turnout in areas where he's popular.
+- I don't know why anyone would prefer a more complicated tax code instead of a simpler one.
+- I do believe that it's very frequent that officials from foreign governments will meet with members of Congress. They will meet with folks associated with campaigns. That's not aberrational here in Washington.
+- If Democrats insist on looking for skeletons in the closet, they should take a long look at themselves. They've hidden more than their fair share.
+- I don't know why anyone would want businesses and families and individuals nationwide to suffer. But by voting against tax reform, Democrats showed that was exactly what they stand for: less money for families and more money into Washington, D.C.
+- We shouldn't tell prosecutors to 'pick and choose' what laws to uphold.
+- Unilaterally disarming the American economy through crushing regulations will empower Washington but few others.
+- When Federal law conflicts with state laws and the will of the American people, it's time to change the laws, not circulate edicts.
+- The new conservative movement has to take on Trump's sense of boldness.
+- We are a nation of laws, not department-wide memos.
+- In a world where the body politic has the attention span at times of a goldfish, yep, you've got to have the ability to reinvent yourself in this game many times.
+- I would suggest that a Green Real Deal is something to be far more excited about than the Green New Deal because the Green New Deal will never happen.
+- I wish climate change wasn't real.
+- The USRTA recognizes that the United States is the largest importer of goods even as it maintains, on average, the lowest combination of tariffs and nontariff barriers of any of its major trading partners.
+- President Trump is not an isolationist and builds closer friendships when he can.
+- We're all normal, flawed people who have off-the-cuff thoughts.
+- I believe that the Left is trying to create a crisis on the border.
+- If Adam Schiff is able to review covert operations and intelligence, and if we have to be able to rely on his representations, our whole system is broken.
+- A melting Arctic creates a more permissive environment for Russia and China to seize territory.
+- I'm a Christian, and I believe the Immaculate Conception was how Jesus was born.
+- If we cared about safer streets, we'd build the wall and secure the border.
+- You can't go do the Green New Deal, but Republicans can't just criticize the ideas of Democrats without proposing an alternative.
+- Democrats justify anything they do against Trump as being righteous, even if it's morally wrong or even if it's illegal, because they're so driven to stop Trump.
+- Bureaucrats lodged deep in agencies slow the impact of Trump's demands. Low-level staffers leak private meetings. The Department of Justice has gone rogue. The Swamp, it turns out, fights back.
+- When Donald Trump calls you, it's like you have a little Trump rally in your ear.
+- The biggest threat to the Trump movement is that Republicans in office demoralize our base because the only way we win now is by driving turnout among our voters. And if our voters just think we're weak, we don't fight, we don't do the things we say when we get elected? Then there is no future for us.
