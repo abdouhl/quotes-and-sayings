@@ -1,0 +1,7 @@
++++
+author = "Yael Cohen"
+title = "StandWith has two main functions: first, updates which allows the caregiver to send out patient updates to their community in a simple way that eliminated dozens of texts, emails and calls. The second is tasks. A caregiver can request a task to be fulfilled and their community can self-select which they complete based off their abilities and means."
+description = "the best Yael Cohen Quote: StandWith has two main functions: first, updates which allows the caregiver to send out patient updates to their community in a simple way that eliminated dozens of texts, emails and calls. The second is tasks. A caregiver can request a task to be fulfilled and their community can self-select which they complete based off their abilities and means."
+slug = "standwith-has-two-main-functions:-first-updates-which-allows-the-caregiver-to-send-out-patient-updates-to-their-community-in-a-simple-way-that-eliminated-dozens-of-texts-emails-and-calls-the-second-is-tasks-a-caregiver-can-request-a-task-to-be-fulfilled-and-their-community-can-self-select-which-they-complete-based-off-their-abilities-and-means"
++++
+StandWith has two main functions: first, updates which allows the caregiver to send out patient updates to their community in a simple way that eliminated dozens of texts, emails and calls. The second is tasks. A caregiver can request a task to be fulfilled and their community can self-select which they complete based off their abilities and means.

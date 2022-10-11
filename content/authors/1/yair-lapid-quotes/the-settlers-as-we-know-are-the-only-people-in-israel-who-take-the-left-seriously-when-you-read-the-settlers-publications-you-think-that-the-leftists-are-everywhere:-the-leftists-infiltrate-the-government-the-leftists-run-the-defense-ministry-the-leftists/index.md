@@ -1,0 +1,7 @@
++++
+author = "Yair Lapid"
+title = "The settlers, as we know, are the only people in Israel who take the Left seriously. When you read the settlers' publications, you think that the leftists are everywhere: The leftists infiltrate the government, the leftists run the Defense Ministry, the leftists dominate the legal establishment, and the leftists control the media, of course."
+description = "the best Yair Lapid Quote: The settlers, as we know, are the only people in Israel who take the Left seriously. When you read the settlers' publications, you think that the leftists are everywhere: The leftists infiltrate the government, the leftists run the Defense Ministry, the leftists dominate the legal establishment, and the leftists control the media, of course."
+slug = "the-settlers-as-we-know-are-the-only-people-in-israel-who-take-the-left-seriously-when-you-read-the-settlers-publications-you-think-that-the-leftists-are-everywhere:-the-leftists-infiltrate-the-government-the-leftists-run-the-defense-ministry-the-leftists-dominate-the-legal-establishment-and-the-leftists-control-the-media-of-course"
++++
+The settlers, as we know, are the only people in Israel who take the Left seriously. When you read the settlers' publications, you think that the leftists are everywhere: The leftists infiltrate the government, the leftists run the Defense Ministry, the leftists dominate the legal establishment, and the leftists control the media, of course.

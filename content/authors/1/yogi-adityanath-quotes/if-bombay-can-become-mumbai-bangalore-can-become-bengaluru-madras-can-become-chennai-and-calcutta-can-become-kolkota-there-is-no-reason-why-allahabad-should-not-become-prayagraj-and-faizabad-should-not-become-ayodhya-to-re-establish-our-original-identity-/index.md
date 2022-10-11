@@ -1,0 +1,7 @@
++++
+author = "Yogi Adityanath"
+title = "If Bombay can become Mumbai, Bangalore can become Bengaluru, Madras can become Chennai, and Calcutta can become Kolkota, there is no reason why Allahabad should not become Prayagraj and Faizabad should not become Ayodhya. To re-establish our original identity, we have renamed these places. I am happy that people have welcomed this."
+description = "the best Yogi Adityanath Quote: If Bombay can become Mumbai, Bangalore can become Bengaluru, Madras can become Chennai, and Calcutta can become Kolkota, there is no reason why Allahabad should not become Prayagraj and Faizabad should not become Ayodhya. To re-establish our original identity, we have renamed these places. I am happy that people have welcomed this."
+slug = "if-bombay-can-become-mumbai-bangalore-can-become-bengaluru-madras-can-become-chennai-and-calcutta-can-become-kolkota-there-is-no-reason-why-allahabad-should-not-become-prayagraj-and-faizabad-should-not-become-ayodhya-to-re-establish-our-original-identity-we-have-renamed-these-places-i-am-happy-that-people-have-welcomed-this"
++++
+If Bombay can become Mumbai, Bangalore can become Bengaluru, Madras can become Chennai, and Calcutta can become Kolkota, there is no reason why Allahabad should not become Prayagraj and Faizabad should not become Ayodhya. To re-establish our original identity, we have renamed these places. I am happy that people have welcomed this.

@@ -1,0 +1,7 @@
++++
+author = "Yahya Abdul-Mateen Ii"
+title = "When I was in college, it was on the recommendation of a friend of mine. He recommended that I take an acting class, and so I kind of did. I was very open to feedback and open to suggestions. I had a little bit of space in my schedule, and I guess, as the story goes, I went into an acting class, and I kind of got the bug for it."
+description = "the best Yahya Abdul-Mateen Ii Quote: When I was in college, it was on the recommendation of a friend of mine. He recommended that I take an acting class, and so I kind of did. I was very open to feedback and open to suggestions. I had a little bit of space in my schedule, and I guess, as the story goes, I went into an acting class, and I kind of got the bug for it."
+slug = "when-i-was-in-college-it-was-on-the-recommendation-of-a-friend-of-mine-he-recommended-that-i-take-an-acting-class-and-so-i-kind-of-did-i-was-very-open-to-feedback-and-open-to-suggestions-i-had-a-little-bit-of-space-in-my-schedule-and-i-guess-as-the-story-goes-i-went-into-an-acting-class-and-i-kind-of-got-the-bug-for-it"
++++
+When I was in college, it was on the recommendation of a friend of mine. He recommended that I take an acting class, and so I kind of did. I was very open to feedback and open to suggestions. I had a little bit of space in my schedule, and I guess, as the story goes, I went into an acting class, and I kind of got the bug for it.

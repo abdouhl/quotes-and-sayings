@@ -1,0 +1,7 @@
++++
+author = "Yo-Yo Ma"
+title = "I think there are so many ways to become interested in music. I believe signs of sustained interest gives a sense of the right time. Music, if thought of as a language, would perhaps indicate that as early as possible is not so bad. I do believe that a really nurturing first teacher that makes the child love something is crucial."
+description = "the best Yo-Yo Ma Quote: I think there are so many ways to become interested in music. I believe signs of sustained interest gives a sense of the right time. Music, if thought of as a language, would perhaps indicate that as early as possible is not so bad. I do believe that a really nurturing first teacher that makes the child love something is crucial."
+slug = "i-think-there-are-so-many-ways-to-become-interested-in-music-i-believe-signs-of-sustained-interest-gives-a-sense-of-the-right-time-music-if-thought-of-as-a-language-would-perhaps-indicate-that-as-early-as-possible-is-not-so-bad-i-do-believe-that-a-really-nurturing-first-teacher-that-makes-the-child-love-something-is-crucial"
++++
+I think there are so many ways to become interested in music. I believe signs of sustained interest gives a sense of the right time. Music, if thought of as a language, would perhaps indicate that as early as possible is not so bad. I do believe that a really nurturing first teacher that makes the child love something is crucial.

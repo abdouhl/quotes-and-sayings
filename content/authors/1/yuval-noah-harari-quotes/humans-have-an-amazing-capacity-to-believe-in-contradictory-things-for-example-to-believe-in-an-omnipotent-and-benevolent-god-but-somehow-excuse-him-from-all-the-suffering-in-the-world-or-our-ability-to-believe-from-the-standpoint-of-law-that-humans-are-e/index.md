@@ -1,0 +1,7 @@
++++
+author = "Yuval Noah Harari"
+title = "Humans have an amazing capacity to believe in contradictory things. For example, to believe in an omnipotent and benevolent God but somehow excuse Him from all the suffering in the world. Or our ability to believe from the standpoint of law that humans are equal and have free will and from biology that humans are just organic machines."
+description = "the best Yuval Noah Harari Quote: Humans have an amazing capacity to believe in contradictory things. For example, to believe in an omnipotent and benevolent God but somehow excuse Him from all the suffering in the world. Or our ability to believe from the standpoint of law that humans are equal and have free will and from biology that humans are just organic machines."
+slug = "humans-have-an-amazing-capacity-to-believe-in-contradictory-things-for-example-to-believe-in-an-omnipotent-and-benevolent-god-but-somehow-excuse-him-from-all-the-suffering-in-the-world-or-our-ability-to-believe-from-the-standpoint-of-law-that-humans-are-equal-and-have-free-will-and-from-biology-that-humans-are-just-organic-machines"
++++
+Humans have an amazing capacity to believe in contradictory things. For example, to believe in an omnipotent and benevolent God but somehow excuse Him from all the suffering in the world. Or our ability to believe from the standpoint of law that humans are equal and have free will and from biology that humans are just organic machines.

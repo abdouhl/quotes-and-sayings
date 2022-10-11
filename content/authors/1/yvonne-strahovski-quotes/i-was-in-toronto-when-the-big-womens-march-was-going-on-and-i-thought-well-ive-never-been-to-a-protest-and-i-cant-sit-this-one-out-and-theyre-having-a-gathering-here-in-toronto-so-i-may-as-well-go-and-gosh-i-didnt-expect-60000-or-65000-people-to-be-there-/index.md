@@ -1,0 +1,7 @@
++++
+author = "Yvonne Strahovski"
+title = "I was in Toronto when the big Women's March was going on, and I thought, 'Well, I've never been to a protest, and I can't sit this one out, and they're having a gathering here in Toronto, so I may as well go,' and gosh, I didn't expect 60,000 or 65,000 people to be there - it was huge! It was something that I didn't feel I could sit out at all."
+description = "the best Yvonne Strahovski Quote: I was in Toronto when the big Women's March was going on, and I thought, 'Well, I've never been to a protest, and I can't sit this one out, and they're having a gathering here in Toronto, so I may as well go,' and gosh, I didn't expect 60,000 or 65,000 people to be there - it was huge! It was something that I didn't feel I could sit out at all."
+slug = "i-was-in-toronto-when-the-big-womens-march-was-going-on-and-i-thought-well-ive-never-been-to-a-protest-and-i-cant-sit-this-one-out-and-theyre-having-a-gathering-here-in-toronto-so-i-may-as-well-go-and-gosh-i-didnt-expect-60000-or-65000-people-to-be-there---it-was-huge!-it-was-something-that-i-didnt-feel-i-could-sit-out-at-all"
++++
+I was in Toronto when the big Women's March was going on, and I thought, 'Well, I've never been to a protest, and I can't sit this one out, and they're having a gathering here in Toronto, so I may as well go,' and gosh, I didn't expect 60,000 or 65,000 people to be there - it was huge! It was something that I didn't feel I could sit out at all.

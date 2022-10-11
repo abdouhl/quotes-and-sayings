@@ -1,0 +1,7 @@
++++
+author = "Young Dolph"
+title = "I didn't agree with everything she was trying to get me to do and teach me, but once I got old enough, I understood everything. I'm thinking she was being mean. I'm like, 'Damn, I just want to have fun. I just want to go outside, Grandma, play with the rest of the kids and kick it and ride bikes.' She prepared me for life with all of the rules."
+description = "the best Young Dolph Quote: I didn't agree with everything she was trying to get me to do and teach me, but once I got old enough, I understood everything. I'm thinking she was being mean. I'm like, 'Damn, I just want to have fun. I just want to go outside, Grandma, play with the rest of the kids and kick it and ride bikes.' She prepared me for life with all of the rules."
+slug = "i-didnt-agree-with-everything-she-was-trying-to-get-me-to-do-and-teach-me-but-once-i-got-old-enough-i-understood-everything-im-thinking-she-was-being-mean-im-like-damn-i-just-want-to-have-fun-i-just-want-to-go-outside-grandma-play-with-the-rest-of-the-kids-and-kick-it-and-ride-bikes-she-prepared-me-for-life-with-all-of-the-rules"
++++
+I didn't agree with everything she was trying to get me to do and teach me, but once I got old enough, I understood everything. I'm thinking she was being mean. I'm like, 'Damn, I just want to have fun. I just want to go outside, Grandma, play with the rest of the kids and kick it and ride bikes.' She prepared me for life with all of the rules.

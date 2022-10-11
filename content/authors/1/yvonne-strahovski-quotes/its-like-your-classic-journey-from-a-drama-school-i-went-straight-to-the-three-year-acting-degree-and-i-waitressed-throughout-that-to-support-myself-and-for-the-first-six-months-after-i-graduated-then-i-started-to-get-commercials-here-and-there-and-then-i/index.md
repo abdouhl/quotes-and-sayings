@@ -1,0 +1,7 @@
++++
+author = "Yvonne Strahovski"
+title = "It's, like, your classic journey from a drama school. I went straight to the three-year acting degree, and I waitressed throughout that to support myself and for the first six months after I graduated. Then I started to get commercials here and there, and then I got a couple of roles in Australia and then a more regular role on a TV series."
+description = "the best Yvonne Strahovski Quote: It's, like, your classic journey from a drama school. I went straight to the three-year acting degree, and I waitressed throughout that to support myself and for the first six months after I graduated. Then I started to get commercials here and there, and then I got a couple of roles in Australia and then a more regular role on a TV series."
+slug = "its-like-your-classic-journey-from-a-drama-school-i-went-straight-to-the-three-year-acting-degree-and-i-waitressed-throughout-that-to-support-myself-and-for-the-first-six-months-after-i-graduated-then-i-started-to-get-commercials-here-and-there-and-then-i-got-a-couple-of-roles-in-australia-and-then-a-more-regular-role-on-a-tv-series"
++++
+It's, like, your classic journey from a drama school. I went straight to the three-year acting degree, and I waitressed throughout that to support myself and for the first six months after I graduated. Then I started to get commercials here and there, and then I got a couple of roles in Australia and then a more regular role on a TV series.

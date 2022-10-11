@@ -1,0 +1,7 @@
++++
+author = "Yoel Romero"
+title = "No one wants to work for what they have, to achieve a goal. No one wants to step outside of the house and go for a long run and sweat. Everybody wants to run inside the house, the treadmill. They want to trim up a little excess body fat, but they don't want to diet and train. Go straight to the lipo and whatever else they do. The easy way out."
+description = "the best Yoel Romero Quote: No one wants to work for what they have, to achieve a goal. No one wants to step outside of the house and go for a long run and sweat. Everybody wants to run inside the house, the treadmill. They want to trim up a little excess body fat, but they don't want to diet and train. Go straight to the lipo and whatever else they do. The easy way out."
+slug = "no-one-wants-to-work-for-what-they-have-to-achieve-a-goal-no-one-wants-to-step-outside-of-the-house-and-go-for-a-long-run-and-sweat-everybody-wants-to-run-inside-the-house-the-treadmill-they-want-to-trim-up-a-little-excess-body-fat-but-they-dont-want-to-diet-and-train-go-straight-to-the-lipo-and-whatever-else-they-do-the-easy-way-out"
++++
+No one wants to work for what they have, to achieve a goal. No one wants to step outside of the house and go for a long run and sweat. Everybody wants to run inside the house, the treadmill. They want to trim up a little excess body fat, but they don't want to diet and train. Go straight to the lipo and whatever else they do. The easy way out.

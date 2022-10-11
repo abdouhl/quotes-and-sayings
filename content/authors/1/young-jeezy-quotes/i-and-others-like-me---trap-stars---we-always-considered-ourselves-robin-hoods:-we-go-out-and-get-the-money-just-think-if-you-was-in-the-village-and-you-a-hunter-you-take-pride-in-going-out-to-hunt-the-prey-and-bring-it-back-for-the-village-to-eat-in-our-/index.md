@@ -1,0 +1,7 @@
++++
+author = "Young Jeezy"
+title = "I, and others like me - trap stars - we always considered ourselves Robin Hoods: we go out and get the money. Just think, if you was in the village and you a hunter, you take pride in going out to hunt the prey and bring it back for the village to eat. In our situation, we took pride in getting money so that the hood could eat."
+description = "the best Young Jeezy Quote: I, and others like me - trap stars - we always considered ourselves Robin Hoods: we go out and get the money. Just think, if you was in the village and you a hunter, you take pride in going out to hunt the prey and bring it back for the village to eat. In our situation, we took pride in getting money so that the hood could eat."
+slug = "i-and-others-like-me---trap-stars---we-always-considered-ourselves-robin-hoods:-we-go-out-and-get-the-money-just-think-if-you-was-in-the-village-and-you-a-hunter-you-take-pride-in-going-out-to-hunt-the-prey-and-bring-it-back-for-the-village-to-eat-in-our-situation-we-took-pride-in-getting-money-so-that-the-hood-could-eat"
++++
+I, and others like me - trap stars - we always considered ourselves Robin Hoods: we go out and get the money. Just think, if you was in the village and you a hunter, you take pride in going out to hunt the prey and bring it back for the village to eat. In our situation, we took pride in getting money so that the hood could eat.

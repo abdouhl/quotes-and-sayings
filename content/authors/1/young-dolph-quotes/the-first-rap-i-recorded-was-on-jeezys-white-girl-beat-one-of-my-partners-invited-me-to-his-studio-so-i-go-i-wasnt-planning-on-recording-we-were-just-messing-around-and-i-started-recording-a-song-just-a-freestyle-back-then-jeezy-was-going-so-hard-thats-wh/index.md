@@ -1,0 +1,7 @@
++++
+author = "Young Dolph"
+title = "The first rap I recorded was on Jeezy's 'White Girl' beat. One of my partners invited me to his studio, so I go. I wasn't planning on recording, we were just messing around. And I started recording a song, just a freestyle. Back then, Jeezy was going so hard, that's what everyone was on. That's what me and my partners in the trap would listen to."
+description = "the best Young Dolph Quote: The first rap I recorded was on Jeezy's 'White Girl' beat. One of my partners invited me to his studio, so I go. I wasn't planning on recording, we were just messing around. And I started recording a song, just a freestyle. Back then, Jeezy was going so hard, that's what everyone was on. That's what me and my partners in the trap would listen to."
+slug = "the-first-rap-i-recorded-was-on-jeezys-white-girl-beat-one-of-my-partners-invited-me-to-his-studio-so-i-go-i-wasnt-planning-on-recording-we-were-just-messing-around-and-i-started-recording-a-song-just-a-freestyle-back-then-jeezy-was-going-so-hard-thats-what-everyone-was-on-thats-what-me-and-my-partners-in-the-trap-would-listen-to"
++++
+The first rap I recorded was on Jeezy's 'White Girl' beat. One of my partners invited me to his studio, so I go. I wasn't planning on recording, we were just messing around. And I started recording a song, just a freestyle. Back then, Jeezy was going so hard, that's what everyone was on. That's what me and my partners in the trap would listen to.

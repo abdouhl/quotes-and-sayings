@@ -1,0 +1,7 @@
++++
+author = "Yuliya Snigir"
+title = "I came to Los Angeles only after filming 'A Good Day to Die Hard,' when I was cast in the independent movie 'Delirium.' Director Lee Roy Kunz was looking everywhere for a Russian actress. He saw my photos, and only then he learned where I starred before! Eventually, I spent several months in the U.S., and we made the film quickly."
+description = "the best Yuliya Snigir Quote: I came to Los Angeles only after filming 'A Good Day to Die Hard,' when I was cast in the independent movie 'Delirium.' Director Lee Roy Kunz was looking everywhere for a Russian actress. He saw my photos, and only then he learned where I starred before! Eventually, I spent several months in the U.S., and we made the film quickly."
+slug = "i-came-to-los-angeles-only-after-filming-a-good-day-to-die-hard-when-i-was-cast-in-the-independent-movie-delirium-director-lee-roy-kunz-was-looking-everywhere-for-a-russian-actress-he-saw-my-photos-and-only-then-he-learned-where-i-starred-before!-eventually-i-spent-several-months-in-the-us-and-we-made-the-film-quickly"
++++
+I came to Los Angeles only after filming 'A Good Day to Die Hard,' when I was cast in the independent movie 'Delirium.' Director Lee Roy Kunz was looking everywhere for a Russian actress. He saw my photos, and only then he learned where I starred before! Eventually, I spent several months in the U.S., and we made the film quickly.

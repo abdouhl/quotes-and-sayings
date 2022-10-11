@@ -1,0 +1,7 @@
++++
+author = "Yann Arthus-Bertrand"
+title = "The fact is that seven per cent of the global population emits 50 per cent of greenhouse gas emissions, and the proportions are the same for the use of energy and raw materials, meat, wood, etc. Simply put, an infinitesimal minority consumes the most and imposes damage on the overwhelming majority, while asking it to change."
+description = "the best Yann Arthus-Bertrand Quote: The fact is that seven per cent of the global population emits 50 per cent of greenhouse gas emissions, and the proportions are the same for the use of energy and raw materials, meat, wood, etc. Simply put, an infinitesimal minority consumes the most and imposes damage on the overwhelming majority, while asking it to change."
+slug = "the-fact-is-that-seven-per-cent-of-the-global-population-emits-50-per-cent-of-greenhouse-gas-emissions-and-the-proportions-are-the-same-for-the-use-of-energy-and-raw-materials-meat-wood-etc-simply-put-an-infinitesimal-minority-consumes-the-most-and-imposes-damage-on-the-overwhelming-majority-while-asking-it-to-change"
++++
+The fact is that seven per cent of the global population emits 50 per cent of greenhouse gas emissions, and the proportions are the same for the use of energy and raw materials, meat, wood, etc. Simply put, an infinitesimal minority consumes the most and imposes damage on the overwhelming majority, while asking it to change.

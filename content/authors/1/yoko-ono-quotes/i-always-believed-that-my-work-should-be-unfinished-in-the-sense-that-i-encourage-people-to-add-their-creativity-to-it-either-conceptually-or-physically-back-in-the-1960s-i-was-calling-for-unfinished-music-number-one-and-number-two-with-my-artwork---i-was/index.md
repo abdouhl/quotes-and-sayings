@@ -1,0 +1,7 @@
++++
+author = "Yoko Ono"
+title = "I always believed that my work should be unfinished in the sense that I encourage people to add their creativity to it, either conceptually or physically. Back in the 1960s, I was calling for 'Unfinished Music,' number one, and number two, with my artwork - I was taking unfinished work into the gallery. And that's how I was looking at it."
+description = "the best Yoko Ono Quote: I always believed that my work should be unfinished in the sense that I encourage people to add their creativity to it, either conceptually or physically. Back in the 1960s, I was calling for 'Unfinished Music,' number one, and number two, with my artwork - I was taking unfinished work into the gallery. And that's how I was looking at it."
+slug = "i-always-believed-that-my-work-should-be-unfinished-in-the-sense-that-i-encourage-people-to-add-their-creativity-to-it-either-conceptually-or-physically-back-in-the-1960s-i-was-calling-for-unfinished-music-number-one-and-number-two-with-my-artwork---i-was-taking-unfinished-work-into-the-gallery-and-thats-how-i-was-looking-at-it"
++++
+I always believed that my work should be unfinished in the sense that I encourage people to add their creativity to it, either conceptually or physically. Back in the 1960s, I was calling for 'Unfinished Music,' number one, and number two, with my artwork - I was taking unfinished work into the gallery. And that's how I was looking at it.

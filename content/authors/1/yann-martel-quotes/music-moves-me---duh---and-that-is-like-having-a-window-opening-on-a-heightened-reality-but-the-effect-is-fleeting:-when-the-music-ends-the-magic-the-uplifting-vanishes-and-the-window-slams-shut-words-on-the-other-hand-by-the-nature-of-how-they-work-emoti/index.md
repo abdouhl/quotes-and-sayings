@@ -1,0 +1,7 @@
++++
+author = "Yann Martel"
+title = "Music moves me - duh - and that is like having a window opening on a heightened reality, but the effect is fleeting: When the music ends, the magic, the uplifting, vanishes and the window slams shut. Words, on the other hand, by the nature of how they work, emotions evoked by dint of carefully laid out thoughts, have a more lingering effect."
+description = "the best Yann Martel Quote: Music moves me - duh - and that is like having a window opening on a heightened reality, but the effect is fleeting: When the music ends, the magic, the uplifting, vanishes and the window slams shut. Words, on the other hand, by the nature of how they work, emotions evoked by dint of carefully laid out thoughts, have a more lingering effect."
+slug = "music-moves-me---duh---and-that-is-like-having-a-window-opening-on-a-heightened-reality-but-the-effect-is-fleeting:-when-the-music-ends-the-magic-the-uplifting-vanishes-and-the-window-slams-shut-words-on-the-other-hand-by-the-nature-of-how-they-work-emotions-evoked-by-dint-of-carefully-laid-out-thoughts-have-a-more-lingering-effect"
++++
+Music moves me - duh - and that is like having a window opening on a heightened reality, but the effect is fleeting: When the music ends, the magic, the uplifting, vanishes and the window slams shut. Words, on the other hand, by the nature of how they work, emotions evoked by dint of carefully laid out thoughts, have a more lingering effect.

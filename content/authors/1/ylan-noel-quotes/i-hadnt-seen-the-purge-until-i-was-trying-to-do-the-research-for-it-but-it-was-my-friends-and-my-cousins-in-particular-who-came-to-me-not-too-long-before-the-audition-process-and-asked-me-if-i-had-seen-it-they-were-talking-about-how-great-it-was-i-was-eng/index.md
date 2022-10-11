@@ -1,0 +1,7 @@
++++
+author = "Y'Lan Noel"
+title = "I hadn't seen 'The Purge' until I was trying to do the research for it. But it was my friends and my cousins, in particular, who came to me not too long before the audition process and asked me if I had seen it. They were talking about how great it was. I was engaged in the opportunity to do the film because of their intrigue with the franchise."
+description = "the best Y'Lan Noel Quote: I hadn't seen 'The Purge' until I was trying to do the research for it. But it was my friends and my cousins, in particular, who came to me not too long before the audition process and asked me if I had seen it. They were talking about how great it was. I was engaged in the opportunity to do the film because of their intrigue with the franchise."
+slug = "i-hadnt-seen-the-purge-until-i-was-trying-to-do-the-research-for-it-but-it-was-my-friends-and-my-cousins-in-particular-who-came-to-me-not-too-long-before-the-audition-process-and-asked-me-if-i-had-seen-it-they-were-talking-about-how-great-it-was-i-was-engaged-in-the-opportunity-to-do-the-film-because-of-their-intrigue-with-the-franchise"
++++
+I hadn't seen 'The Purge' until I was trying to do the research for it. But it was my friends and my cousins, in particular, who came to me not too long before the audition process and asked me if I had seen it. They were talking about how great it was. I was engaged in the opportunity to do the film because of their intrigue with the franchise.

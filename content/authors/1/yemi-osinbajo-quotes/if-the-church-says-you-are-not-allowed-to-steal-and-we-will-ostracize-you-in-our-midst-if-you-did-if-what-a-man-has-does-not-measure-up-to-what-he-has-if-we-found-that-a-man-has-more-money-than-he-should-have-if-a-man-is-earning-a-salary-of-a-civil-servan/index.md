@@ -1,0 +1,7 @@
++++
+author = "Yemi Osinbajo"
+title = "If the church says you are not allowed to steal, and we will ostracize you in our midst if you did, if what a man has does not measure up to what he has, if we found that a man has more money than he should have, if a man is earning a salary of a civil servant or a public servant and he has houses everywhere, we have to hold him to account."
+description = "the best Yemi Osinbajo Quote: If the church says you are not allowed to steal, and we will ostracize you in our midst if you did, if what a man has does not measure up to what he has, if we found that a man has more money than he should have, if a man is earning a salary of a civil servant or a public servant and he has houses everywhere, we have to hold him to account."
+slug = "if-the-church-says-you-are-not-allowed-to-steal-and-we-will-ostracize-you-in-our-midst-if-you-did-if-what-a-man-has-does-not-measure-up-to-what-he-has-if-we-found-that-a-man-has-more-money-than-he-should-have-if-a-man-is-earning-a-salary-of-a-civil-servant-or-a-public-servant-and-he-has-houses-everywhere-we-have-to-hold-him-to-account"
++++
+If the church says you are not allowed to steal, and we will ostracize you in our midst if you did, if what a man has does not measure up to what he has, if we found that a man has more money than he should have, if a man is earning a salary of a civil servant or a public servant and he has houses everywhere, we have to hold him to account.
