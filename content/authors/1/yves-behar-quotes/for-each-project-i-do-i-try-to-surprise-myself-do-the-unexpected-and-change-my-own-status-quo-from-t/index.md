@@ -1,7 +1,0 @@
-+++
-author = "Yves Behar"
-title = "For each project I do, I try to surprise myself, do the unexpected, and change my own status quo. From the One Laptop Per Child, the Herman Miller Sayl, or the latest Movado watch collection, there is always an insecurity about being able to do something important. I think each of those projects makes me feel like we have progressed."
-description = "the best Yves Behar Quote: For each project I do, I try to surprise myself, do the unexpected, and change my own status quo. From the One Laptop Per Child, the Herman Miller Sayl, or the latest Movado watch collection, there is always an insecurity about being able to do something important. I think each of those projects makes me feel like we have progressed."
-slug = "for-each-project-i-do-i-try-to-surprise-myself-do-the-unexpected-and-change-my-own-status-quo-from-the-one-laptop-per-child-the-herman-miller-sayl-or-the-latest-movado-watch-collection-there-is-always-an-insecurity-about-being-able-to-do-something-important-i-think-each-of-those-projects-makes-me-feel-like-we-have-progressed"
-+++
-For each project I do, I try to surprise myself, do the unexpected, and change my own status quo. From the One Laptop Per Child, the Herman Miller Sayl, or the latest Movado watch collection, there is always an insecurity about being able to do something important. I think each of those projects makes me feel like we have progressed.

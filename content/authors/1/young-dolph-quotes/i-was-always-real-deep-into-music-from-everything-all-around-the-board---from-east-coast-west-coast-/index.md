@@ -1,7 +1,0 @@
-+++
-author = "Young Dolph"
-title = "I was always real deep into music. From everything, all around the board - from East Coast, West Coast, down South, everywhere. I just been a fan of music and I know I always wanted to do it myself and I wanted to do it my way. So, I told myself if I ever start doing music, I'ma do it my way. That's what made me start my own label."
-description = "the best Young Dolph Quote: I was always real deep into music. From everything, all around the board - from East Coast, West Coast, down South, everywhere. I just been a fan of music and I know I always wanted to do it myself and I wanted to do it my way. So, I told myself if I ever start doing music, I'ma do it my way. That's what made me start my own label."
-slug = "i-was-always-real-deep-into-music-from-everything-all-around-the-board---from-east-coast-west-coast-down-south-everywhere-i-just-been-a-fan-of-music-and-i-know-i-always-wanted-to-do-it-myself-and-i-wanted-to-do-it-my-way-so-i-told-myself-if-i-ever-start-doing-music-ima-do-it-my-way-thats-what-made-me-start-my-own-label"
-+++
-I was always real deep into music. From everything, all around the board - from East Coast, West Coast, down South, everywhere. I just been a fan of music and I know I always wanted to do it myself and I wanted to do it my way. So, I told myself if I ever start doing music, I'ma do it my way. That's what made me start my own label.

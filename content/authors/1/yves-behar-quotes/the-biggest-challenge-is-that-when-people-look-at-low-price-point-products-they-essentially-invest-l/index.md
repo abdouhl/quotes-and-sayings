@@ -1,7 +1,0 @@
-+++
-author = "Yves Behar"
-title = "The biggest challenge is that when people look at low price point products, they essentially invest less money in development, innovation, and new technology. And in order to innovate at a lower price point, and make sustainability attainable to the masses, you have to invest more. But that's counterintuitive for a lot of businesses."
-description = "the best Yves Behar Quote: The biggest challenge is that when people look at low price point products, they essentially invest less money in development, innovation, and new technology. And in order to innovate at a lower price point, and make sustainability attainable to the masses, you have to invest more. But that's counterintuitive for a lot of businesses."
-slug = "the-biggest-challenge-is-that-when-people-look-at-low-price-point-products-they-essentially-invest-less-money-in-development-innovation-and-new-technology-and-in-order-to-innovate-at-a-lower-price-point-and-make-sustainability-attainable-to-the-masses-you-have-to-invest-more-but-thats-counterintuitive-for-a-lot-of-businesses"
-+++
-The biggest challenge is that when people look at low price point products, they essentially invest less money in development, innovation, and new technology. And in order to innovate at a lower price point, and make sustainability attainable to the masses, you have to invest more. But that's counterintuitive for a lot of businesses.

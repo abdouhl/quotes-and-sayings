@@ -1,7 +1,0 @@
-+++
-author = "Yuval Noah Harari"
-title = "Our bodies and minds evolved and were adapted for hundreds of thousands of years for tasks like climbing a tree and picking apples, or hunting rabbits, or looking for mushrooms in the forest. They were not adapted to the very gruelling work that is involved in field work - ploughing, harvesting, bringing water, digging weeds - things like that."
-description = "the best Yuval Noah Harari Quote: Our bodies and minds evolved and were adapted for hundreds of thousands of years for tasks like climbing a tree and picking apples, or hunting rabbits, or looking for mushrooms in the forest. They were not adapted to the very gruelling work that is involved in field work - ploughing, harvesting, bringing water, digging weeds - things like that."
-slug = "our-bodies-and-minds-evolved-and-were-adapted-for-hundreds-of-thousands-of-years-for-tasks-like-climbing-a-tree-and-picking-apples-or-hunting-rabbits-or-looking-for-mushrooms-in-the-forest-they-were-not-adapted-to-the-very-gruelling-work-that-is-involved-in-field-work---ploughing-harvesting-bringing-water-digging-weeds---things-like-that"
-+++
-Our bodies and minds evolved and were adapted for hundreds of thousands of years for tasks like climbing a tree and picking apples, or hunting rabbits, or looking for mushrooms in the forest. They were not adapted to the very gruelling work that is involved in field work - ploughing, harvesting, bringing water, digging weeds - things like that.

@@ -1,7 +1,0 @@
-+++
-author = "Yara Shahidi"
-title = "There have been moments when I was on a modeling job, and it was the most fantastic thing in the world. And there have been moments where I've realized, 'Okay, I'm ten years old, and I've spent the past six hours outside in the rain.' It taught me how to be specific about what kinds of projects I wanted to do and what kind of work I wanted to do."
-description = "the best Yara Shahidi Quote: There have been moments when I was on a modeling job, and it was the most fantastic thing in the world. And there have been moments where I've realized, 'Okay, I'm ten years old, and I've spent the past six hours outside in the rain.' It taught me how to be specific about what kinds of projects I wanted to do and what kind of work I wanted to do."
-slug = "there-have-been-moments-when-i-was-on-a-modeling-job-and-it-was-the-most-fantastic-thing-in-the-world-and-there-have-been-moments-where-ive-realized-okay-im-ten-years-old-and-ive-spent-the-past-six-hours-outside-in-the-rain-it-taught-me-how-to-be-specific-about-what-kinds-of-projects-i-wanted-to-do-and-what-kind-of-work-i-wanted-to-do"
-+++
-There have been moments when I was on a modeling job, and it was the most fantastic thing in the world. And there have been moments where I've realized, 'Okay, I'm ten years old, and I've spent the past six hours outside in the rain.' It taught me how to be specific about what kinds of projects I wanted to do and what kind of work I wanted to do.

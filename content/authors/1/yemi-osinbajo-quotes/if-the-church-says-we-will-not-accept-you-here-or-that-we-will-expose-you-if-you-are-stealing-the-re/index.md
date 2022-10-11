@@ -1,7 +1,0 @@
-+++
-author = "Yemi Osinbajo"
-title = "If the church says we will not accept you here or that we will expose you if you are stealing the resources of the country or stealing the resources of a private company or other establishment, where you work, then we would not have the type of problem that we have in this country. If only the church does so - just the church."
-description = "the best Yemi Osinbajo Quote: If the church says we will not accept you here or that we will expose you if you are stealing the resources of the country or stealing the resources of a private company or other establishment, where you work, then we would not have the type of problem that we have in this country. If only the church does so - just the church."
-slug = "if-the-church-says-we-will-not-accept-you-here-or-that-we-will-expose-you-if-you-are-stealing-the-resources-of-the-country-or-stealing-the-resources-of-a-private-company-or-other-establishment-where-you-work-then-we-would-not-have-the-type-of-problem-that-we-have-in-this-country-if-only-the-church-does-so---just-the-church"
-+++
-If the church says we will not accept you here or that we will expose you if you are stealing the resources of the country or stealing the resources of a private company or other establishment, where you work, then we would not have the type of problem that we have in this country. If only the church does so - just the church.

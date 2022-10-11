@@ -1,7 +1,0 @@
-+++
-author = "Yorgos Lanthimos"
-title = "All of us have been through relationships; there have been periods of time when we've been single. It's something that everyone experiences. It's a matter of making that observation and then start to ask questions about it: Why is it like that? And why do we feel that? And why are we organized this way? Isn't there any other way?"
-description = "the best Yorgos Lanthimos Quote: All of us have been through relationships; there have been periods of time when we've been single. It's something that everyone experiences. It's a matter of making that observation and then start to ask questions about it: Why is it like that? And why do we feel that? And why are we organized this way? Isn't there any other way?"
-slug = "all-of-us-have-been-through-relationships-there-have-been-periods-of-time-when-weve-been-single-its-something-that-everyone-experiences-its-a-matter-of-making-that-observation-and-then-start-to-ask-questions-about-it:-why-is-it-like-that?-and-why-do-we-feel-that?-and-why-are-we-organized-this-way?-isnt-there-any-other-way?"
-+++
-All of us have been through relationships; there have been periods of time when we've been single. It's something that everyone experiences. It's a matter of making that observation and then start to ask questions about it: Why is it like that? And why do we feel that? And why are we organized this way? Isn't there any other way?

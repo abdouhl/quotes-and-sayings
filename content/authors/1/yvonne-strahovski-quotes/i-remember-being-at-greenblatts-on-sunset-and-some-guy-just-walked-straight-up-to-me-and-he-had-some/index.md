@@ -1,7 +1,0 @@
-+++
-author = "Yvonne Strahovski"
-title = "I remember being at Greenblatt's on Sunset, and some guy just walked straight up to me, and he had some bling on and whatever, and said something about a party down in Malibu and asked if I would jump in his car and go to the party. All I could think was, 'Who are you? I don't know you, and I don't care about how good your car is.'"
-description = "the best Yvonne Strahovski Quote: I remember being at Greenblatt's on Sunset, and some guy just walked straight up to me, and he had some bling on and whatever, and said something about a party down in Malibu and asked if I would jump in his car and go to the party. All I could think was, 'Who are you? I don't know you, and I don't care about how good your car is.'"
-slug = "i-remember-being-at-greenblatts-on-sunset-and-some-guy-just-walked-straight-up-to-me-and-he-had-some-bling-on-and-whatever-and-said-something-about-a-party-down-in-malibu-and-asked-if-i-would-jump-in-his-car-and-go-to-the-party-all-i-could-think-was-who-are-you?-i-dont-know-you-and-i-dont-care-about-how-good-your-car-is"
-+++
-I remember being at Greenblatt's on Sunset, and some guy just walked straight up to me, and he had some bling on and whatever, and said something about a party down in Malibu and asked if I would jump in his car and go to the party. All I could think was, 'Who are you? I don't know you, and I don't care about how good your car is.'

@@ -1,7 +1,0 @@
-+++
-author = "Yael Cohen"
-title = "Our parents, loved ones, and friends are getting cancer. So we need to know how to care for them, support them, and understand what the hell is going on. I don't think it's that hard to reach them: you have to go where they are - online. You have to speak their language - humour, wit, and edge. And you have to be honest, authentic and bold."
-description = "the best Yael Cohen Quote: Our parents, loved ones, and friends are getting cancer. So we need to know how to care for them, support them, and understand what the hell is going on. I don't think it's that hard to reach them: you have to go where they are - online. You have to speak their language - humour, wit, and edge. And you have to be honest, authentic and bold."
-slug = "our-parents-loved-ones-and-friends-are-getting-cancer-so-we-need-to-know-how-to-care-for-them-support-them-and-understand-what-the-hell-is-going-on-i-dont-think-its-that-hard-to-reach-them:-you-have-to-go-where-they-are---online-you-have-to-speak-their-language---humour-wit-and-edge-and-you-have-to-be-honest-authentic-and-bold"
-+++
-Our parents, loved ones, and friends are getting cancer. So we need to know how to care for them, support them, and understand what the hell is going on. I don't think it's that hard to reach them: you have to go where they are - online. You have to speak their language - humour, wit, and edge. And you have to be honest, authentic and bold.

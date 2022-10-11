@@ -1,7 +1,0 @@
-+++
-author = "Yayoi Kusama"
-title = "With just one polka dot, nothing can be achieved. In the universe, there is the sun, the moon, the earth, and hundreds of millions of stars. All of us live in the unfathomable mystery and infinitude of the universe. Pursuing 'philosophy of the universe' through art under such circumstances has led me to what I call 'stereotypical repetition.'"
-description = "the best Yayoi Kusama Quote: With just one polka dot, nothing can be achieved. In the universe, there is the sun, the moon, the earth, and hundreds of millions of stars. All of us live in the unfathomable mystery and infinitude of the universe. Pursuing 'philosophy of the universe' through art under such circumstances has led me to what I call 'stereotypical repetition.'"
-slug = "with-just-one-polka-dot-nothing-can-be-achieved-in-the-universe-there-is-the-sun-the-moon-the-earth-and-hundreds-of-millions-of-stars-all-of-us-live-in-the-unfathomable-mystery-and-infinitude-of-the-universe-pursuing-philosophy-of-the-universe-through-art-under-such-circumstances-has-led-me-to-what-i-call-stereotypical-repetition"
-+++
-With just one polka dot, nothing can be achieved. In the universe, there is the sun, the moon, the earth, and hundreds of millions of stars. All of us live in the unfathomable mystery and infinitude of the universe. Pursuing 'philosophy of the universe' through art under such circumstances has led me to what I call 'stereotypical repetition.'

@@ -1,7 +1,0 @@
-+++
-author = "Yung Lean"
-title = "I think you shouldn't get my music confused with who I am or who we are, because Yung Lean, from the beginning, is like a character created by me. Yung Lean was everything that Jonatan wasn't. And so me, as a person, and my views on things are certainly different than Yung Lean's views, so you should definitely not get those two mixed up."
-description = "the best Yung Lean Quote: I think you shouldn't get my music confused with who I am or who we are, because Yung Lean, from the beginning, is like a character created by me. Yung Lean was everything that Jonatan wasn't. And so me, as a person, and my views on things are certainly different than Yung Lean's views, so you should definitely not get those two mixed up."
-slug = "i-think-you-shouldnt-get-my-music-confused-with-who-i-am-or-who-we-are-because-yung-lean-from-the-beginning-is-like-a-character-created-by-me-yung-lean-was-everything-that-jonatan-wasnt-and-so-me-as-a-person-and-my-views-on-things-are-certainly-different-than-yung-leans-views-so-you-should-definitely-not-get-those-two-mixed-up"
-+++
-I think you shouldn't get my music confused with who I am or who we are, because Yung Lean, from the beginning, is like a character created by me. Yung Lean was everything that Jonatan wasn't. And so me, as a person, and my views on things are certainly different than Yung Lean's views, so you should definitely not get those two mixed up.
