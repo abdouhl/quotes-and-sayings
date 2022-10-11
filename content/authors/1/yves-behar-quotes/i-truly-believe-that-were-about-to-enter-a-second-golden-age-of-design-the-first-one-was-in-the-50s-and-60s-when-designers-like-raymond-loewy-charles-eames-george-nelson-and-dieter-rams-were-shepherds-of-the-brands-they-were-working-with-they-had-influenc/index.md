@@ -1,7 +1,0 @@
-+++
-author = "Yves Behar"
-title = "I truly believe that we're about to enter a second golden age of design. The first one was in the '50s and '60s, when designers like Raymond Loewy, Charles Eames, George Nelson and Dieter Rams were shepherds of the brands they were working with. They had influence over the products and how companies communicated and promoted themselves."
-description = "the best Yves Behar Quote: I truly believe that we're about to enter a second golden age of design. The first one was in the '50s and '60s, when designers like Raymond Loewy, Charles Eames, George Nelson and Dieter Rams were shepherds of the brands they were working with. They had influence over the products and how companies communicated and promoted themselves."
-slug = "i-truly-believe-that-were-about-to-enter-a-second-golden-age-of-design-the-first-one-was-in-the-50s-and-60s-when-designers-like-raymond-loewy-charles-eames-george-nelson-and-dieter-rams-were-shepherds-of-the-brands-they-were-working-with-they-had-influence-over-the-products-and-how-companies-communicated-and-promoted-themselves"
-+++
-I truly believe that we're about to enter a second golden age of design. The first one was in the '50s and '60s, when designers like Raymond Loewy, Charles Eames, George Nelson and Dieter Rams were shepherds of the brands they were working with. They had influence over the products and how companies communicated and promoted themselves.

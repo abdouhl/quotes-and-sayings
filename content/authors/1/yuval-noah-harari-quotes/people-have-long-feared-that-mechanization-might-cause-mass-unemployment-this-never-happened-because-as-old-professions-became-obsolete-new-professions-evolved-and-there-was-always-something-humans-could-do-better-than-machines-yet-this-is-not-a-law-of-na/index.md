@@ -1,7 +1,0 @@
-+++
-author = "Yuval Noah Harari"
-title = "People have long feared that mechanization might cause mass unemployment. This never happened because, as old professions became obsolete, new professions evolved, and there was always something humans could do better than machines. Yet this is not a law of nature, and nothing guarantees it will continue to be like that in the future."
-description = "the best Yuval Noah Harari Quote: People have long feared that mechanization might cause mass unemployment. This never happened because, as old professions became obsolete, new professions evolved, and there was always something humans could do better than machines. Yet this is not a law of nature, and nothing guarantees it will continue to be like that in the future."
-slug = "people-have-long-feared-that-mechanization-might-cause-mass-unemployment-this-never-happened-because-as-old-professions-became-obsolete-new-professions-evolved-and-there-was-always-something-humans-could-do-better-than-machines-yet-this-is-not-a-law-of-nature-and-nothing-guarantees-it-will-continue-to-be-like-that-in-the-future"
-+++
-People have long feared that mechanization might cause mass unemployment. This never happened because, as old professions became obsolete, new professions evolved, and there was always something humans could do better than machines. Yet this is not a law of nature, and nothing guarantees it will continue to be like that in the future.

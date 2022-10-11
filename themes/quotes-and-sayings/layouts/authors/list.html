@@ -1,0 +1,30 @@
+<!DOCTYPE html>
+<html lang="en">
+<head>
+  <meta charset="UTF-8">
+  <meta http-equiv="X-UA-Compatible" content="IE=edge">
+  <meta name="viewport" content="width=device-width, initial-scale=1.0">
+  <title>authors</title>
+</head>
+<body>
+<h1>{{ .Title }}</h1>
+{{ $num := 0 }}
+{{- range .Pages -}}
+{{ $num = (add $num (len .Pages)) }}
+
+{{- end -}}
+num:  {{ $num }}
+  <ul>
+      {{- range .Pages -}}
+        
+      {{- range .Pages -}}
+        <li>
+  <a class="title" href="{{ .Params.externalLink | default .RelPermalink }}">{{ .Title }}</a>
+  
+</li>
+      {{- end -}}
+
+      {{- end -}}
+    </ul>
+</body>
+</html>

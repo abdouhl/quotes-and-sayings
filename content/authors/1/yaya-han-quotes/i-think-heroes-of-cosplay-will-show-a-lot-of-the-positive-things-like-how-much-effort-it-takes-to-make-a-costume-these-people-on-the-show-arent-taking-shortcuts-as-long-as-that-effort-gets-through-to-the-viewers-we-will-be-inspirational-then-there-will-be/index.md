@@ -1,7 +1,0 @@
-+++
-author = "Yaya Han"
-title = "I think 'Heroes of Cosplay' will show a lot of the positive things, like how much effort it takes to make a costume. These people on the show aren't taking shortcuts. As long as that effort gets through to the viewers, we will be inspirational. Then there will be people who watch the show that want to get in and hands-on make outfits."
-description = "the best Yaya Han Quote: I think 'Heroes of Cosplay' will show a lot of the positive things, like how much effort it takes to make a costume. These people on the show aren't taking shortcuts. As long as that effort gets through to the viewers, we will be inspirational. Then there will be people who watch the show that want to get in and hands-on make outfits."
-slug = "i-think-heroes-of-cosplay-will-show-a-lot-of-the-positive-things-like-how-much-effort-it-takes-to-make-a-costume-these-people-on-the-show-arent-taking-shortcuts-as-long-as-that-effort-gets-through-to-the-viewers-we-will-be-inspirational-then-there-will-be-people-who-watch-the-show-that-want-to-get-in-and-hands-on-make-outfits"
-+++
-I think 'Heroes of Cosplay' will show a lot of the positive things, like how much effort it takes to make a costume. These people on the show aren't taking shortcuts. As long as that effort gets through to the viewers, we will be inspirational. Then there will be people who watch the show that want to get in and hands-on make outfits.

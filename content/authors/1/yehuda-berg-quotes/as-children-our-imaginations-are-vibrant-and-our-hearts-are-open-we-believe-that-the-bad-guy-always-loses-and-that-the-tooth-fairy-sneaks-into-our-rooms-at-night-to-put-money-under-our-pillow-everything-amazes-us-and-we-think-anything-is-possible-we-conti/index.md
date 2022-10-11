@@ -1,7 +1,0 @@
-+++
-author = "Yehuda Berg"
-title = "As children, our imaginations are vibrant, and our hearts are open. We believe that the bad guy always loses and that the tooth fairy sneaks into our rooms at night to put money under our pillow. Everything amazes us, and we think anything is possible. We continuously experience life with a sense of newness and unbridled curiosity."
-description = "the best Yehuda Berg Quote: As children, our imaginations are vibrant, and our hearts are open. We believe that the bad guy always loses and that the tooth fairy sneaks into our rooms at night to put money under our pillow. Everything amazes us, and we think anything is possible. We continuously experience life with a sense of newness and unbridled curiosity."
-slug = "as-children-our-imaginations-are-vibrant-and-our-hearts-are-open-we-believe-that-the-bad-guy-always-loses-and-that-the-tooth-fairy-sneaks-into-our-rooms-at-night-to-put-money-under-our-pillow-everything-amazes-us-and-we-think-anything-is-possible-we-continuously-experience-life-with-a-sense-of-newness-and-unbridled-curiosity"
-+++
-As children, our imaginations are vibrant, and our hearts are open. We believe that the bad guy always loses and that the tooth fairy sneaks into our rooms at night to put money under our pillow. Everything amazes us, and we think anything is possible. We continuously experience life with a sense of newness and unbridled curiosity.

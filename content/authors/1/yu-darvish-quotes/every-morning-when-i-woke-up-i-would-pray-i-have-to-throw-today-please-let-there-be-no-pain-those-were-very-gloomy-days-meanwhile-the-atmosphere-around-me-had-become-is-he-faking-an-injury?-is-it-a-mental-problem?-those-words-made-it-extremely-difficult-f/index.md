@@ -1,7 +1,0 @@
-+++
-author = "Yu Darvish"
-title = "Every morning when I woke up, I would pray, 'I have to throw today, please let there be no pain.' Those were very gloomy days. Meanwhile, the atmosphere around me had become, 'Is he faking an injury?' 'Is it a mental problem?' Those words made it extremely difficult for me to stop and rest, and it really took a toll on me emotionally."
-description = "the best Yu Darvish Quote: Every morning when I woke up, I would pray, 'I have to throw today, please let there be no pain.' Those were very gloomy days. Meanwhile, the atmosphere around me had become, 'Is he faking an injury?' 'Is it a mental problem?' Those words made it extremely difficult for me to stop and rest, and it really took a toll on me emotionally."
-slug = "every-morning-when-i-woke-up-i-would-pray-i-have-to-throw-today-please-let-there-be-no-pain-those-were-very-gloomy-days-meanwhile-the-atmosphere-around-me-had-become-is-he-faking-an-injury?-is-it-a-mental-problem?-those-words-made-it-extremely-difficult-for-me-to-stop-and-rest-and-it-really-took-a-toll-on-me-emotionally"
-+++
-Every morning when I woke up, I would pray, 'I have to throw today, please let there be no pain.' Those were very gloomy days. Meanwhile, the atmosphere around me had become, 'Is he faking an injury?' 'Is it a mental problem?' Those words made it extremely difficult for me to stop and rest, and it really took a toll on me emotionally.

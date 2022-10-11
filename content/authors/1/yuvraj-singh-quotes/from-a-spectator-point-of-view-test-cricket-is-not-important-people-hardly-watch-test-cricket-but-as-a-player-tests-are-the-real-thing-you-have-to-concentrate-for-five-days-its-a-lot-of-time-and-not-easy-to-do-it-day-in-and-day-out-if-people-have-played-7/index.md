@@ -1,7 +1,0 @@
-+++
-author = "Yuvraj Singh"
-title = "From a spectator point of view, Test cricket is not important; people hardly watch Test cricket. But as a player, Tests are the real thing. You have to concentrate for five days. It's a lot of time, and not easy to do it day in and day out. If people have played 70-100 Tests, it's a lot of cricket, a lot of concentration and dedication."
-description = "the best Yuvraj Singh Quote: From a spectator point of view, Test cricket is not important; people hardly watch Test cricket. But as a player, Tests are the real thing. You have to concentrate for five days. It's a lot of time, and not easy to do it day in and day out. If people have played 70-100 Tests, it's a lot of cricket, a lot of concentration and dedication."
-slug = "from-a-spectator-point-of-view-test-cricket-is-not-important-people-hardly-watch-test-cricket-but-as-a-player-tests-are-the-real-thing-you-have-to-concentrate-for-five-days-its-a-lot-of-time-and-not-easy-to-do-it-day-in-and-day-out-if-people-have-played-70-100-tests-its-a-lot-of-cricket-a-lot-of-concentration-and-dedication"
-+++
-From a spectator point of view, Test cricket is not important; people hardly watch Test cricket. But as a player, Tests are the real thing. You have to concentrate for five days. It's a lot of time, and not easy to do it day in and day out. If people have played 70-100 Tests, it's a lot of cricket, a lot of concentration and dedication.

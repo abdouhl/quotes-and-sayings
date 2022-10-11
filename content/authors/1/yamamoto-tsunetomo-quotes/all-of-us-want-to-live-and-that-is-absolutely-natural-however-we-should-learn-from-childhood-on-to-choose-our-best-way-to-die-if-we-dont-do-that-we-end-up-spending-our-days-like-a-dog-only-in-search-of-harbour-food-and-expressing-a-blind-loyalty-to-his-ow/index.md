@@ -1,7 +1,0 @@
-+++
-author = "Yamamoto Tsunetomo"
-title = "All of us want to live, and that is absolutely natural. However, we should learn from childhood on to choose our best way to die. If we don't do that, we end up spending our days like a dog, only in search of harbour, food and expressing a blind loyalty to his owner in return. That isn't enough to make our lives have a meaning."
-description = "the best Yamamoto Tsunetomo Quote: All of us want to live, and that is absolutely natural. However, we should learn from childhood on to choose our best way to die. If we don't do that, we end up spending our days like a dog, only in search of harbour, food and expressing a blind loyalty to his owner in return. That isn't enough to make our lives have a meaning."
-slug = "all-of-us-want-to-live-and-that-is-absolutely-natural-however-we-should-learn-from-childhood-on-to-choose-our-best-way-to-die-if-we-dont-do-that-we-end-up-spending-our-days-like-a-dog-only-in-search-of-harbour-food-and-expressing-a-blind-loyalty-to-his-owner-in-return-that-isnt-enough-to-make-our-lives-have-a-meaning"
-+++
-All of us want to live, and that is absolutely natural. However, we should learn from childhood on to choose our best way to die. If we don't do that, we end up spending our days like a dog, only in search of harbour, food and expressing a blind loyalty to his owner in return. That isn't enough to make our lives have a meaning.

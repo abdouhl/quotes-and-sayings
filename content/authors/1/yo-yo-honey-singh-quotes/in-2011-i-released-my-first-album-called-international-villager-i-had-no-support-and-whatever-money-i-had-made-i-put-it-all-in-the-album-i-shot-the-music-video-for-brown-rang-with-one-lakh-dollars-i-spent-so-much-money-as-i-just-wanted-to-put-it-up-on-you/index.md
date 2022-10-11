@@ -1,7 +1,0 @@
-+++
-author = "Yo Yo Honey Singh"
-title = "In 2011, I released my first album called 'International Villager.' I had no support, and whatever money I had made, I put it all in the album. I shot the music video for 'Brown Rang' with one lakh dollars. I spent so much money, as I just wanted to put it up on YouTube, as I knew that my market was there, and it became a huge hit."
-description = "the best Yo Yo Honey Singh Quote: In 2011, I released my first album called 'International Villager.' I had no support, and whatever money I had made, I put it all in the album. I shot the music video for 'Brown Rang' with one lakh dollars. I spent so much money, as I just wanted to put it up on YouTube, as I knew that my market was there, and it became a huge hit."
-slug = "in-2011-i-released-my-first-album-called-international-villager-i-had-no-support-and-whatever-money-i-had-made-i-put-it-all-in-the-album-i-shot-the-music-video-for-brown-rang-with-one-lakh-dollars-i-spent-so-much-money-as-i-just-wanted-to-put-it-up-on-youtube-as-i-knew-that-my-market-was-there-and-it-became-a-huge-hit"
-+++
-In 2011, I released my first album called 'International Villager.' I had no support, and whatever money I had made, I put it all in the album. I shot the music video for 'Brown Rang' with one lakh dollars. I spent so much money, as I just wanted to put it up on YouTube, as I knew that my market was there, and it became a huge hit.

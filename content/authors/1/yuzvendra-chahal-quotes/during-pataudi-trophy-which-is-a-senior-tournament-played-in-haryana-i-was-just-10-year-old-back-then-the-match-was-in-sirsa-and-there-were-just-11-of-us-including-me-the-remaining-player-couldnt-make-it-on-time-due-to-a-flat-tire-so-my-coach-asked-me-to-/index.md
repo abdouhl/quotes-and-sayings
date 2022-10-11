@@ -1,7 +1,0 @@
-+++
-author = "Yuzvendra Chahal"
-title = "During Pataudi Trophy, which is a senior tournament played in Haryana, I was just 10-year-old back then, the match was in Sirsa, and there were just 11 of us, including me. The remaining player couldn't make it on time due to a flat tire, so my coach asked me to play the match. You know, I was the only 10-year-old among those senior players."
-description = "the best Yuzvendra Chahal Quote: During Pataudi Trophy, which is a senior tournament played in Haryana, I was just 10-year-old back then, the match was in Sirsa, and there were just 11 of us, including me. The remaining player couldn't make it on time due to a flat tire, so my coach asked me to play the match. You know, I was the only 10-year-old among those senior players."
-slug = "during-pataudi-trophy-which-is-a-senior-tournament-played-in-haryana-i-was-just-10-year-old-back-then-the-match-was-in-sirsa-and-there-were-just-11-of-us-including-me-the-remaining-player-couldnt-make-it-on-time-due-to-a-flat-tire-so-my-coach-asked-me-to-play-the-match-you-know-i-was-the-only-10-year-old-among-those-senior-players"
-+++
-During Pataudi Trophy, which is a senior tournament played in Haryana, I was just 10-year-old back then, the match was in Sirsa, and there were just 11 of us, including me. The remaining player couldn't make it on time due to a flat tire, so my coach asked me to play the match. You know, I was the only 10-year-old among those senior players.

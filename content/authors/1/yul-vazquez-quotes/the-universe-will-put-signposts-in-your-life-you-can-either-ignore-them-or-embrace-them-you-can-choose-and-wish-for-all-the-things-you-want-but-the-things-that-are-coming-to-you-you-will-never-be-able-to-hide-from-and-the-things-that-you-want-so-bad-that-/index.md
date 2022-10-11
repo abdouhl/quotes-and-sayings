@@ -1,7 +1,0 @@
-+++
-author = "Yul Vazquez"
-title = "The universe will put signposts in your life. You can either ignore them or embrace them. You can choose and wish for all the things you want, but the things that are coming to you, you will never be able to hide from and the things that you want so bad that are not supposed to be for you for whatever reason, they'll never come to you."
-description = "the best Yul Vazquez Quote: The universe will put signposts in your life. You can either ignore them or embrace them. You can choose and wish for all the things you want, but the things that are coming to you, you will never be able to hide from and the things that you want so bad that are not supposed to be for you for whatever reason, they'll never come to you."
-slug = "the-universe-will-put-signposts-in-your-life-you-can-either-ignore-them-or-embrace-them-you-can-choose-and-wish-for-all-the-things-you-want-but-the-things-that-are-coming-to-you-you-will-never-be-able-to-hide-from-and-the-things-that-you-want-so-bad-that-are-not-supposed-to-be-for-you-for-whatever-reason-theyll-never-come-to-you"
-+++
-The universe will put signposts in your life. You can either ignore them or embrace them. You can choose and wish for all the things you want, but the things that are coming to you, you will never be able to hide from and the things that you want so bad that are not supposed to be for you for whatever reason, they'll never come to you.

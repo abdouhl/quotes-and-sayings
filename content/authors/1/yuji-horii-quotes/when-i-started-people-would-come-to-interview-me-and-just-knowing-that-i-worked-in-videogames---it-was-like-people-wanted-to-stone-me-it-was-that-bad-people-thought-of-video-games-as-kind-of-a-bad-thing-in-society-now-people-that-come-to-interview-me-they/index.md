@@ -1,7 +1,0 @@
-+++
-author = "Yuji Horii"
-title = "When I started, people would come to interview me, and just knowing that I worked in videogames - it was like people wanted to stone me, it was that bad. People thought of video games as kind of a bad thing in society. Now, people that come to interview me, they have grown up with video games, and they know what they are; they've experienced it."
-description = "the best Yuji Horii Quote: When I started, people would come to interview me, and just knowing that I worked in videogames - it was like people wanted to stone me, it was that bad. People thought of video games as kind of a bad thing in society. Now, people that come to interview me, they have grown up with video games, and they know what they are; they've experienced it."
-slug = "when-i-started-people-would-come-to-interview-me-and-just-knowing-that-i-worked-in-videogames---it-was-like-people-wanted-to-stone-me-it-was-that-bad-people-thought-of-video-games-as-kind-of-a-bad-thing-in-society-now-people-that-come-to-interview-me-they-have-grown-up-with-video-games-and-they-know-what-they-are-theyve-experienced-it"
-+++
-When I started, people would come to interview me, and just knowing that I worked in videogames - it was like people wanted to stone me, it was that bad. People thought of video games as kind of a bad thing in society. Now, people that come to interview me, they have grown up with video games, and they know what they are; they've experienced it.

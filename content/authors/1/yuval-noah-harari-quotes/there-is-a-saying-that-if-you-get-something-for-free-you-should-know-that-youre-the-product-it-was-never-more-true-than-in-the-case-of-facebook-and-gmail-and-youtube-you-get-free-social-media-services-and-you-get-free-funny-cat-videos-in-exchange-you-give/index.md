@@ -1,7 +1,0 @@
-+++
-author = "Yuval Noah Harari"
-title = "There is a saying that if you get something for free, you should know that you're the product. It was never more true than in the case of Facebook and Gmail and YouTube. You get free social-media services, and you get free funny cat videos. In exchange, you give up the most valuable asset you have, which is your personal data."
-description = "the best Yuval Noah Harari Quote: There is a saying that if you get something for free, you should know that you're the product. It was never more true than in the case of Facebook and Gmail and YouTube. You get free social-media services, and you get free funny cat videos. In exchange, you give up the most valuable asset you have, which is your personal data."
-slug = "there-is-a-saying-that-if-you-get-something-for-free-you-should-know-that-youre-the-product-it-was-never-more-true-than-in-the-case-of-facebook-and-gmail-and-youtube-you-get-free-social-media-services-and-you-get-free-funny-cat-videos-in-exchange-you-give-up-the-most-valuable-asset-you-have-which-is-your-personal-data"
-+++
-There is a saying that if you get something for free, you should know that you're the product. It was never more true than in the case of Facebook and Gmail and YouTube. You get free social-media services, and you get free funny cat videos. In exchange, you give up the most valuable asset you have, which is your personal data.

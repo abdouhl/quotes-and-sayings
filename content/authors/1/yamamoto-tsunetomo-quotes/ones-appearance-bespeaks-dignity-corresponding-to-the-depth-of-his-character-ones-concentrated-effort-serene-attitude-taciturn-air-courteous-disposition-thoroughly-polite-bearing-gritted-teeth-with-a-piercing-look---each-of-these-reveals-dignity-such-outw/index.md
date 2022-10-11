@@ -1,7 +1,0 @@
-+++
-author = "Yamamoto Tsunetomo"
-title = "One's appearance bespeaks dignity corresponding to the depth of his character. One's concentrated effort, serene attitude, taciturn air, courteous disposition, thoroughly polite bearing, gritted teeth with a piercing look - each of these reveals dignity. Such outward appearance, in short, comes from constant attentiveness and seriousness."
-description = "the best Yamamoto Tsunetomo Quote: One's appearance bespeaks dignity corresponding to the depth of his character. One's concentrated effort, serene attitude, taciturn air, courteous disposition, thoroughly polite bearing, gritted teeth with a piercing look - each of these reveals dignity. Such outward appearance, in short, comes from constant attentiveness and seriousness."
-slug = "ones-appearance-bespeaks-dignity-corresponding-to-the-depth-of-his-character-ones-concentrated-effort-serene-attitude-taciturn-air-courteous-disposition-thoroughly-polite-bearing-gritted-teeth-with-a-piercing-look---each-of-these-reveals-dignity-such-outward-appearance-in-short-comes-from-constant-attentiveness-and-seriousness"
-+++
-One's appearance bespeaks dignity corresponding to the depth of his character. One's concentrated effort, serene attitude, taciturn air, courteous disposition, thoroughly polite bearing, gritted teeth with a piercing look - each of these reveals dignity. Such outward appearance, in short, comes from constant attentiveness and seriousness.

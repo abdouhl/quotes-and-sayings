@@ -1,7 +1,0 @@
-+++
-author = "Yusef Komunyakaa"
-title = "I originally wanted to embrace the imagery and forthrightness of rap music. There are some interesting, dynamic voices in rap. But I find most of it irresponsible in its overt violence and commercialization of anger. As artists, we believe we can will action through language. If that's the case, we have to take responsibility for what we say."
-description = "the best Yusef Komunyakaa Quote: I originally wanted to embrace the imagery and forthrightness of rap music. There are some interesting, dynamic voices in rap. But I find most of it irresponsible in its overt violence and commercialization of anger. As artists, we believe we can will action through language. If that's the case, we have to take responsibility for what we say."
-slug = "i-originally-wanted-to-embrace-the-imagery-and-forthrightness-of-rap-music-there-are-some-interesting-dynamic-voices-in-rap-but-i-find-most-of-it-irresponsible-in-its-overt-violence-and-commercialization-of-anger-as-artists-we-believe-we-can-will-action-through-language-if-thats-the-case-we-have-to-take-responsibility-for-what-we-say"
-+++
-I originally wanted to embrace the imagery and forthrightness of rap music. There are some interesting, dynamic voices in rap. But I find most of it irresponsible in its overt violence and commercialization of anger. As artists, we believe we can will action through language. If that's the case, we have to take responsibility for what we say.
