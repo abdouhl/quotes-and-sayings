@@ -1,0 +1,7 @@
++++
+author = "Yuval Noah Harari"
+title = "You take fantasies, which for thousands of years belonged to the religious realm - overcoming death or our merging with the universe - and you suddenly start talking about them in a more technical perspective as something that can be achieved, not after you die with the help of supernatural beings, but in this very life with the help of technology."
+description = "the best Yuval Noah Harari Quote: You take fantasies, which for thousands of years belonged to the religious realm - overcoming death or our merging with the universe - and you suddenly start talking about them in a more technical perspective as something that can be achieved, not after you die with the help of supernatural beings, but in this very life with the help of technology."
+slug = "you-take-fantasies-which-for-thousands-of-years-belonged-to-the-religious-realm---overcoming-death-or-our-merging-with-the-universe---and-you-suddenly-start-talking-about-them-in-a-more-technical-perspective-as-something-that-can-be-achieved-not-after-you-die-with-the-help-of-supernatural-beings-but-in-this-very-life-with-the-help-of-technology"
++++
+You take fantasies, which for thousands of years belonged to the religious realm - overcoming death or our merging with the universe - and you suddenly start talking about them in a more technical perspective as something that can be achieved, not after you die with the help of supernatural beings, but in this very life with the help of technology.

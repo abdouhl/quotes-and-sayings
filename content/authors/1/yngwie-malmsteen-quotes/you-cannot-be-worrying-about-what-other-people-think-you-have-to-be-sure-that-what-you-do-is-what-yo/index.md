@@ -1,0 +1,7 @@
++++
+author = "Yngwie Malmsteen"
+title = "You cannot be worrying about what other people think. You have to be sure that what you do is what you love to do, because if you love it, maybe another hundred thousand people might love it, too. Some other people might not like it, but it doesn't matter, because you have to express what you want to express. You only live once."
+description = "the best Yngwie Malmsteen Quote: You cannot be worrying about what other people think. You have to be sure that what you do is what you love to do, because if you love it, maybe another hundred thousand people might love it, too. Some other people might not like it, but it doesn't matter, because you have to express what you want to express. You only live once."
+slug = "you-cannot-be-worrying-about-what-other-people-think-you-have-to-be-sure-that-what-you-do-is-what-you-love-to-do-because-if-you-love-it-maybe-another-hundred-thousand-people-might-love-it-too-some-other-people-might-not-like-it-but-it-doesnt-matter-because-you-have-to-express-what-you-want-to-express-you-only-live-once"
++++
+You cannot be worrying about what other people think. You have to be sure that what you do is what you love to do, because if you love it, maybe another hundred thousand people might love it, too. Some other people might not like it, but it doesn't matter, because you have to express what you want to express. You only live once.

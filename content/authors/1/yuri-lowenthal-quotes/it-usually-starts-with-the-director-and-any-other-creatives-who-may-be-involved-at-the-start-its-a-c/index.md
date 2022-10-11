@@ -1,0 +1,7 @@
++++
+author = "Yuri Lowenthal"
+title = "It usually starts with the director and any other creatives who may be involved at the start. It's a collaboration. I bring what I have naturally and, hopefully, what they cast me for, and then we start playing and tweaking until we have what they feel's right. It helps to have some artwork to inspire me, but I don't always get that luxury."
+description = "the best Yuri Lowenthal Quote: It usually starts with the director and any other creatives who may be involved at the start. It's a collaboration. I bring what I have naturally and, hopefully, what they cast me for, and then we start playing and tweaking until we have what they feel's right. It helps to have some artwork to inspire me, but I don't always get that luxury."
+slug = "it-usually-starts-with-the-director-and-any-other-creatives-who-may-be-involved-at-the-start-its-a-collaboration-i-bring-what-i-have-naturally-and-hopefully-what-they-cast-me-for-and-then-we-start-playing-and-tweaking-until-we-have-what-they-feels-right-it-helps-to-have-some-artwork-to-inspire-me-but-i-dont-always-get-that-luxury"
++++
+It usually starts with the director and any other creatives who may be involved at the start. It's a collaboration. I bring what I have naturally and, hopefully, what they cast me for, and then we start playing and tweaking until we have what they feel's right. It helps to have some artwork to inspire me, but I don't always get that luxury.

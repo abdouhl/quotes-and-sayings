@@ -1,0 +1,7 @@
++++
+author = "Yusef Komunyakaa"
+title = "I define poetry as celebration and confrontation. When we witness something, are we responsible for what we witness? That's an on-going existential question. Perhaps we are and perhaps there's a kind of daring, a kind of necessary energetic questioning. Because often I say it's not what we know, it's what we can risk discovering."
+description = "the best Yusef Komunyakaa Quote: I define poetry as celebration and confrontation. When we witness something, are we responsible for what we witness? That's an on-going existential question. Perhaps we are and perhaps there's a kind of daring, a kind of necessary energetic questioning. Because often I say it's not what we know, it's what we can risk discovering."
+slug = "i-define-poetry-as-celebration-and-confrontation-when-we-witness-something-are-we-responsible-for-what-we-witness?-thats-an-on-going-existential-question-perhaps-we-are-and-perhaps-theres-a-kind-of-daring-a-kind-of-necessary-energetic-questioning-because-often-i-say-its-not-what-we-know-its-what-we-can-risk-discovering"
++++
+I define poetry as celebration and confrontation. When we witness something, are we responsible for what we witness? That's an on-going existential question. Perhaps we are and perhaps there's a kind of daring, a kind of necessary energetic questioning. Because often I say it's not what we know, it's what we can risk discovering.

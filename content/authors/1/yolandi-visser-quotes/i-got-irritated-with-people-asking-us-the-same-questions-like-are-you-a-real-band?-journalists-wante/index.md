@@ -1,0 +1,7 @@
++++
+author = "Yolandi Visser"
+title = "I got irritated with people asking us the same questions. Like, 'Are you a real band?' Journalists wanted to slay us, tried to cut us down, and I just started caring less and less about doing interviews. With Facebook and Instagram, you kind of don't need to anyway. But now and again, we'll do something when there's new information to share."
+description = "the best Yolandi Visser Quote: I got irritated with people asking us the same questions. Like, 'Are you a real band?' Journalists wanted to slay us, tried to cut us down, and I just started caring less and less about doing interviews. With Facebook and Instagram, you kind of don't need to anyway. But now and again, we'll do something when there's new information to share."
+slug = "i-got-irritated-with-people-asking-us-the-same-questions-like-are-you-a-real-band?-journalists-wanted-to-slay-us-tried-to-cut-us-down-and-i-just-started-caring-less-and-less-about-doing-interviews-with-facebook-and-instagram-you-kind-of-dont-need-to-anyway-but-now-and-again-well-do-something-when-theres-new-information-to-share"
++++
+I got irritated with people asking us the same questions. Like, 'Are you a real band?' Journalists wanted to slay us, tried to cut us down, and I just started caring less and less about doing interviews. With Facebook and Instagram, you kind of don't need to anyway. But now and again, we'll do something when there's new information to share.

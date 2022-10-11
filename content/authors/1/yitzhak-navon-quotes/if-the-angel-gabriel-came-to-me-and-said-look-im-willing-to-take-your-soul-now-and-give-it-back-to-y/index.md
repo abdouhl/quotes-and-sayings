@@ -1,0 +1,7 @@
++++
+author = "Yitzhak Navon"
+title = "If the angel Gabriel came to me and said, 'Look, I'm willing to take your soul now and give it back to you at any period of time in the history of the nation of Israel, from the very beginning to this very day' - I think I would not think of any other time except for when Moses brought down the Ten Commandments from Mount Sinai."
+description = "the best Yitzhak Navon Quote: If the angel Gabriel came to me and said, 'Look, I'm willing to take your soul now and give it back to you at any period of time in the history of the nation of Israel, from the very beginning to this very day' - I think I would not think of any other time except for when Moses brought down the Ten Commandments from Mount Sinai."
+slug = "if-the-angel-gabriel-came-to-me-and-said-look-im-willing-to-take-your-soul-now-and-give-it-back-to-you-at-any-period-of-time-in-the-history-of-the-nation-of-israel-from-the-very-beginning-to-this-very-day---i-think-i-would-not-think-of-any-other-time-except-for-when-moses-brought-down-the-ten-commandments-from-mount-sinai"
++++
+If the angel Gabriel came to me and said, 'Look, I'm willing to take your soul now and give it back to you at any period of time in the history of the nation of Israel, from the very beginning to this very day' - I think I would not think of any other time except for when Moses brought down the Ten Commandments from Mount Sinai.

@@ -1,0 +1,7 @@
++++
+author = "Yemi Osinbajo"
+title = "I want to say that this business of corruption and the fight against corruption is a very serious matter, and sometimes I'm amazed that very little is being said outside of those who are saying so in government. It's an existential matter. I don't know whether it is possible to overemphasize the point, but I think it's a very crucial matter."
+description = "the best Yemi Osinbajo Quote: I want to say that this business of corruption and the fight against corruption is a very serious matter, and sometimes I'm amazed that very little is being said outside of those who are saying so in government. It's an existential matter. I don't know whether it is possible to overemphasize the point, but I think it's a very crucial matter."
+slug = "i-want-to-say-that-this-business-of-corruption-and-the-fight-against-corruption-is-a-very-serious-matter-and-sometimes-im-amazed-that-very-little-is-being-said-outside-of-those-who-are-saying-so-in-government-its-an-existential-matter-i-dont-know-whether-it-is-possible-to-overemphasize-the-point-but-i-think-its-a-very-crucial-matter"
++++
+I want to say that this business of corruption and the fight against corruption is a very serious matter, and sometimes I'm amazed that very little is being said outside of those who are saying so in government. It's an existential matter. I don't know whether it is possible to overemphasize the point, but I think it's a very crucial matter.

@@ -1,0 +1,7 @@
++++
+author = "Yuval Noah Harari"
+title = "Every day, I absorb countless data bits through emails, phone calls, and articles; process the data; and transmit back new bits through more emails, phone calls, and articles. I don't really know where I fit into the great scheme of things and how my bits of data connect with the bits produced by billions of other humans and computers."
+description = "the best Yuval Noah Harari Quote: Every day, I absorb countless data bits through emails, phone calls, and articles; process the data; and transmit back new bits through more emails, phone calls, and articles. I don't really know where I fit into the great scheme of things and how my bits of data connect with the bits produced by billions of other humans and computers."
+slug = "every-day-i-absorb-countless-data-bits-through-emails-phone-calls-and-articles-process-the-data-and-transmit-back-new-bits-through-more-emails-phone-calls-and-articles-i-dont-really-know-where-i-fit-into-the-great-scheme-of-things-and-how-my-bits-of-data-connect-with-the-bits-produced-by-billions-of-other-humans-and-computers"
++++
+Every day, I absorb countless data bits through emails, phone calls, and articles; process the data; and transmit back new bits through more emails, phone calls, and articles. I don't really know where I fit into the great scheme of things and how my bits of data connect with the bits produced by billions of other humans and computers.

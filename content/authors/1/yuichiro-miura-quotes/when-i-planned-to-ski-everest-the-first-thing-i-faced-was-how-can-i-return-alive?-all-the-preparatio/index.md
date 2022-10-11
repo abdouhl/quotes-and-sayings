@@ -1,0 +1,7 @@
++++
+author = "Yuichiro Miura"
+title = "When I planned to ski Everest, the first thing I faced was, 'How can I return alive?' All the preparation and training was based on this question. But the more I prepared, I knew the chance of survival was very slim. Nobody in the world had done this before, so I told myself that I must face death. Otherwise, I am not eligible."
+description = "the best Yuichiro Miura Quote: When I planned to ski Everest, the first thing I faced was, 'How can I return alive?' All the preparation and training was based on this question. But the more I prepared, I knew the chance of survival was very slim. Nobody in the world had done this before, so I told myself that I must face death. Otherwise, I am not eligible."
+slug = "when-i-planned-to-ski-everest-the-first-thing-i-faced-was-how-can-i-return-alive?-all-the-preparation-and-training-was-based-on-this-question-but-the-more-i-prepared-i-knew-the-chance-of-survival-was-very-slim-nobody-in-the-world-had-done-this-before-so-i-told-myself-that-i-must-face-death-otherwise-i-am-not-eligible"
++++
+When I planned to ski Everest, the first thing I faced was, 'How can I return alive?' All the preparation and training was based on this question. But the more I prepared, I knew the chance of survival was very slim. Nobody in the world had done this before, so I told myself that I must face death. Otherwise, I am not eligible.

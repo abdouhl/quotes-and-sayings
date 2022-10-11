@@ -1,0 +1,7 @@
++++
+author = "Yngwie Malmsteen"
+title = "When the glam metal thing of the late '80s became too glammy, then instead of having two bottles of hairspray in your hair, it became better not to wash your hair at all. To me it's all trend stuff. I don't follow that stuff. I just do what I feel is the right thing. I don't know what the reason is for that. It's not fashion."
+description = "the best Yngwie Malmsteen Quote: When the glam metal thing of the late '80s became too glammy, then instead of having two bottles of hairspray in your hair, it became better not to wash your hair at all. To me it's all trend stuff. I don't follow that stuff. I just do what I feel is the right thing. I don't know what the reason is for that. It's not fashion."
+slug = "when-the-glam-metal-thing-of-the-late-80s-became-too-glammy-then-instead-of-having-two-bottles-of-hairspray-in-your-hair-it-became-better-not-to-wash-your-hair-at-all-to-me-its-all-trend-stuff-i-dont-follow-that-stuff-i-just-do-what-i-feel-is-the-right-thing-i-dont-know-what-the-reason-is-for-that-its-not-fashion"
++++
+When the glam metal thing of the late '80s became too glammy, then instead of having two bottles of hairspray in your hair, it became better not to wash your hair at all. To me it's all trend stuff. I don't follow that stuff. I just do what I feel is the right thing. I don't know what the reason is for that. It's not fashion.

@@ -1,0 +1,7 @@
++++
+author = "Yehuda Berg"
+title = "Our contribution purely depends on our consciousness and our willingness to support those in need, to show vulnerability and accept the support of others, to share without expecting the credit, to give it our all and allow our hard work to decide the outcome, to understand that control can only be achieved with a shared responsibility."
+description = "the best Yehuda Berg Quote: Our contribution purely depends on our consciousness and our willingness to support those in need, to show vulnerability and accept the support of others, to share without expecting the credit, to give it our all and allow our hard work to decide the outcome, to understand that control can only be achieved with a shared responsibility."
+slug = "our-contribution-purely-depends-on-our-consciousness-and-our-willingness-to-support-those-in-need-to-show-vulnerability-and-accept-the-support-of-others-to-share-without-expecting-the-credit-to-give-it-our-all-and-allow-our-hard-work-to-decide-the-outcome-to-understand-that-control-can-only-be-achieved-with-a-shared-responsibility"
++++
+Our contribution purely depends on our consciousness and our willingness to support those in need, to show vulnerability and accept the support of others, to share without expecting the credit, to give it our all and allow our hard work to decide the outcome, to understand that control can only be achieved with a shared responsibility.

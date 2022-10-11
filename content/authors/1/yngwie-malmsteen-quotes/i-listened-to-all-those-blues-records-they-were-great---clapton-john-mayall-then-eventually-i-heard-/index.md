@@ -1,0 +1,7 @@
++++
+author = "Yngwie Malmsteen"
+title = "I listened to all those blues records. They were great - Clapton, John Mayall. Then eventually I heard Genesis with Peter Gabriel, and I didn't really understand the difference then, but something struck me about the inversions and the diminished chords... they weren't as bluesy, and I loved it. I found out, that was very baroque-influenced."
+description = "the best Yngwie Malmsteen Quote: I listened to all those blues records. They were great - Clapton, John Mayall. Then eventually I heard Genesis with Peter Gabriel, and I didn't really understand the difference then, but something struck me about the inversions and the diminished chords... they weren't as bluesy, and I loved it. I found out, that was very baroque-influenced."
+slug = "i-listened-to-all-those-blues-records-they-were-great---clapton-john-mayall-then-eventually-i-heard-genesis-with-peter-gabriel-and-i-didnt-really-understand-the-difference-then-but-something-struck-me-about-the-inversions-and-the-diminished-chords-they-werent-as-bluesy-and-i-loved-it-i-found-out-that-was-very-baroque-influenced"
++++
+I listened to all those blues records. They were great - Clapton, John Mayall. Then eventually I heard Genesis with Peter Gabriel, and I didn't really understand the difference then, but something struck me about the inversions and the diminished chords... they weren't as bluesy, and I loved it. I found out, that was very baroque-influenced.

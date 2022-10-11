@@ -1,0 +1,7 @@
++++
+author = "Yngwie Malmsteen"
+title = "A lot of people probably get the idea that I'm this extremely calculated kind of guy, and in a lot of ways, I am. But when it comes to music or artistic expression, I'm very uncalculated and do things very spontaneous. If I didn't do that, I wouldn't want to do this anymore. I can't just play the same thing over and over; it would drive me crazy."
+description = "the best Yngwie Malmsteen Quote: A lot of people probably get the idea that I'm this extremely calculated kind of guy, and in a lot of ways, I am. But when it comes to music or artistic expression, I'm very uncalculated and do things very spontaneous. If I didn't do that, I wouldn't want to do this anymore. I can't just play the same thing over and over; it would drive me crazy."
+slug = "a-lot-of-people-probably-get-the-idea-that-im-this-extremely-calculated-kind-of-guy-and-in-a-lot-of-ways-i-am-but-when-it-comes-to-music-or-artistic-expression-im-very-uncalculated-and-do-things-very-spontaneous-if-i-didnt-do-that-i-wouldnt-want-to-do-this-anymore-i-cant-just-play-the-same-thing-over-and-over-it-would-drive-me-crazy"
++++
+A lot of people probably get the idea that I'm this extremely calculated kind of guy, and in a lot of ways, I am. But when it comes to music or artistic expression, I'm very uncalculated and do things very spontaneous. If I didn't do that, I wouldn't want to do this anymore. I can't just play the same thing over and over; it would drive me crazy.
