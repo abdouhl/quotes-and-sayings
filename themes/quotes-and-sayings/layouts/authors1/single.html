@@ -1,19 +1,38 @@
 <!DOCTYPE html>
 <html lang="en">
+{{ $image := .Resources.GetMatch "img.webp" }}
 <head>
   <meta charset="UTF-8">
   <meta http-equiv="X-UA-Compatible" content="IE=edge">
   <meta name="viewport" content="width=device-width, initial-scale=1.0">
   <script src="https://cdn.tailwindcss.com"></script>
+  <meta name="twitter:card" content="summary_large_image">
+  <meta name="twitter:site" content="@q_and_s_net">
+  <meta name="twitter:creator" content="@q_and_s_net">
+  <meta name="twitter:title" content="{{ .Params.author }} Quote">
+  <meta name="twitter:description" content="{{ .Title }}">
+  
+  <meta name="twitter:image:alt" content="{{ .Params.author }} Quote: {{ .Title }}">
+  <meta property="og:title" content="{{ .Params.author }} Quote" />
+  <meta property="og:description" content="{{ .Title }}" />
+  <meta property="og:url" content="{{ .Permalink }}" />
+  {{ with $image }}
+  <meta name="twitter:image" content="{{ $image.Permalink }}">
+  <meta property="og:image" content="{{ $image.Permalink }}" />
+  {{ end }}
+  <meta property="og:site_name" content="Quotes abd Sayings" />
+  <meta property="og:locale" content="en_US" />
+  <meta property="og:type" content="article" />
   <title>{{ .Title }}</title>
+
 </head>
 <body>
   <main class="grid place-items-center h-screen">
 
 <div class="max-w-sm bg-white rounded-lg border border-gray-200 shadow-xl dark:bg-gray-800 dark:border-gray-700  shadow-xl dark:shadow-gray-800">
-      {{ $image := .Resources.GetMatch "img.jpg" }}
-      <img class="rounded-t-lg" src="{{ $image }}" alt="">
-  <div class="p-5">
+      
+      {{ with $image }}<img class="rounded-t-lg" src="{{ $image }}" alt="">
+  <div class="p-5">{{ end }}
       <blockquote class="mb-3 font-normal text-gray-700 dark:text-gray-400">
       {{ .Title }}
       </blockquote>
@@ -28,5 +47,6 @@
   
 </body>
 </html>
+
 
 
