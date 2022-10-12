@@ -25,7 +25,11 @@
   <meta property="og:locale" content="en_US" />
   <meta property="og:type" content="article" />
   <title>{{ .Title }}</title>
-
+  {{ if .Params.canonicalUrl }}
+  <link rel="canonical" href="{{ .Params.canonicalUrl }}">
+  {{ else }}
+  <link rel="canonical" href="{{ .Permalink }}">
+  {{ end }}
 </head>
 <body>
   <main class="grid place-items-center h-screen">
