@@ -1,6 +1,7 @@
 <!DOCTYPE html>
 <html lang="en">
 {{ $image := .Resources.GetMatch "img.webp" }}
+{{ $img_twitter := .Resources.GetMatch "img_twitter.webp" }}
 <head>
   <meta charset="UTF-8">
   <meta http-equiv="X-UA-Compatible" content="IE=edge">
@@ -16,9 +17,9 @@
   <meta property="og:title" content="{{ .Params.author }} Quote" />
   <meta property="og:description" content="{{ .Title }}" />
   <meta property="og:url" content="{{ .Permalink }}" />
-  {{ with $image }}
-  <meta name="twitter:image" content="{{ $image.Permalink }}">
-  <meta property="og:image" content="{{ $image.Permalink }}" />
+  {{ with $img_twitter }}
+  <meta name="twitter:image" content="{{ $img_twitter.Permalink }}">
+  <meta property="og:image" content="{{ $img_twitter.Permalink }}" />
   {{ end }}
   <meta property="og:site_name" content="Quotes abd Sayings" />
   <meta property="og:locale" content="en_US" />
