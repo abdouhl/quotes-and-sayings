@@ -1,34 +1,37 @@
-<!DOCTYPE html>
-<html lang="en">
-<head>
-  <meta charset="UTF-8">
-  <meta http-equiv="X-UA-Compatible" content="IE=edge">
-  <meta name="viewport" content="width=device-width, initial-scale=1.0">
-  <title>authors</title>
-  {{ if .Params.canonicalUrl }}
-  <link rel="canonical" href="{{ .Params.canonicalUrl }}">
-  {{ else }}
-  <link rel="canonical" href="{{ .Permalink }}">
-  {{ end }}
-</head>
-<body>
-<h1>{{ .Title }}</h1>
-{{ $num := 0 }}
+{{ define "title" }}
+{{- .Title -}}
+{{ end }}
 
-{{ $num = (add $num (len .Pages)) }}
+{{ define "main" }}
 
+<div class="lg:flex lg:flex-row lg:gap-4 mt-8 full">
+<div class="mx-4 lg:basis-3/4">
+<div class="bg-white border-2 rounded-md p-4 mb-4">
+<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-3610150616518651"
+     crossorigin="anonymous"></script>
+<!-- responsive -->
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-3610150616518651"
+     data-ad-slot="2781708876"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+<script>
+     (adsbygoogle = window.adsbygoogle || []).push({});
+</script>
+</div>
+<div class="bg-white border-2 rounded-md  p-4 mb-4">
+  <ul class="divide-y divide-dashed">
+  {{- range .Pages -}}
+    <li class="p-2">
+       <a class="title" href="{{ .Params.externalLink | default .RelPermalink }}">{{ .Title }}</a>
+    </li>
+  {{- end -}}
+  </ul>
+</div>
+</div>
+<div class="lg:basis-1/4">
 
-num:  {{ $num }}
-  <ul>
-
-        
-      {{- range .Pages -}}
-        <li>
-  <a class="title" href="{{ .Params.externalLink | default .RelPermalink }}">{{ .Title }}</a>
-  
-</li>
-      {{- end -}}
-
-    </ul>
-</body>
-</html>
+</div>
+</div>
+{{ end }}
