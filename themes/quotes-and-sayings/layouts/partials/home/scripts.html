@@ -1,0 +1,56 @@
+<script>
+    
+    
+
+{{ $num := 0 }}
+var documents = [{{- range .Pages -}}
+        {{- range .Pages -}}
+      {{- range .Pages -}}
+        {
+  "name": "{{ replace .Title " Quotes" ""}}",
+  "index": "{{ $num }}",
+  "link": "{{ .Params.externalLink | default .RelPermalink }}"
+},
+{{ $num = (add $num 1) }}
+      {{- end -}}
+{{- end -}}
+      {{- end -}}]
+
+
+
+
+  $(document).on('keyup', '#post-form', function (e) {
+    e.preventDefault();
+    var default_search = document.getElementById('default-search').value;
+    console.log(default_search)
+    var idx = lunr(function () {
+  this.ref('index')
+
+  this.field('name')
+  
+  
+  documents.forEach(function (doc) {
+    this.add(doc)
+  }, this)
+})
+var res = idx.search(default_search+"*")
+console.log(res)
+var result = ""
+for (var aa in res) {
+if (aa == 30){
+break;
+}
+var bb_index = res[aa]['ref']
+console.log(bb_index,documents[bb_index]["name"],documents[bb_index]["link"])
+var bb_name = documents[bb_index]["name"];
+var bb_link = documents[bb_index]["link"]
+result = result + '<li>'+'<a class="title" href="'+bb_link+'">'+ bb_name+ '</a></li>'
+}
+$('#res').html(result)
+  });
+</script>
+<!-- Google Tag Manager (noscript) -->
+<noscript><iframe src="https://www.googletagmanager.com/ns.html?id=GTM-NL2F2F6"
+height="0" width="0" style="display:none;visibility:hidden"></iframe></noscript>
+<!-- End Google Tag Manager (noscript) -->
+<div class="g1-body-inner">
