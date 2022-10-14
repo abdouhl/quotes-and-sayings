@@ -1,57 +1,9 @@
-<!DOCTYPE html>
-<html lang="en">
-{{ $image := .Resources.GetMatch "img.webp" }}
-{{ $img_twitter := .Resources.GetMatch "img_twitter.webp" }}
-<head>
-  <meta charset="UTF-8">
-  <meta http-equiv="X-UA-Compatible" content="IE=edge">
-  <meta name="viewport" content="width=device-width, initial-scale=1.0">
-  <script src="https://cdn.tailwindcss.com"></script>
-  <meta name="twitter:card" content="summary_large_image">
-  <meta name="twitter:site" content="@q_and_s_net">
-  <meta name="twitter:creator" content="@q_and_s_net">
-  <meta name="twitter:title" content="{{ .Params.author }} Quote">
-  <meta name="twitter:description" content="{{ .Title }}">
-  
-  <meta name="twitter:image:alt" content="{{ .Params.author }} Quote: {{ .Title }}">
-  <meta property="og:title" content="{{ .Params.author }} Quote" />
-  <meta property="og:description" content="{{ .Title }}" />
-  <meta property="og:url" content="{{ .Permalink }}" />
-  {{ with $img_twitter }}
-  <meta name="twitter:image" content="{{ $img_twitter.Permalink }}">
-  <meta property="og:image" content="{{ $img_twitter.Permalink }}" />
-  {{ end }}
-  <meta property="og:site_name" content="Quotes abd Sayings" />
-  <meta property="og:locale" content="en_US" />
-  <meta property="og:type" content="article" />
-  <title>{{ .Title }}</title>
-  {{ if .Params.canonicalUrl }}
-  <link rel="canonical" href="{{ .Params.canonicalUrl }}">
-  {{ else }}
-  <link rel="canonical" href="{{ .Permalink }}">
-  {{ end }}
-</head>
-<body>
-  <main class="grid place-items-center h-screen">
+{{ define "title" }}
+{{- .Title -}}
+{{ end }}
 
-<div class="max-w-sm bg-white rounded-lg border border-gray-200 shadow-xl dark:bg-gray-800 dark:border-gray-700  shadow-xl dark:shadow-gray-800">
-      
-      {{ with $image }}<img class="rounded-t-lg" src="{{ $image }}" alt="">
-  <div class="p-5">{{ end }}
-      <blockquote class="mb-3 font-normal text-gray-700 dark:text-gray-400">
-      {{ .Title }}
-      </blockquote>
-      <a href="{{ .Parent.Permalink }}" class="inline-flex items-center py-2 px-3 text-sm font-medium text-center text-white bg-blue-700 rounded-lg hover:bg-blue-800 focus:ring-4 focus:outline-none focus:ring-blue-300 dark:bg-blue-600 dark:hover:bg-blue-700 dark:focus:ring-blue-800">
-          Read more {{ .Parent.Title }}
-          <svg aria-hidden="true" class="ml-2 -mr-1 w-4 h-4" fill="currentColor" viewBox="0 0 20 20" xmlns="http://www.w3.org/2000/svg"><path fill-rule="evenodd" d="M10.293 3.293a1 1 0 011.414 0l6 6a1 1 0 010 1.414l-6 6a1 1 0 01-1.414-1.414L14.586 11H3a1 1 0 110-2h11.586l-4.293-4.293a1 1 0 010-1.414z" clip-rule="evenodd"></path></svg>
-      </a>
-  </div>
+{{ define "main" }}
+<div class="bg-white mt-8 container mx-auto p-4 w-11/12 md:w-9/12 lg:w-6/12 border-2 rounded-md">
+{{ .Title }}
 </div>
-
-  </main>
-  
-</body>
-</html>
-
-
-
+{{ end }}

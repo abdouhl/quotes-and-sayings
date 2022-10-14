@@ -6,18 +6,6 @@
 
 <div class="lg:flex lg:flex-row lg:gap-4 mt-8 full">
 <div class="mx-4 lg:basis-3/4">
-<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-3610150616518651"
-     crossorigin="anonymous"></script>
-<!-- responsive -->
-<ins class="adsbygoogle"
-     style="display:block"
-     data-ad-client="ca-pub-3610150616518651"
-     data-ad-slot="2781708876"
-     data-ad-format="auto"
-     data-full-width-responsive="true"></ins>
-<script>
-     (adsbygoogle = window.adsbygoogle || []).push({});
-</script>
 <div class="bg-white border-2 rounded-md  p-4 mb-4">
   <ul class="divide-y divide-dashed">
   {{- range .Pages -}}
@@ -28,8 +16,10 @@
   </ul>
 </div>
 </div>
-<div class="lg:basis-1/4">
-
+<div class="sticky top-2 bg-white border-2 rounded-md  p-4 mx-4 lg:mx-0 lg:mr-4 lg:basis-1/4 max-h-64">
+<div>
+{{ partialCached "ads/s_ad.html" . }}
+</div>
 </div>
 </div>
 {{ end }}
