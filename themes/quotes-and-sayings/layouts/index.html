@@ -1,3 +1,7 @@
 {{ define "main" }}
 {{ partial "home.html" . }}
 {{ end }}
+{{ define "scripts" }}
+{{ partialCached "partials/home/scripts.html" . }}
+{{ end }}
+
