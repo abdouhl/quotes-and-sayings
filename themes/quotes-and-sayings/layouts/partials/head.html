@@ -1,9 +1,54 @@
+{{ $img_twitter := .Resources.GetMatch "img_twitter.webp" }}
 <head>
+    <meta name="robots" content="all">
     <meta charset="UTF-8">
     <meta http-equiv="X-UA-Compatible" content="IE=edge">
     <meta name="viewport" content="width=device-width, initial-scale=1.0">
+    {{ with .Keywords }}<meta name="keywords" content="{{ . }}">{{ end }}
+    
+    {{ if .IsPage }}
+    <title>{{ .Params.author }} Quote</title>
+    <meta property="og:title" content="{{ .Params.author }} Quote" />
+    <meta name="twitter:title" content="{{ .Params.author }} Quote">
+    <meta name="description" content="{{ .Title }}">
+    <meta property="og:description" content="{{ .Title }}" />
+    <meta name="twitter:description" content="{{ .Title }}">
+    {{ else }}
+    <title>{{ .Title }}</title>
+    <meta property="og:title" content="{{ .Title }}" />
+    <meta name="twitter:title" content="{{ .Title }}">
+    <meta name="description" content="{{ .Description }}">
+    <meta property="og:description" content="{{ .Description }}" />
+    <meta name="twitter:description" content="{{ .Description }}">
+    {{ end }}
+    
+    
+    
+    <meta property="og:url" content="{{ .Permalink }}" />
+    {{ with $img_twitter }}
+    <meta name="twitter:image" content="{{ $img_twitter.Permalink }}">
+    {{ if $.IsPage }}
+    <meta name="twitter:image:alt" content="{{ .Params.author }} Quote: {{ .Title }}">
+    {{ else }}
+    <meta name="twitter:image:alt" content="{{ .Description }}">
+    {{ end }}
+    <meta property="og:image" content="{{ $img_twitter.Permalink }}" />
+    {{ end }}
+    <meta property="og:site_name" content="Quotes abd Sayings" />
+    <meta property="og:locale" content="{{ .Site.Language.Lang }}" />
+    {{ if eq .Permalink .Site.BaseURL }}
+    <meta property="og:type" content="website" />
+    {{ else }}
+    <meta property="og:type" content="article" />
+    {{ end }}
+    <meta name="twitter:card" content="summary_large_image">
+    <meta name="twitter:site" content="@q_and_s_net">
+    <meta name="twitter:creator" content="@q_and_s_net">
+    <link rel="canonical" href="{{ .Permalink }}">
+
+    
+
     <script src="https://cdn.tailwindcss.com"></script>
-    <title>Quotes And Sayings</title>
     {{ if eq .Permalink .Site.BaseURL }}
     <script src="https://code.jquery.com/jquery-3.1.1.min.js"
     integrity="sha256-hVVnYaiADRTO2PzUGmuLJr8BLUSjGIZsDYGmIJLv2b8=" crossorigin="anonymous"></script>
