@@ -1,0 +1,8 @@
++++
+author = "Brianna Hildebrand"
+title = '''It helps to write as the character that I am trying to be, and try to journal every day as them. Once I've already recorded thoughts as this person, it's easier to just flip back through and be like, 'Oh, yeah, this is what she's thinking; this is what she's feeling.''''
+description = '''the best Brianna Hildebrand Quote: It helps to write as the character that I am trying to be, and try to journal every day as them. Once I've already recorded thoughts as this person, it's easier to just flip back through and be like, 'Oh, yeah, this is what she's thinking; this is what she's feeling.''''
+slug = '''it-helps-to-write-as-the-character-that-i-am-trying-to-be-and-try-to-journal-every-day-as-them-once-ive-already-recorded-thoughts-as-this-person-its-easier-to-just-flip-back-through-and-be-like-oh-yeah-this-is-what-shes-thinking-this-is-what-shes-feeling'''
+keywords = '''It helps to write as the character that I am trying to be, and try to journal every day as them. Once I've already recorded thoughts as this person, it's easier to just flip back through and be like, 'Oh, yeah, this is what she's thinking; this is what she's feeling.',brianna hildebrand,brianna hildebrand quotes,brianna hildebrand quote,brianna hildebrand sayings,brianna hildebrand saying,quotes, sayings,quote, saying, motivation'''
++++
+It helps to write as the character that I am trying to be, and try to journal every day as them. Once I've already recorded thoughts as this person, it's easier to just flip back through and be like, 'Oh, yeah, this is what she's thinking; this is what she's feeling.'
