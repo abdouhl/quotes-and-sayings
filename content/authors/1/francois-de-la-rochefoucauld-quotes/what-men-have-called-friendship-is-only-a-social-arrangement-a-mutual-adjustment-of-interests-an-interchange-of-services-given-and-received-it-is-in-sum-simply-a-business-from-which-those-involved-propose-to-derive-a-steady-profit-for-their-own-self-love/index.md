@@ -1,0 +1,8 @@
++++
+author = "Francois De La Rochefoucauld"
+title = "What men have called friendship is only a social arrangement, a mutual adjustment of interests, an interchange of services given and received; it is, in sum, simply a business from which those involved propose to derive a steady profit for their own self-love."
+description = "the best Francois De La Rochefoucauld Quote: What men have called friendship is only a social arrangement, a mutual adjustment of interests, an interchange of services given and received; it is, in sum, simply a business from which those involved propose to derive a steady profit for their own self-love."
+slug = "what-men-have-called-friendship-is-only-a-social-arrangement-a-mutual-adjustment-of-interests-an-interchange-of-services-given-and-received-it-is-in-sum-simply-a-business-from-which-those-involved-propose-to-derive-a-steady-profit-for-their-own-self-love"
+keywords = "What men have called friendship is only a social arrangement, a mutual adjustment of interests, an interchange of services given and received; it is, in sum, simply a business from which those involved propose to derive a steady profit for their own self-love.,francois de la rochefoucauld,francois de la rochefoucauld quotes,francois de la rochefoucauld quote,francois de la rochefoucauld sayings,francois de la rochefoucauld saying,quotes, sayings,quote, saying, motivation"
++++
+What men have called friendship is only a social arrangement, a mutual adjustment of interests, an interchange of services given and received; it is, in sum, simply a business from which those involved propose to derive a steady profit for their own self-love.
