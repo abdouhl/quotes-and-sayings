@@ -1,8 +1,0 @@
-+++
-author = "Bianca Marroquin"
-title = "As the years went by, working on Broadway, I started seeing that I had a fan base and that they were mostly young girls. They are looking for someone that they can look up to, that they see as a role model. And I don't take that lightly; it's a big responsibility."
-description = "the best Bianca Marroquin Quote: As the years went by, working on Broadway, I started seeing that I had a fan base and that they were mostly young girls. They are looking for someone that they can look up to, that they see as a role model. And I don't take that lightly; it's a big responsibility."
-slug = "as-the-years-went-by-working-on-broadway-i-started-seeing-that-i-had-a-fan-base-and-that-they-were-mostly-young-girls-they-are-looking-for-someone-that-they-can-look-up-to-that-they-see-as-a-role-model-and-i-dont-take-that-lightly-its-a-big-responsibility"
-keywords = "As the years went by, working on Broadway, I started seeing that I had a fan base and that they were mostly young girls. They are looking for someone that they can look up to, that they see as a role model. And I don't take that lightly; it's a big responsibility.,bianca marroquin,bianca marroquin quotes,bianca marroquin quote,bianca marroquin sayings,bianca marroquin saying,quotes, sayings,quote, saying, motivation"
-+++
-As the years went by, working on Broadway, I started seeing that I had a fan base and that they were mostly young girls. They are looking for someone that they can look up to, that they see as a role model. And I don't take that lightly; it's a big responsibility.
