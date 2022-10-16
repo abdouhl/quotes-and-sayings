@@ -1,0 +1,8 @@
++++
+author = "Christopher Buckley"
+title = '''I'd worked at the White House for two years, and I'd read a bunch of White House memoirs because everybody who works at the White House, even for five minutes, writes a memoir usually not less than 600 pages long - and never without the word 'power' in the title.'''
+description = '''the best Christopher Buckley Quote: I'd worked at the White House for two years, and I'd read a bunch of White House memoirs because everybody who works at the White House, even for five minutes, writes a memoir usually not less than 600 pages long - and never without the word 'power' in the title.'''
+slug = '''id-worked-at-the-white-house-for-two-years-and-id-read-a-bunch-of-white-house-memoirs-because-everybody-who-works-at-the-white-house-even-for-five-minutes-writes-a-memoir-usually-not-less-than-600-pages-long---and-never-without-the-word-power-in-the-title'''
+keywords = '''I'd worked at the White House for two years, and I'd read a bunch of White House memoirs because everybody who works at the White House, even for five minutes, writes a memoir usually not less than 600 pages long - and never without the word 'power' in the title.,christopher buckley,christopher buckley quotes,christopher buckley quote,christopher buckley sayings,christopher buckley saying,quotes, sayings,quote, saying, motivation'''
++++
+I'd worked at the White House for two years, and I'd read a bunch of White House memoirs because everybody who works at the White House, even for five minutes, writes a memoir usually not less than 600 pages long - and never without the word 'power' in the title.

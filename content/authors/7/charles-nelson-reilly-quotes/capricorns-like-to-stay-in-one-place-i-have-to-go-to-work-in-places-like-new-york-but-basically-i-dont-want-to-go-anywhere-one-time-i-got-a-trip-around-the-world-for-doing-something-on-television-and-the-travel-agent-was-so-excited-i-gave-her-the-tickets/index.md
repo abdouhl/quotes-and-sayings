@@ -1,0 +1,8 @@
++++
+author = "Charles Nelson Reilly"
+title = '''Capricorns like to stay in one place. I have to go to work in places like New York, but basically, I don't want to go anywhere. One time, I got a trip around the world for doing something on television, and the travel agent was so excited, I gave her the tickets.'''
+description = '''the best Charles Nelson Reilly Quote: Capricorns like to stay in one place. I have to go to work in places like New York, but basically, I don't want to go anywhere. One time, I got a trip around the world for doing something on television, and the travel agent was so excited, I gave her the tickets.'''
+slug = '''capricorns-like-to-stay-in-one-place-i-have-to-go-to-work-in-places-like-new-york-but-basically-i-dont-want-to-go-anywhere-one-time-i-got-a-trip-around-the-world-for-doing-something-on-television-and-the-travel-agent-was-so-excited-i-gave-her-the-tickets'''
+keywords = '''Capricorns like to stay in one place. I have to go to work in places like New York, but basically, I don't want to go anywhere. One time, I got a trip around the world for doing something on television, and the travel agent was so excited, I gave her the tickets.,charles nelson reilly,charles nelson reilly quotes,charles nelson reilly quote,charles nelson reilly sayings,charles nelson reilly saying,quotes, sayings,quote, saying, motivation'''
++++
+Capricorns like to stay in one place. I have to go to work in places like New York, but basically, I don't want to go anywhere. One time, I got a trip around the world for doing something on television, and the travel agent was so excited, I gave her the tickets.

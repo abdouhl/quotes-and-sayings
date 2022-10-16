@@ -1,0 +1,8 @@
++++
+author = "Candace Cameron Bure"
+title = '''My mom and dad - they were always there. They were always on the set. They focused on our family life. The entertainment business wasn't the end-all. They weren't out to get the next big paycheck or the next big movie. It was about 'What can we do as a family.''''
+description = '''the best Candace Cameron Bure Quote: My mom and dad - they were always there. They were always on the set. They focused on our family life. The entertainment business wasn't the end-all. They weren't out to get the next big paycheck or the next big movie. It was about 'What can we do as a family.''''
+slug = '''my-mom-and-dad---they-were-always-there-they-were-always-on-the-set-they-focused-on-our-family-life-the-entertainment-business-wasnt-the-end-all-they-werent-out-to-get-the-next-big-paycheck-or-the-next-big-movie-it-was-about-what-can-we-do-as-a-family'''
+keywords = '''My mom and dad - they were always there. They were always on the set. They focused on our family life. The entertainment business wasn't the end-all. They weren't out to get the next big paycheck or the next big movie. It was about 'What can we do as a family.',candace cameron bure,candace cameron bure quotes,candace cameron bure quote,candace cameron bure sayings,candace cameron bure saying,quotes, sayings,quote, saying, motivation'''
++++
+My mom and dad - they were always there. They were always on the set. They focused on our family life. The entertainment business wasn't the end-all. They weren't out to get the next big paycheck or the next big movie. It was about 'What can we do as a family.'

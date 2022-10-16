@@ -1,0 +1,8 @@
++++
+author = "Colleen Atwood"
+title = '''People like to stir up the fashion vs. costume world, and I think what they mean by 'too costumey' is that it's too much, or not real enough for everyday wear. You couldn't say that about John Galliano's shows, right? I mean, they're awesome, and they're total costume.'''
+description = '''the best Colleen Atwood Quote: People like to stir up the fashion vs. costume world, and I think what they mean by 'too costumey' is that it's too much, or not real enough for everyday wear. You couldn't say that about John Galliano's shows, right? I mean, they're awesome, and they're total costume.'''
+slug = '''people-like-to-stir-up-the-fashion-vs-costume-world-and-i-think-what-they-mean-by-too-costumey-is-that-its-too-much-or-not-real-enough-for-everyday-wear-you-couldnt-say-that-about-john-gallianos-shows-right?-i-mean-theyre-awesome-and-theyre-total-costume'''
+keywords = '''People like to stir up the fashion vs. costume world, and I think what they mean by 'too costumey' is that it's too much, or not real enough for everyday wear. You couldn't say that about John Galliano's shows, right? I mean, they're awesome, and they're total costume.,colleen atwood,colleen atwood quotes,colleen atwood quote,colleen atwood sayings,colleen atwood saying,quotes, sayings,quote, saying, motivation'''
++++
+People like to stir up the fashion vs. costume world, and I think what they mean by 'too costumey' is that it's too much, or not real enough for everyday wear. You couldn't say that about John Galliano's shows, right? I mean, they're awesome, and they're total costume.

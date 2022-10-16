@@ -1,0 +1,8 @@
++++
+author = "Conor Mcgregor"
+title = '''I wish everyone well, but you need to focus on yourself. You need to stop putting your hand out. Everyone wants hand outs. Everyone wants things for free. You've got to put in the work. You've got to grind. You've got go through the struggle, and you've got to get it.'''
+description = '''the best Conor Mcgregor Quote: I wish everyone well, but you need to focus on yourself. You need to stop putting your hand out. Everyone wants hand outs. Everyone wants things for free. You've got to put in the work. You've got to grind. You've got go through the struggle, and you've got to get it.'''
+slug = '''i-wish-everyone-well-but-you-need-to-focus-on-yourself-you-need-to-stop-putting-your-hand-out-everyone-wants-hand-outs-everyone-wants-things-for-free-youve-got-to-put-in-the-work-youve-got-to-grind-youve-got-go-through-the-struggle-and-youve-got-to-get-it'''
+keywords = '''I wish everyone well, but you need to focus on yourself. You need to stop putting your hand out. Everyone wants hand outs. Everyone wants things for free. You've got to put in the work. You've got to grind. You've got go through the struggle, and you've got to get it.,conor mcgregor,conor mcgregor quotes,conor mcgregor quote,conor mcgregor sayings,conor mcgregor saying,quotes, sayings,quote, saying, motivation'''
++++
+I wish everyone well, but you need to focus on yourself. You need to stop putting your hand out. Everyone wants hand outs. Everyone wants things for free. You've got to put in the work. You've got to grind. You've got go through the struggle, and you've got to get it.

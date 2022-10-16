@@ -1,0 +1,8 @@
++++
+author = "Christian Laettner"
+title = '''I went to Duke, and I stayed at Duke all four years because I wanted as many years under Coach K's tutelage as I could get. I think every year you get with him, the more it's going help you for basketball and life. So I wanted to play for him as long as I could.'''
+description = '''the best Christian Laettner Quote: I went to Duke, and I stayed at Duke all four years because I wanted as many years under Coach K's tutelage as I could get. I think every year you get with him, the more it's going help you for basketball and life. So I wanted to play for him as long as I could.'''
+slug = '''i-went-to-duke-and-i-stayed-at-duke-all-four-years-because-i-wanted-as-many-years-under-coach-ks-tutelage-as-i-could-get-i-think-every-year-you-get-with-him-the-more-its-going-help-you-for-basketball-and-life-so-i-wanted-to-play-for-him-as-long-as-i-could'''
+keywords = '''I went to Duke, and I stayed at Duke all four years because I wanted as many years under Coach K's tutelage as I could get. I think every year you get with him, the more it's going help you for basketball and life. So I wanted to play for him as long as I could.,christian laettner,christian laettner quotes,christian laettner quote,christian laettner sayings,christian laettner saying,quotes, sayings,quote, saying, motivation'''
++++
+I went to Duke, and I stayed at Duke all four years because I wanted as many years under Coach K's tutelage as I could get. I think every year you get with him, the more it's going help you for basketball and life. So I wanted to play for him as long as I could.

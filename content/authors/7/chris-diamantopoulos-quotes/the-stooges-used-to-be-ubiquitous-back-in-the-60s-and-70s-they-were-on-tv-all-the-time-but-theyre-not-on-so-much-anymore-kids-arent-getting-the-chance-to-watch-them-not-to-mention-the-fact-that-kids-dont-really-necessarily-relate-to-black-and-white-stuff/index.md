@@ -1,0 +1,8 @@
++++
+author = "Chris Diamantopoulos"
+title = ''''The Stooges' used to be ubiquitous, back in the '60s and '70s. They were on TV all the time, but they're not on so much anymore. Kids aren't getting the chance to watch them, not to mention the fact that kids don't really necessarily relate to black-and-white stuff.'''
+description = '''the best Chris Diamantopoulos Quote: 'The Stooges' used to be ubiquitous, back in the '60s and '70s. They were on TV all the time, but they're not on so much anymore. Kids aren't getting the chance to watch them, not to mention the fact that kids don't really necessarily relate to black-and-white stuff.'''
+slug = '''the-stooges-used-to-be-ubiquitous-back-in-the-60s-and-70s-they-were-on-tv-all-the-time-but-theyre-not-on-so-much-anymore-kids-arent-getting-the-chance-to-watch-them-not-to-mention-the-fact-that-kids-dont-really-necessarily-relate-to-black-and-white-stuff'''
+keywords = ''''The Stooges' used to be ubiquitous, back in the '60s and '70s. They were on TV all the time, but they're not on so much anymore. Kids aren't getting the chance to watch them, not to mention the fact that kids don't really necessarily relate to black-and-white stuff.,chris diamantopoulos,chris diamantopoulos quotes,chris diamantopoulos quote,chris diamantopoulos sayings,chris diamantopoulos saying,quotes, sayings,quote, saying, motivation'''
++++
+'The Stooges' used to be ubiquitous, back in the '60s and '70s. They were on TV all the time, but they're not on so much anymore. Kids aren't getting the chance to watch them, not to mention the fact that kids don't really necessarily relate to black-and-white stuff.
