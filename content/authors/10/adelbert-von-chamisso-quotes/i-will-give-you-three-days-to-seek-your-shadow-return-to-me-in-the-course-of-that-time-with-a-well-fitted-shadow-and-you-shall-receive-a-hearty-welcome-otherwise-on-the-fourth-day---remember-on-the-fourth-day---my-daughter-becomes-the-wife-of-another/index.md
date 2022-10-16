@@ -1,0 +1,8 @@
++++
+author = "Adelbert Von Chamisso"
+title = '''I will give you three days to seek your shadow. Return to me in the course of that time with a well-fitted shadow, and you shall receive a hearty welcome; otherwise, on the fourth day - remember, on the fourth day - my daughter becomes the wife of another.'''
+description = '''the best Adelbert Von Chamisso Quote: I will give you three days to seek your shadow. Return to me in the course of that time with a well-fitted shadow, and you shall receive a hearty welcome; otherwise, on the fourth day - remember, on the fourth day - my daughter becomes the wife of another.'''
+slug = '''i-will-give-you-three-days-to-seek-your-shadow-return-to-me-in-the-course-of-that-time-with-a-well-fitted-shadow-and-you-shall-receive-a-hearty-welcome-otherwise-on-the-fourth-day---remember-on-the-fourth-day---my-daughter-becomes-the-wife-of-another'''
+keywords = '''I will give you three days to seek your shadow. Return to me in the course of that time with a well-fitted shadow, and you shall receive a hearty welcome; otherwise, on the fourth day - remember, on the fourth day - my daughter becomes the wife of another.,adelbert von chamisso,adelbert von chamisso quotes,adelbert von chamisso quote,adelbert von chamisso sayings,adelbert von chamisso saying,quotes, sayings,quote, saying, motivation'''
++++
+I will give you three days to seek your shadow. Return to me in the course of that time with a well-fitted shadow, and you shall receive a hearty welcome; otherwise, on the fourth day - remember, on the fourth day - my daughter becomes the wife of another.

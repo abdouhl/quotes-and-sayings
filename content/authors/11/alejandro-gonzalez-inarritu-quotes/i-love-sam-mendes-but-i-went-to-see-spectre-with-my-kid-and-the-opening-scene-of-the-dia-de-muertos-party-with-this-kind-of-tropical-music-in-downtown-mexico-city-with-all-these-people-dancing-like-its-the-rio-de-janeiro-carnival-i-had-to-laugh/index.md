@@ -1,0 +1,8 @@
++++
+author = "Alejandro Gonzalez Inarritu"
+title = '''I love Sam Mendes, but I went to see 'Spectre' with my kid, and the opening scene of the Dia de Muertos party, with this kind of tropical music, in downtown Mexico City, with all these people dancing like it's the Rio de Janeiro carnival... I had to laugh.'''
+description = '''the best Alejandro Gonzalez Inarritu Quote: I love Sam Mendes, but I went to see 'Spectre' with my kid, and the opening scene of the Dia de Muertos party, with this kind of tropical music, in downtown Mexico City, with all these people dancing like it's the Rio de Janeiro carnival... I had to laugh.'''
+slug = '''i-love-sam-mendes-but-i-went-to-see-spectre-with-my-kid-and-the-opening-scene-of-the-dia-de-muertos-party-with-this-kind-of-tropical-music-in-downtown-mexico-city-with-all-these-people-dancing-like-its-the-rio-de-janeiro-carnival-i-had-to-laugh'''
+keywords = '''I love Sam Mendes, but I went to see 'Spectre' with my kid, and the opening scene of the Dia de Muertos party, with this kind of tropical music, in downtown Mexico City, with all these people dancing like it's the Rio de Janeiro carnival... I had to laugh.,alejandro gonzalez inarritu,alejandro gonzalez inarritu quotes,alejandro gonzalez inarritu quote,alejandro gonzalez inarritu sayings,alejandro gonzalez inarritu saying,quotes, sayings,quote, saying, motivation'''
++++
+I love Sam Mendes, but I went to see 'Spectre' with my kid, and the opening scene of the Dia de Muertos party, with this kind of tropical music, in downtown Mexico City, with all these people dancing like it's the Rio de Janeiro carnival... I had to laugh.

@@ -1,0 +1,8 @@
++++
+author = "Anne Morrow Lindbergh"
+title = '''The bearing, rearing, feeding and educating of children; the running of a house with its thousand details; human relationships with their myriad pulls - women's normal occupations in general run counter to creative life, or contemplative life, or saintly life.'''
+description = '''the best Anne Morrow Lindbergh Quote: The bearing, rearing, feeding and educating of children; the running of a house with its thousand details; human relationships with their myriad pulls - women's normal occupations in general run counter to creative life, or contemplative life, or saintly life.'''
+slug = '''the-bearing-rearing-feeding-and-educating-of-children-the-running-of-a-house-with-its-thousand-details-human-relationships-with-their-myriad-pulls---womens-normal-occupations-in-general-run-counter-to-creative-life-or-contemplative-life-or-saintly-life'''
+keywords = '''The bearing, rearing, feeding and educating of children; the running of a house with its thousand details; human relationships with their myriad pulls - women's normal occupations in general run counter to creative life, or contemplative life, or saintly life.,anne morrow lindbergh,anne morrow lindbergh quotes,anne morrow lindbergh quote,anne morrow lindbergh sayings,anne morrow lindbergh saying,quotes, sayings,quote, saying, motivation'''
++++
+The bearing, rearing, feeding and educating of children; the running of a house with its thousand details; human relationships with their myriad pulls - women's normal occupations in general run counter to creative life, or contemplative life, or saintly life.
