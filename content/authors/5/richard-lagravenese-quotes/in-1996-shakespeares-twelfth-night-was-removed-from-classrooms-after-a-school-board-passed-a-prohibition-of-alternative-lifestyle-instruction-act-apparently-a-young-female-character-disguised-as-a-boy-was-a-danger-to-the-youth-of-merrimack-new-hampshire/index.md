@@ -1,0 +1,8 @@
++++
+author = "Richard Lagravenese"
+title = '''In 1996, Shakespeare's 'Twelfth Night' was removed from classrooms after a school board passed a 'prohibition of alternative lifestyle instruction' act. Apparently, a young female character disguised as a boy was a danger to the youth of Merrimack, New Hampshire.'''
+description = '''the best Richard Lagravenese Quote: In 1996, Shakespeare's 'Twelfth Night' was removed from classrooms after a school board passed a 'prohibition of alternative lifestyle instruction' act. Apparently, a young female character disguised as a boy was a danger to the youth of Merrimack, New Hampshire.'''
+slug = '''in-1996-shakespeares-twelfth-night-was-removed-from-classrooms-after-a-school-board-passed-a-prohibition-of-alternative-lifestyle-instruction-act-apparently-a-young-female-character-disguised-as-a-boy-was-a-danger-to-the-youth-of-merrimack-new-hampshire'''
+keywords = '''In 1996, Shakespeare's 'Twelfth Night' was removed from classrooms after a school board passed a 'prohibition of alternative lifestyle instruction' act. Apparently, a young female character disguised as a boy was a danger to the youth of Merrimack, New Hampshire.,richard lagravenese,richard lagravenese quotes,richard lagravenese quote,richard lagravenese sayings,richard lagravenese saying,quotes, sayings,quote, saying, motivation'''
++++
+In 1996, Shakespeare's 'Twelfth Night' was removed from classrooms after a school board passed a 'prohibition of alternative lifestyle instruction' act. Apparently, a young female character disguised as a boy was a danger to the youth of Merrimack, New Hampshire.

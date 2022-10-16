@@ -1,0 +1,8 @@
++++
+author = "Richard C. Armitage"
+title = '''It's bloody annoying being shy. I'll spend a whole evening at a party asking everyone else about themselves. I'm not being self-deprecating; it's because I'm too shy to talk about myself. So people come away from the evening actually having learnt nothing about me.'''
+description = '''the best Richard C. Armitage Quote: It's bloody annoying being shy. I'll spend a whole evening at a party asking everyone else about themselves. I'm not being self-deprecating; it's because I'm too shy to talk about myself. So people come away from the evening actually having learnt nothing about me.'''
+slug = '''its-bloody-annoying-being-shy-ill-spend-a-whole-evening-at-a-party-asking-everyone-else-about-themselves-im-not-being-self-deprecating-its-because-im-too-shy-to-talk-about-myself-so-people-come-away-from-the-evening-actually-having-learnt-nothing-about-me'''
+keywords = '''It's bloody annoying being shy. I'll spend a whole evening at a party asking everyone else about themselves. I'm not being self-deprecating; it's because I'm too shy to talk about myself. So people come away from the evening actually having learnt nothing about me.,richard c. armitage,richard c. armitage quotes,richard c. armitage quote,richard c. armitage sayings,richard c. armitage saying,quotes, sayings,quote, saying, motivation'''
++++
+It's bloody annoying being shy. I'll spend a whole evening at a party asking everyone else about themselves. I'm not being self-deprecating; it's because I'm too shy to talk about myself. So people come away from the evening actually having learnt nothing about me.

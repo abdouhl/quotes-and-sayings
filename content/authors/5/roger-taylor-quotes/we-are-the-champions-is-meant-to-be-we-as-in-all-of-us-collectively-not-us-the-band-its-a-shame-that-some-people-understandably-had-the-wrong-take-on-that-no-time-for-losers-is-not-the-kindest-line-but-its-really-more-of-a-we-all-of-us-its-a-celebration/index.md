@@ -1,0 +1,8 @@
++++
+author = "Roger Taylor"
+title = ''''We Are the Champions' is meant to be 'we,' as in 'all of us,' collectively, not us the band. It's a shame that some people understandably had the wrong take on that. 'No time for losers' is not the kindest line, but it's really more of a 'we all of us.' It's a celebration.'''
+description = '''the best Roger Taylor Quote: 'We Are the Champions' is meant to be 'we,' as in 'all of us,' collectively, not us the band. It's a shame that some people understandably had the wrong take on that. 'No time for losers' is not the kindest line, but it's really more of a 'we all of us.' It's a celebration.'''
+slug = '''we-are-the-champions-is-meant-to-be-we-as-in-all-of-us-collectively-not-us-the-band-its-a-shame-that-some-people-understandably-had-the-wrong-take-on-that-no-time-for-losers-is-not-the-kindest-line-but-its-really-more-of-a-we-all-of-us-its-a-celebration'''
+keywords = ''''We Are the Champions' is meant to be 'we,' as in 'all of us,' collectively, not us the band. It's a shame that some people understandably had the wrong take on that. 'No time for losers' is not the kindest line, but it's really more of a 'we all of us.' It's a celebration.,roger taylor,roger taylor quotes,roger taylor quote,roger taylor sayings,roger taylor saying,quotes, sayings,quote, saying, motivation'''
++++
+'We Are the Champions' is meant to be 'we,' as in 'all of us,' collectively, not us the band. It's a shame that some people understandably had the wrong take on that. 'No time for losers' is not the kindest line, but it's really more of a 'we all of us.' It's a celebration.
