@@ -1,0 +1,8 @@
++++
+author = "Ravichandran Ashwin"
+title = "Even if I've studied all there is to study, I get a nervous and twitchy feeling before the exam. Till I get the question paper I'm nervous. This somehow gives me a little bit extra when I'm on the field. I'm able to make decisions on the field just a bit quicker."
+description = "the best Ravichandran Ashwin Quote: Even if I've studied all there is to study, I get a nervous and twitchy feeling before the exam. Till I get the question paper I'm nervous. This somehow gives me a little bit extra when I'm on the field. I'm able to make decisions on the field just a bit quicker."
+slug = "even-if-ive-studied-all-there-is-to-study-i-get-a-nervous-and-twitchy-feeling-before-the-exam-till-i-get-the-question-paper-im-nervous-this-somehow-gives-me-a-little-bit-extra-when-im-on-the-field-im-able-to-make-decisions-on-the-field-just-a-bit-quicker"
+keywords = "Even if I've studied all there is to study, I get a nervous and twitchy feeling before the exam. Till I get the question paper I'm nervous. This somehow gives me a little bit extra when I'm on the field. I'm able to make decisions on the field just a bit quicker.,ravichandran ashwin,ravichandran ashwin quotes,ravichandran ashwin quote,ravichandran ashwin sayings,ravichandran ashwin saying,quotes, sayings,quote, saying, motivation"
++++
+Even if I've studied all there is to study, I get a nervous and twitchy feeling before the exam. Till I get the question paper I'm nervous. This somehow gives me a little bit extra when I'm on the field. I'm able to make decisions on the field just a bit quicker.

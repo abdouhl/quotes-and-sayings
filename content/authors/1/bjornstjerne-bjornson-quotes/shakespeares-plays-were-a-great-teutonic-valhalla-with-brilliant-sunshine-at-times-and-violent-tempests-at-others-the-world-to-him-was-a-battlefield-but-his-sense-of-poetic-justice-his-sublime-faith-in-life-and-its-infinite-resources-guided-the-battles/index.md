@@ -1,0 +1,8 @@
++++
+author = "Bjornstjerne Bjornson"
+title = "Shakespeare's plays were a great Teutonic Valhalla with brilliant sunshine at times and violent tempests at others. The world to him was a battlefield, but his sense of poetic justice, his sublime faith in life and its infinite resources, guided the battles."
+description = "the best Bjornstjerne Bjornson Quote: Shakespeare's plays were a great Teutonic Valhalla with brilliant sunshine at times and violent tempests at others. The world to him was a battlefield, but his sense of poetic justice, his sublime faith in life and its infinite resources, guided the battles."
+slug = "shakespeares-plays-were-a-great-teutonic-valhalla-with-brilliant-sunshine-at-times-and-violent-tempests-at-others-the-world-to-him-was-a-battlefield-but-his-sense-of-poetic-justice-his-sublime-faith-in-life-and-its-infinite-resources-guided-the-battles"
+keywords = "Shakespeare's plays were a great Teutonic Valhalla with brilliant sunshine at times and violent tempests at others. The world to him was a battlefield, but his sense of poetic justice, his sublime faith in life and its infinite resources, guided the battles.,bjornstjerne bjornson,bjornstjerne bjornson quotes,bjornstjerne bjornson quote,bjornstjerne bjornson sayings,bjornstjerne bjornson saying,quotes, sayings,quote, saying, motivation"
++++
+Shakespeare's plays were a great Teutonic Valhalla with brilliant sunshine at times and violent tempests at others. The world to him was a battlefield, but his sense of poetic justice, his sublime faith in life and its infinite resources, guided the battles.

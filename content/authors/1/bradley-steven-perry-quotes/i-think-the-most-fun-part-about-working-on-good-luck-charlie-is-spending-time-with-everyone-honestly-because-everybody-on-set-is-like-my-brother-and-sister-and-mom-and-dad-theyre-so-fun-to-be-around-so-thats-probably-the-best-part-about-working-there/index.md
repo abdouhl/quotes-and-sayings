@@ -1,0 +1,8 @@
++++
+author = "Bradley Steven Perry"
+title = "I think the most fun part about working on 'Good Luck Charlie' is spending time with everyone, honestly, because everybody on set is like my brother and sister and mom and dad. They're so fun to be around, so that's probably the best part about working there."
+description = "the best Bradley Steven Perry Quote: I think the most fun part about working on 'Good Luck Charlie' is spending time with everyone, honestly, because everybody on set is like my brother and sister and mom and dad. They're so fun to be around, so that's probably the best part about working there."
+slug = "i-think-the-most-fun-part-about-working-on-good-luck-charlie-is-spending-time-with-everyone-honestly-because-everybody-on-set-is-like-my-brother-and-sister-and-mom-and-dad-theyre-so-fun-to-be-around-so-thats-probably-the-best-part-about-working-there"
+keywords = "I think the most fun part about working on 'Good Luck Charlie' is spending time with everyone, honestly, because everybody on set is like my brother and sister and mom and dad. They're so fun to be around, so that's probably the best part about working there.,bradley steven perry,bradley steven perry quotes,bradley steven perry quote,bradley steven perry sayings,bradley steven perry saying,quotes, sayings,quote, saying, motivation"
++++
+I think the most fun part about working on 'Good Luck Charlie' is spending time with everyone, honestly, because everybody on set is like my brother and sister and mom and dad. They're so fun to be around, so that's probably the best part about working there.
