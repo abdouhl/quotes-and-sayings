@@ -1,0 +1,8 @@
++++
+author = "Rosalyn Sussman Yalow"
+title = '''We bequeath to you, the next generation, our knowledge but also our problems. While we still live, let us join hands, hearts and minds to work together for their solution so that your world will be better than ours and the world of your children even better.'''
+description = '''the best Rosalyn Sussman Yalow Quote: We bequeath to you, the next generation, our knowledge but also our problems. While we still live, let us join hands, hearts and minds to work together for their solution so that your world will be better than ours and the world of your children even better.'''
+slug = '''we-bequeath-to-you-the-next-generation-our-knowledge-but-also-our-problems-while-we-still-live-let-us-join-hands-hearts-and-minds-to-work-together-for-their-solution-so-that-your-world-will-be-better-than-ours-and-the-world-of-your-children-even-better'''
+keywords = '''We bequeath to you, the next generation, our knowledge but also our problems. While we still live, let us join hands, hearts and minds to work together for their solution so that your world will be better than ours and the world of your children even better.,rosalyn sussman yalow,rosalyn sussman yalow quotes,rosalyn sussman yalow quote,rosalyn sussman yalow sayings,rosalyn sussman yalow saying,quotes, sayings,quote, saying, motivation'''
++++
+We bequeath to you, the next generation, our knowledge but also our problems. While we still live, let us join hands, hearts and minds to work together for their solution so that your world will be better than ours and the world of your children even better.

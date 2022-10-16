@@ -1,0 +1,8 @@
++++
+author = "Ruth Bader Ginsburg"
+title = '''If you want to influence people, you want them to accept your suggestions, you don't say, 'You don't know how to use the English language,' or 'How could you make that argument?' It will be welcomed much more if you have a gentle touch than if you are aggressive.'''
+description = '''the best Ruth Bader Ginsburg Quote: If you want to influence people, you want them to accept your suggestions, you don't say, 'You don't know how to use the English language,' or 'How could you make that argument?' It will be welcomed much more if you have a gentle touch than if you are aggressive.'''
+slug = '''if-you-want-to-influence-people-you-want-them-to-accept-your-suggestions-you-dont-say-you-dont-know-how-to-use-the-english-language-or-how-could-you-make-that-argument?-it-will-be-welcomed-much-more-if-you-have-a-gentle-touch-than-if-you-are-aggressive'''
+keywords = '''If you want to influence people, you want them to accept your suggestions, you don't say, 'You don't know how to use the English language,' or 'How could you make that argument?' It will be welcomed much more if you have a gentle touch than if you are aggressive.,ruth bader ginsburg,ruth bader ginsburg quotes,ruth bader ginsburg quote,ruth bader ginsburg sayings,ruth bader ginsburg saying,quotes, sayings,quote, saying, motivation'''
++++
+If you want to influence people, you want them to accept your suggestions, you don't say, 'You don't know how to use the English language,' or 'How could you make that argument?' It will be welcomed much more if you have a gentle touch than if you are aggressive.

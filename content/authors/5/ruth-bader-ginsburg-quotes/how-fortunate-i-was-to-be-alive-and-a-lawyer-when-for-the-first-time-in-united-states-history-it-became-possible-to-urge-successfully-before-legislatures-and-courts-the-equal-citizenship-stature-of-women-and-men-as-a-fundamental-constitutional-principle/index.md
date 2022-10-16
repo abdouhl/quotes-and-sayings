@@ -1,0 +1,8 @@
++++
+author = "Ruth Bader Ginsburg"
+title = '''How fortunate I was to be alive and a lawyer when, for the first time in United States history, it became possible to urge, successfully, before legislatures and courts, the equal-citizenship stature of women and men as a fundamental constitutional principle.'''
+description = '''the best Ruth Bader Ginsburg Quote: How fortunate I was to be alive and a lawyer when, for the first time in United States history, it became possible to urge, successfully, before legislatures and courts, the equal-citizenship stature of women and men as a fundamental constitutional principle.'''
+slug = '''how-fortunate-i-was-to-be-alive-and-a-lawyer-when-for-the-first-time-in-united-states-history-it-became-possible-to-urge-successfully-before-legislatures-and-courts-the-equal-citizenship-stature-of-women-and-men-as-a-fundamental-constitutional-principle'''
+keywords = '''How fortunate I was to be alive and a lawyer when, for the first time in United States history, it became possible to urge, successfully, before legislatures and courts, the equal-citizenship stature of women and men as a fundamental constitutional principle.,ruth bader ginsburg,ruth bader ginsburg quotes,ruth bader ginsburg quote,ruth bader ginsburg sayings,ruth bader ginsburg saying,quotes, sayings,quote, saying, motivation'''
++++
+How fortunate I was to be alive and a lawyer when, for the first time in United States history, it became possible to urge, successfully, before legislatures and courts, the equal-citizenship stature of women and men as a fundamental constitutional principle.

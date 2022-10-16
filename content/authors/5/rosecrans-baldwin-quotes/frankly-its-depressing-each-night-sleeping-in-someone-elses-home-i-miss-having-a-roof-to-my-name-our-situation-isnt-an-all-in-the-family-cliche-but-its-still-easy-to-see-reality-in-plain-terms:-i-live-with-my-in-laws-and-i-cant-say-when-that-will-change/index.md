@@ -1,0 +1,8 @@
++++
+author = "Rosecrans Baldwin"
+title = '''Frankly, it's depressing, each night sleeping in someone else's home. I miss having a roof to my name. Our situation isn't an 'All in the Family' cliche, but it's still easy to see reality in plain terms: I live with my in-laws, and I can't say when that will change.'''
+description = '''the best Rosecrans Baldwin Quote: Frankly, it's depressing, each night sleeping in someone else's home. I miss having a roof to my name. Our situation isn't an 'All in the Family' cliche, but it's still easy to see reality in plain terms: I live with my in-laws, and I can't say when that will change.'''
+slug = '''frankly-its-depressing-each-night-sleeping-in-someone-elses-home-i-miss-having-a-roof-to-my-name-our-situation-isnt-an-all-in-the-family-cliche-but-its-still-easy-to-see-reality-in-plain-terms:-i-live-with-my-in-laws-and-i-cant-say-when-that-will-change'''
+keywords = '''Frankly, it's depressing, each night sleeping in someone else's home. I miss having a roof to my name. Our situation isn't an 'All in the Family' cliche, but it's still easy to see reality in plain terms: I live with my in-laws, and I can't say when that will change.,rosecrans baldwin,rosecrans baldwin quotes,rosecrans baldwin quote,rosecrans baldwin sayings,rosecrans baldwin saying,quotes, sayings,quote, saying, motivation'''
++++
+Frankly, it's depressing, each night sleeping in someone else's home. I miss having a roof to my name. Our situation isn't an 'All in the Family' cliche, but it's still easy to see reality in plain terms: I live with my in-laws, and I can't say when that will change.

@@ -1,0 +1,8 @@
++++
+author = "Ruby Bridges"
+title = '''I remember the first time seeing myself on TV, when my family was watching the documentary 'Eyes on the Prize' for the first time. There were pictures of people going up the school stairs, and Mom said, 'Oh, that's you!' I said, 'I can't believe this. This is important.''''
+description = '''the best Ruby Bridges Quote: I remember the first time seeing myself on TV, when my family was watching the documentary 'Eyes on the Prize' for the first time. There were pictures of people going up the school stairs, and Mom said, 'Oh, that's you!' I said, 'I can't believe this. This is important.''''
+slug = '''i-remember-the-first-time-seeing-myself-on-tv-when-my-family-was-watching-the-documentary-eyes-on-the-prize-for-the-first-time-there-were-pictures-of-people-going-up-the-school-stairs-and-mom-said-oh-thats-you!-i-said-i-cant-believe-this-this-is-important'''
+keywords = '''I remember the first time seeing myself on TV, when my family was watching the documentary 'Eyes on the Prize' for the first time. There were pictures of people going up the school stairs, and Mom said, 'Oh, that's you!' I said, 'I can't believe this. This is important.',ruby bridges,ruby bridges quotes,ruby bridges quote,ruby bridges sayings,ruby bridges saying,quotes, sayings,quote, saying, motivation'''
++++
+I remember the first time seeing myself on TV, when my family was watching the documentary 'Eyes on the Prize' for the first time. There were pictures of people going up the school stairs, and Mom said, 'Oh, that's you!' I said, 'I can't believe this. This is important.'
