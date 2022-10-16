@@ -1,0 +1,8 @@
++++
+author = "Bj The Chicago Kid"
+title = '''I definitely have a relationship with God for myself, and yes I grew up that way, and I choose to keep the relationship that way. It's real; that's my balance. Sundays, I was in church, and Monday through Friday, I was with the knuckleheads having a little fun.'''
+description = '''the best Bj The Chicago Kid Quote: I definitely have a relationship with God for myself, and yes I grew up that way, and I choose to keep the relationship that way. It's real; that's my balance. Sundays, I was in church, and Monday through Friday, I was with the knuckleheads having a little fun.'''
+slug = '''i-definitely-have-a-relationship-with-god-for-myself-and-yes-i-grew-up-that-way-and-i-choose-to-keep-the-relationship-that-way-its-real-thats-my-balance-sundays-i-was-in-church-and-monday-through-friday-i-was-with-the-knuckleheads-having-a-little-fun'''
+keywords = '''I definitely have a relationship with God for myself, and yes I grew up that way, and I choose to keep the relationship that way. It's real; that's my balance. Sundays, I was in church, and Monday through Friday, I was with the knuckleheads having a little fun.,bj the chicago kid,bj the chicago kid quotes,bj the chicago kid quote,bj the chicago kid sayings,bj the chicago kid saying,quotes, sayings,quote, saying, motivation'''
++++
+I definitely have a relationship with God for myself, and yes I grew up that way, and I choose to keep the relationship that way. It's real; that's my balance. Sundays, I was in church, and Monday through Friday, I was with the knuckleheads having a little fun.

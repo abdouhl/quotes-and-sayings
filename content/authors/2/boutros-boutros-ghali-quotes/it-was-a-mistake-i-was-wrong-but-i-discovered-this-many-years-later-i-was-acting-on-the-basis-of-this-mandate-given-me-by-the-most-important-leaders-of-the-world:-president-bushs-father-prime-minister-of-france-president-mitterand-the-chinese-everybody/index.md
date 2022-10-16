@@ -1,0 +1,8 @@
++++
+author = "Boutros Boutros-Ghali"
+title = '''It was a mistake. I was wrong, but I discovered this many years later. I was acting on the basis of this mandate given me by the most important leaders of the world: President Bush's father, prime minister of France, President Mitterand, the Chinese, everybody.'''
+description = '''the best Boutros Boutros-Ghali Quote: It was a mistake. I was wrong, but I discovered this many years later. I was acting on the basis of this mandate given me by the most important leaders of the world: President Bush's father, prime minister of France, President Mitterand, the Chinese, everybody.'''
+slug = '''it-was-a-mistake-i-was-wrong-but-i-discovered-this-many-years-later-i-was-acting-on-the-basis-of-this-mandate-given-me-by-the-most-important-leaders-of-the-world:-president-bushs-father-prime-minister-of-france-president-mitterand-the-chinese-everybody'''
+keywords = '''It was a mistake. I was wrong, but I discovered this many years later. I was acting on the basis of this mandate given me by the most important leaders of the world: President Bush's father, prime minister of France, President Mitterand, the Chinese, everybody.,boutros boutros-ghali,boutros boutros-ghali quotes,boutros boutros-ghali quote,boutros boutros-ghali sayings,boutros boutros-ghali saying,quotes, sayings,quote, saying, motivation'''
++++
+It was a mistake. I was wrong, but I discovered this many years later. I was acting on the basis of this mandate given me by the most important leaders of the world: President Bush's father, prime minister of France, President Mitterand, the Chinese, everybody.
