@@ -1,0 +1,8 @@
++++
+author = "Catherine Hardwicke"
+title = '''When you're in a creative flow with somebody - and I had this back in architecture school - you're just so passionate about what you're doing, and if that other person is just as passionate, you'll be madly in love with them. It's just that thrill of creating.'''
+description = '''the best Catherine Hardwicke Quote: When you're in a creative flow with somebody - and I had this back in architecture school - you're just so passionate about what you're doing, and if that other person is just as passionate, you'll be madly in love with them. It's just that thrill of creating.'''
+slug = '''when-youre-in-a-creative-flow-with-somebody---and-i-had-this-back-in-architecture-school---youre-just-so-passionate-about-what-youre-doing-and-if-that-other-person-is-just-as-passionate-youll-be-madly-in-love-with-them-its-just-that-thrill-of-creating'''
+keywords = '''When you're in a creative flow with somebody - and I had this back in architecture school - you're just so passionate about what you're doing, and if that other person is just as passionate, you'll be madly in love with them. It's just that thrill of creating.,catherine hardwicke,catherine hardwicke quotes,catherine hardwicke quote,catherine hardwicke sayings,catherine hardwicke saying,quotes, sayings,quote, saying, motivation'''
++++
+When you're in a creative flow with somebody - and I had this back in architecture school - you're just so passionate about what you're doing, and if that other person is just as passionate, you'll be madly in love with them. It's just that thrill of creating.
