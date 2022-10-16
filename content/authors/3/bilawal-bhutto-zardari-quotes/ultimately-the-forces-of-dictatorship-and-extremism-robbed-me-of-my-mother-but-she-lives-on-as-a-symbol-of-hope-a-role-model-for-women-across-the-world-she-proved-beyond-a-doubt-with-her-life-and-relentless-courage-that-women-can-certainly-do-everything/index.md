@@ -1,0 +1,8 @@
++++
+author = "Bilawal Bhutto Zardari"
+title = '''Ultimately, the forces of dictatorship and extremism robbed me of my mother, but she lives on as a symbol of hope, a role model for women across the world. She proved beyond a doubt, with her life and relentless courage, that women can certainly do everything.'''
+description = '''the best Bilawal Bhutto Zardari Quote: Ultimately, the forces of dictatorship and extremism robbed me of my mother, but she lives on as a symbol of hope, a role model for women across the world. She proved beyond a doubt, with her life and relentless courage, that women can certainly do everything.'''
+slug = '''ultimately-the-forces-of-dictatorship-and-extremism-robbed-me-of-my-mother-but-she-lives-on-as-a-symbol-of-hope-a-role-model-for-women-across-the-world-she-proved-beyond-a-doubt-with-her-life-and-relentless-courage-that-women-can-certainly-do-everything'''
+keywords = '''Ultimately, the forces of dictatorship and extremism robbed me of my mother, but she lives on as a symbol of hope, a role model for women across the world. She proved beyond a doubt, with her life and relentless courage, that women can certainly do everything.,bilawal bhutto zardari,bilawal bhutto zardari quotes,bilawal bhutto zardari quote,bilawal bhutto zardari sayings,bilawal bhutto zardari saying,quotes, sayings,quote, saying, motivation'''
++++
+Ultimately, the forces of dictatorship and extremism robbed me of my mother, but she lives on as a symbol of hope, a role model for women across the world. She proved beyond a doubt, with her life and relentless courage, that women can certainly do everything.

@@ -1,0 +1,8 @@
++++
+author = "Brandon Flowers"
+title = '''As I've gotten older, I've wanted to represent Las Vegas more. Represent the Southwest. It's a magical place. The desert. I do understand people's criticisms, but it's a magical place and a beautiful city, even though there are a lot of things that are wrong with it.'''
+description = '''the best Brandon Flowers Quote: As I've gotten older, I've wanted to represent Las Vegas more. Represent the Southwest. It's a magical place. The desert. I do understand people's criticisms, but it's a magical place and a beautiful city, even though there are a lot of things that are wrong with it.'''
+slug = '''as-ive-gotten-older-ive-wanted-to-represent-las-vegas-more-represent-the-southwest-its-a-magical-place-the-desert-i-do-understand-peoples-criticisms-but-its-a-magical-place-and-a-beautiful-city-even-though-there-are-a-lot-of-things-that-are-wrong-with-it'''
+keywords = '''As I've gotten older, I've wanted to represent Las Vegas more. Represent the Southwest. It's a magical place. The desert. I do understand people's criticisms, but it's a magical place and a beautiful city, even though there are a lot of things that are wrong with it.,brandon flowers,brandon flowers quotes,brandon flowers quote,brandon flowers sayings,brandon flowers saying,quotes, sayings,quote, saying, motivation'''
++++
+As I've gotten older, I've wanted to represent Las Vegas more. Represent the Southwest. It's a magical place. The desert. I do understand people's criticisms, but it's a magical place and a beautiful city, even though there are a lot of things that are wrong with it.
