@@ -1,0 +1,8 @@
++++
+author = "Kourtney Kardashian"
+title = '''Everyday... well, if I'm doing it myself, I have my five-minute makeup routine, which is I do tinted moisturizer, and then I do a quick concealer, and I use our bronzer every day. And then I have to curl my lashes, and then I do our Quickie mascara, and that's it.'''
+description = '''the best Kourtney Kardashian Quote: Everyday... well, if I'm doing it myself, I have my five-minute makeup routine, which is I do tinted moisturizer, and then I do a quick concealer, and I use our bronzer every day. And then I have to curl my lashes, and then I do our Quickie mascara, and that's it.'''
+slug = '''everyday-well-if-im-doing-it-myself-i-have-my-five-minute-makeup-routine-which-is-i-do-tinted-moisturizer-and-then-i-do-a-quick-concealer-and-i-use-our-bronzer-every-day-and-then-i-have-to-curl-my-lashes-and-then-i-do-our-quickie-mascara-and-thats-it'''
+keywords = '''Everyday... well, if I'm doing it myself, I have my five-minute makeup routine, which is I do tinted moisturizer, and then I do a quick concealer, and I use our bronzer every day. And then I have to curl my lashes, and then I do our Quickie mascara, and that's it.,kourtney kardashian,kourtney kardashian quotes,kourtney kardashian quote,kourtney kardashian sayings,kourtney kardashian saying,quotes, sayings,quote, saying, motivation'''
++++
+Everyday... well, if I'm doing it myself, I have my five-minute makeup routine, which is I do tinted moisturizer, and then I do a quick concealer, and I use our bronzer every day. And then I have to curl my lashes, and then I do our Quickie mascara, and that's it.

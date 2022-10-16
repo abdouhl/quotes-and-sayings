@@ -1,0 +1,8 @@
++++
+author = "Kerry James Marshall"
+title = '''My introduction to art history was like everybody else's. You see an art history book that has works by Rembrandt and Leonardo da Vinci and Michelangelo. Yes, these things are great. But I don't see a reflection of myself in any of these things I'm looking at.'''
+description = '''the best Kerry James Marshall Quote: My introduction to art history was like everybody else's. You see an art history book that has works by Rembrandt and Leonardo da Vinci and Michelangelo. Yes, these things are great. But I don't see a reflection of myself in any of these things I'm looking at.'''
+slug = '''my-introduction-to-art-history-was-like-everybody-elses-you-see-an-art-history-book-that-has-works-by-rembrandt-and-leonardo-da-vinci-and-michelangelo-yes-these-things-are-great-but-i-dont-see-a-reflection-of-myself-in-any-of-these-things-im-looking-at'''
+keywords = '''My introduction to art history was like everybody else's. You see an art history book that has works by Rembrandt and Leonardo da Vinci and Michelangelo. Yes, these things are great. But I don't see a reflection of myself in any of these things I'm looking at.,kerry james marshall,kerry james marshall quotes,kerry james marshall quote,kerry james marshall sayings,kerry james marshall saying,quotes, sayings,quote, saying, motivation'''
++++
+My introduction to art history was like everybody else's. You see an art history book that has works by Rembrandt and Leonardo da Vinci and Michelangelo. Yes, these things are great. But I don't see a reflection of myself in any of these things I'm looking at.
