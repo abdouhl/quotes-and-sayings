@@ -1,0 +1,8 @@
++++
+author = "Rosalynn Carter"
+title = '''You must accept that you might fail; then, if you do your best and still don't win, at least you can be satisfied that you've tried. If you don't accept failure as a possibility, you don't set high goals, you don't branch out, you don't try - you don't take the risk.'''
+description = '''the best Rosalynn Carter Quote: You must accept that you might fail; then, if you do your best and still don't win, at least you can be satisfied that you've tried. If you don't accept failure as a possibility, you don't set high goals, you don't branch out, you don't try - you don't take the risk.'''
+slug = '''you-must-accept-that-you-might-fail-then-if-you-do-your-best-and-still-dont-win-at-least-you-can-be-satisfied-that-youve-tried-if-you-dont-accept-failure-as-a-possibility-you-dont-set-high-goals-you-dont-branch-out-you-dont-try---you-dont-take-the-risk'''
+keywords = '''You must accept that you might fail; then, if you do your best and still don't win, at least you can be satisfied that you've tried. If you don't accept failure as a possibility, you don't set high goals, you don't branch out, you don't try - you don't take the risk.,rosalynn carter,rosalynn carter quotes,rosalynn carter quote,rosalynn carter sayings,rosalynn carter saying,quotes, sayings,quote, saying, motivation'''
++++
+You must accept that you might fail; then, if you do your best and still don't win, at least you can be satisfied that you've tried. If you don't accept failure as a possibility, you don't set high goals, you don't branch out, you don't try - you don't take the risk.

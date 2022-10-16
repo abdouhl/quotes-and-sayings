@@ -1,0 +1,8 @@
++++
+author = "Richard Simmons"
+title = '''You are one of a kind and unique. Never forget that.'''
+description = '''the best Richard Simmons Quote: You are one of a kind and unique. Never forget that.'''
+slug = '''you-are-one-of-a-kind-and-unique-never-forget-that'''
+keywords = '''You are one of a kind and unique. Never forget that.,richard simmons,richard simmons quotes,richard simmons quote,richard simmons sayings,richard simmons saying,quotes, sayings,quote, saying, motivation'''
++++
+You are one of a kind and unique. Never forget that.

@@ -1,0 +1,8 @@
++++
+author = "Raymond E. Feist"
+title = '''Any good story can galvanize a person, make him/her think about things a different way, reassess their own motives and needs, but that's never my intent. That's an unintended consequence of me just trying to entertain, to write what we used to call 'ripping yarns.''''
+description = '''the best Raymond E. Feist Quote: Any good story can galvanize a person, make him/her think about things a different way, reassess their own motives and needs, but that's never my intent. That's an unintended consequence of me just trying to entertain, to write what we used to call 'ripping yarns.''''
+slug = '''any-good-story-can-galvanize-a-person-make-himher-think-about-things-a-different-way-reassess-their-own-motives-and-needs-but-thats-never-my-intent-thats-an-unintended-consequence-of-me-just-trying-to-entertain-to-write-what-we-used-to-call-ripping-yarns'''
+keywords = '''Any good story can galvanize a person, make him/her think about things a different way, reassess their own motives and needs, but that's never my intent. That's an unintended consequence of me just trying to entertain, to write what we used to call 'ripping yarns.',raymond e. feist,raymond e. feist quotes,raymond e. feist quote,raymond e. feist sayings,raymond e. feist saying,quotes, sayings,quote, saying, motivation'''
++++
+Any good story can galvanize a person, make him/her think about things a different way, reassess their own motives and needs, but that's never my intent. That's an unintended consequence of me just trying to entertain, to write what we used to call 'ripping yarns.'
