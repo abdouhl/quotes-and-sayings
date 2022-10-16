@@ -1,0 +1,8 @@
++++
+author = "Ricki-Lee Coulter"
+title = '''Nothing that I've done has been conventional. I didn't go with a major label, I didn't sign up with the bigwig management that basically has everyone but doesn't have time for anyone. I didn't win 'Idol' - I was seventh. I don't do anything how everybody else does it.'''
+description = '''the best Ricki-Lee Coulter Quote: Nothing that I've done has been conventional. I didn't go with a major label, I didn't sign up with the bigwig management that basically has everyone but doesn't have time for anyone. I didn't win 'Idol' - I was seventh. I don't do anything how everybody else does it.'''
+slug = '''nothing-that-ive-done-has-been-conventional-i-didnt-go-with-a-major-label-i-didnt-sign-up-with-the-bigwig-management-that-basically-has-everyone-but-doesnt-have-time-for-anyone-i-didnt-win-idol---i-was-seventh-i-dont-do-anything-how-everybody-else-does-it'''
+keywords = '''Nothing that I've done has been conventional. I didn't go with a major label, I didn't sign up with the bigwig management that basically has everyone but doesn't have time for anyone. I didn't win 'Idol' - I was seventh. I don't do anything how everybody else does it.,ricki-lee coulter,ricki-lee coulter quotes,ricki-lee coulter quote,ricki-lee coulter sayings,ricki-lee coulter saying,quotes, sayings,quote, saying, motivation'''
++++
+Nothing that I've done has been conventional. I didn't go with a major label, I didn't sign up with the bigwig management that basically has everyone but doesn't have time for anyone. I didn't win 'Idol' - I was seventh. I don't do anything how everybody else does it.

@@ -1,0 +1,8 @@
++++
+author = "Ruben Santiago-Hudson"
+title = '''Some of the young kids look for one hit to be a star; that what they're known for the rest of their life... I never wanted to be known as one thing; that is the reason I do classical theater, write, direct and the blessings God has given me... I want to share.'''
+description = '''the best Ruben Santiago-Hudson Quote: Some of the young kids look for one hit to be a star; that what they're known for the rest of their life... I never wanted to be known as one thing; that is the reason I do classical theater, write, direct and the blessings God has given me... I want to share.'''
+slug = '''some-of-the-young-kids-look-for-one-hit-to-be-a-star-that-what-theyre-known-for-the-rest-of-their-life-i-never-wanted-to-be-known-as-one-thing-that-is-the-reason-i-do-classical-theater-write-direct-and-the-blessings-god-has-given-me-i-want-to-share'''
+keywords = '''Some of the young kids look for one hit to be a star; that what they're known for the rest of their life... I never wanted to be known as one thing; that is the reason I do classical theater, write, direct and the blessings God has given me... I want to share.,ruben santiago-hudson,ruben santiago-hudson quotes,ruben santiago-hudson quote,ruben santiago-hudson sayings,ruben santiago-hudson saying,quotes, sayings,quote, saying, motivation'''
++++
+Some of the young kids look for one hit to be a star; that what they're known for the rest of their life... I never wanted to be known as one thing; that is the reason I do classical theater, write, direct and the blessings God has given me... I want to share.

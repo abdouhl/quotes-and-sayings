@@ -1,0 +1,8 @@
++++
+author = "Robert Carlyle"
+title = '''A lot of the characters I play have problems, they are marginalised, they have serious psychological problems, problems with relationships, with childhood. These are big subjects, big subjects. You can't balk at work like that. As an actor, that's as good as it gets.'''
+description = '''the best Robert Carlyle Quote: A lot of the characters I play have problems, they are marginalised, they have serious psychological problems, problems with relationships, with childhood. These are big subjects, big subjects. You can't balk at work like that. As an actor, that's as good as it gets.'''
+slug = '''a-lot-of-the-characters-i-play-have-problems-they-are-marginalised-they-have-serious-psychological-problems-problems-with-relationships-with-childhood-these-are-big-subjects-big-subjects-you-cant-balk-at-work-like-that-as-an-actor-thats-as-good-as-it-gets'''
+keywords = '''A lot of the characters I play have problems, they are marginalised, they have serious psychological problems, problems with relationships, with childhood. These are big subjects, big subjects. You can't balk at work like that. As an actor, that's as good as it gets.,robert carlyle,robert carlyle quotes,robert carlyle quote,robert carlyle sayings,robert carlyle saying,quotes, sayings,quote, saying, motivation'''
++++
+A lot of the characters I play have problems, they are marginalised, they have serious psychological problems, problems with relationships, with childhood. These are big subjects, big subjects. You can't balk at work like that. As an actor, that's as good as it gets.

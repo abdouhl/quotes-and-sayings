@@ -1,0 +1,8 @@
++++
+author = "Richard Corliss"
+title = ''''Noah' is about a man whose mission is to obliterate Earth's past and godfather its future. Replacing the word 'God' with 'Creator' and taking other scriptural liberties, the movie risks confusing those who don't take the Bible literally and alienating those who do.'''
+description = '''the best Richard Corliss Quote: 'Noah' is about a man whose mission is to obliterate Earth's past and godfather its future. Replacing the word 'God' with 'Creator' and taking other scriptural liberties, the movie risks confusing those who don't take the Bible literally and alienating those who do.'''
+slug = '''noah-is-about-a-man-whose-mission-is-to-obliterate-earths-past-and-godfather-its-future-replacing-the-word-god-with-creator-and-taking-other-scriptural-liberties-the-movie-risks-confusing-those-who-dont-take-the-bible-literally-and-alienating-those-who-do'''
+keywords = ''''Noah' is about a man whose mission is to obliterate Earth's past and godfather its future. Replacing the word 'God' with 'Creator' and taking other scriptural liberties, the movie risks confusing those who don't take the Bible literally and alienating those who do.,richard corliss,richard corliss quotes,richard corliss quote,richard corliss sayings,richard corliss saying,quotes, sayings,quote, saying, motivation'''
++++
+'Noah' is about a man whose mission is to obliterate Earth's past and godfather its future. Replacing the word 'God' with 'Creator' and taking other scriptural liberties, the movie risks confusing those who don't take the Bible literally and alienating those who do.

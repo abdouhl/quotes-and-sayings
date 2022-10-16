@@ -1,0 +1,8 @@
++++
+author = "Renee Elise Goldsberry"
+title = '''When I first became a mother, I didn't want my son to have any extra exposure to what I did. I had this theory that if he wanted to do what I do for a living, it should be organic and come from him, not from the fact that this was just what he saw all the time.'''
+description = '''the best Renee Elise Goldsberry Quote: When I first became a mother, I didn't want my son to have any extra exposure to what I did. I had this theory that if he wanted to do what I do for a living, it should be organic and come from him, not from the fact that this was just what he saw all the time.'''
+slug = '''when-i-first-became-a-mother-i-didnt-want-my-son-to-have-any-extra-exposure-to-what-i-did-i-had-this-theory-that-if-he-wanted-to-do-what-i-do-for-a-living-it-should-be-organic-and-come-from-him-not-from-the-fact-that-this-was-just-what-he-saw-all-the-time'''
+keywords = '''When I first became a mother, I didn't want my son to have any extra exposure to what I did. I had this theory that if he wanted to do what I do for a living, it should be organic and come from him, not from the fact that this was just what he saw all the time.,renee elise goldsberry,renee elise goldsberry quotes,renee elise goldsberry quote,renee elise goldsberry sayings,renee elise goldsberry saying,quotes, sayings,quote, saying, motivation'''
++++
+When I first became a mother, I didn't want my son to have any extra exposure to what I did. I had this theory that if he wanted to do what I do for a living, it should be organic and come from him, not from the fact that this was just what he saw all the time.

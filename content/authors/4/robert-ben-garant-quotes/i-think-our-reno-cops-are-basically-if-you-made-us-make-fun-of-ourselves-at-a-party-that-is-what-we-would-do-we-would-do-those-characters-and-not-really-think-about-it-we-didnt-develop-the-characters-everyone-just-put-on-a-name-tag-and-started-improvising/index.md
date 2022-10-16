@@ -1,0 +1,8 @@
++++
+author = "Robert Ben Garant"
+title = '''I think our 'Reno' cops are, basically, if you made us make fun of ourselves at a party. That is what we would do. We would do those characters and not really think about it. We didn't develop the characters; everyone just put on a name tag and started improvising.'''
+description = '''the best Robert Ben Garant Quote: I think our 'Reno' cops are, basically, if you made us make fun of ourselves at a party. That is what we would do. We would do those characters and not really think about it. We didn't develop the characters; everyone just put on a name tag and started improvising.'''
+slug = '''i-think-our-reno-cops-are-basically-if-you-made-us-make-fun-of-ourselves-at-a-party-that-is-what-we-would-do-we-would-do-those-characters-and-not-really-think-about-it-we-didnt-develop-the-characters-everyone-just-put-on-a-name-tag-and-started-improvising'''
+keywords = '''I think our 'Reno' cops are, basically, if you made us make fun of ourselves at a party. That is what we would do. We would do those characters and not really think about it. We didn't develop the characters; everyone just put on a name tag and started improvising.,robert ben garant,robert ben garant quotes,robert ben garant quote,robert ben garant sayings,robert ben garant saying,quotes, sayings,quote, saying, motivation'''
++++
+I think our 'Reno' cops are, basically, if you made us make fun of ourselves at a party. That is what we would do. We would do those characters and not really think about it. We didn't develop the characters; everyone just put on a name tag and started improvising.

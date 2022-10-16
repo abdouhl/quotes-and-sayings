@@ -1,0 +1,8 @@
++++
+author = "Robert P. Mcculloch"
+title = '''Several witnesses describe seeing an altercation in the car between Mr. Brown and Officer Wilson. It was described as wrestling, tug-of-war. Several other witnesses described Mr. Brown as punching Officer Wilson while Mr. Brown was partially inside the vehicle.'''
+description = '''the best Robert P. Mcculloch Quote: Several witnesses describe seeing an altercation in the car between Mr. Brown and Officer Wilson. It was described as wrestling, tug-of-war. Several other witnesses described Mr. Brown as punching Officer Wilson while Mr. Brown was partially inside the vehicle.'''
+slug = '''several-witnesses-describe-seeing-an-altercation-in-the-car-between-mr-brown-and-officer-wilson-it-was-described-as-wrestling-tug-of-war-several-other-witnesses-described-mr-brown-as-punching-officer-wilson-while-mr-brown-was-partially-inside-the-vehicle'''
+keywords = '''Several witnesses describe seeing an altercation in the car between Mr. Brown and Officer Wilson. It was described as wrestling, tug-of-war. Several other witnesses described Mr. Brown as punching Officer Wilson while Mr. Brown was partially inside the vehicle.,robert p. mcculloch,robert p. mcculloch quotes,robert p. mcculloch quote,robert p. mcculloch sayings,robert p. mcculloch saying,quotes, sayings,quote, saying, motivation'''
++++
+Several witnesses describe seeing an altercation in the car between Mr. Brown and Officer Wilson. It was described as wrestling, tug-of-war. Several other witnesses described Mr. Brown as punching Officer Wilson while Mr. Brown was partially inside the vehicle.

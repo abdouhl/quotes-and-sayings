@@ -1,0 +1,8 @@
++++
+author = "Richard Dreyfuss"
+title = '''When you Google me, you'll find a lot of people don't like Richard Dreyfuss. Because I'm cocky and I present a cocky attitude. But no one has ever disagreed with the notion I represent, that we need more civic education. So far there's 100 percent support for that.'''
+description = '''the best Richard Dreyfuss Quote: When you Google me, you'll find a lot of people don't like Richard Dreyfuss. Because I'm cocky and I present a cocky attitude. But no one has ever disagreed with the notion I represent, that we need more civic education. So far there's 100 percent support for that.'''
+slug = '''when-you-google-me-youll-find-a-lot-of-people-dont-like-richard-dreyfuss-because-im-cocky-and-i-present-a-cocky-attitude-but-no-one-has-ever-disagreed-with-the-notion-i-represent-that-we-need-more-civic-education-so-far-theres-100-percent-support-for-that'''
+keywords = '''When you Google me, you'll find a lot of people don't like Richard Dreyfuss. Because I'm cocky and I present a cocky attitude. But no one has ever disagreed with the notion I represent, that we need more civic education. So far there's 100 percent support for that.,richard dreyfuss,richard dreyfuss quotes,richard dreyfuss quote,richard dreyfuss sayings,richard dreyfuss saying,quotes, sayings,quote, saying, motivation'''
++++
+When you Google me, you'll find a lot of people don't like Richard Dreyfuss. Because I'm cocky and I present a cocky attitude. But no one has ever disagreed with the notion I represent, that we need more civic education. So far there's 100 percent support for that.
