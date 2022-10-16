@@ -1,5 +1,5 @@
 +++
 title = "Quotes and Sayings"
-description = "the best Quotes WebSite"
+description = "fthe best Quotes WebSite"
 keywords = "quotes, sayings, motivation"
 +++
