@@ -1,8 +1,0 @@
-+++
-author = "Bonnie Bassler"
-title = "It's a manic-depressive life. You run in here, you open your incubator, your experiment makes no sense, you think, 'I hate this job.' Then ten minutes later you think, 'Well, now, maybe I'll try this or I'll try that.' You do it because you know there will be an 'a-ha!' day."
-description = "the best Bonnie Bassler Quote: It's a manic-depressive life. You run in here, you open your incubator, your experiment makes no sense, you think, 'I hate this job.' Then ten minutes later you think, 'Well, now, maybe I'll try this or I'll try that.' You do it because you know there will be an 'a-ha!' day."
-slug = "its-a-manic-depressive-life-you-run-in-here-you-open-your-incubator-your-experiment-makes-no-sense-you-think-i-hate-this-job-then-ten-minutes-later-you-think-well-now-maybe-ill-try-this-or-ill-try-that-you-do-it-because-you-know-there-will-be-an-a-ha!-day"
-keywords = "It's a manic-depressive life. You run in here, you open your incubator, your experiment makes no sense, you think, 'I hate this job.' Then ten minutes later you think, 'Well, now, maybe I'll try this or I'll try that.' You do it because you know there will be an 'a-ha!' day.,bonnie bassler,bonnie bassler quotes,bonnie bassler quote,bonnie bassler sayings,bonnie bassler saying,quotes, sayings,quote, saying, motivation"
-+++
-It's a manic-depressive life. You run in here, you open your incubator, your experiment makes no sense, you think, 'I hate this job.' Then ten minutes later you think, 'Well, now, maybe I'll try this or I'll try that.' You do it because you know there will be an 'a-ha!' day.
