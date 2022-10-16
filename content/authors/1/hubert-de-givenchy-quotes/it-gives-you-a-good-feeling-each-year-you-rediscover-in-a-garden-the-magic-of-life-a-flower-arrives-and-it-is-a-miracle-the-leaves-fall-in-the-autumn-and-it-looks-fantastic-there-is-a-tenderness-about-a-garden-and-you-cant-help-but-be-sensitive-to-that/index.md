@@ -1,0 +1,8 @@
++++
+author = "Hubert De Givenchy"
+title = "It gives you a good feeling. Each year, you rediscover in a garden the magic of life. A flower arrives, and it is a miracle. The leaves fall in the autumn, and it looks fantastic. There is a tenderness about a garden, and you can't help but be sensitive to that."
+description = "the best Hubert De Givenchy Quote: It gives you a good feeling. Each year, you rediscover in a garden the magic of life. A flower arrives, and it is a miracle. The leaves fall in the autumn, and it looks fantastic. There is a tenderness about a garden, and you can't help but be sensitive to that."
+slug = "it-gives-you-a-good-feeling-each-year-you-rediscover-in-a-garden-the-magic-of-life-a-flower-arrives-and-it-is-a-miracle-the-leaves-fall-in-the-autumn-and-it-looks-fantastic-there-is-a-tenderness-about-a-garden-and-you-cant-help-but-be-sensitive-to-that"
+keywords = "It gives you a good feeling. Each year, you rediscover in a garden the magic of life. A flower arrives, and it is a miracle. The leaves fall in the autumn, and it looks fantastic. There is a tenderness about a garden, and you can't help but be sensitive to that.,hubert de givenchy,hubert de givenchy quotes,hubert de givenchy quote,hubert de givenchy sayings,hubert de givenchy saying,quotes, sayings,quote, saying, motivation"
++++
+It gives you a good feeling. Each year, you rediscover in a garden the magic of life. A flower arrives, and it is a miracle. The leaves fall in the autumn, and it looks fantastic. There is a tenderness about a garden, and you can't help but be sensitive to that.
