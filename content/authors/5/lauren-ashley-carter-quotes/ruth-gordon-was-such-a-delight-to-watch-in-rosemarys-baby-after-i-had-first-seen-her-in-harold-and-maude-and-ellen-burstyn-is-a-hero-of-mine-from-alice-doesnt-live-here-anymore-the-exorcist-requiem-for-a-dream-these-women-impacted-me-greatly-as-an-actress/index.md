@@ -1,0 +1,8 @@
++++
+author = "Lauren Ashley Carter"
+title = '''Ruth Gordon was such a delight to watch in 'Rosemary's Baby' after I had first seen her in 'Harold and Maude.' And Ellen Burstyn is a hero of mine from 'Alice Doesn't Live Here Anymore,' The Exorcist,' 'Requiem For A Dream.' These women impacted me greatly as an actress.'''
+description = '''the best Lauren Ashley Carter Quote: Ruth Gordon was such a delight to watch in 'Rosemary's Baby' after I had first seen her in 'Harold and Maude.' And Ellen Burstyn is a hero of mine from 'Alice Doesn't Live Here Anymore,' The Exorcist,' 'Requiem For A Dream.' These women impacted me greatly as an actress.'''
+slug = '''ruth-gordon-was-such-a-delight-to-watch-in-rosemarys-baby-after-i-had-first-seen-her-in-harold-and-maude-and-ellen-burstyn-is-a-hero-of-mine-from-alice-doesnt-live-here-anymore-the-exorcist-requiem-for-a-dream-these-women-impacted-me-greatly-as-an-actress'''
+keywords = '''Ruth Gordon was such a delight to watch in 'Rosemary's Baby' after I had first seen her in 'Harold and Maude.' And Ellen Burstyn is a hero of mine from 'Alice Doesn't Live Here Anymore,' The Exorcist,' 'Requiem For A Dream.' These women impacted me greatly as an actress.,lauren ashley carter,lauren ashley carter quotes,lauren ashley carter quote,lauren ashley carter sayings,lauren ashley carter saying,quotes, sayings,quote, saying, motivation'''
++++
+Ruth Gordon was such a delight to watch in 'Rosemary's Baby' after I had first seen her in 'Harold and Maude.' And Ellen Burstyn is a hero of mine from 'Alice Doesn't Live Here Anymore,' The Exorcist,' 'Requiem For A Dream.' These women impacted me greatly as an actress.

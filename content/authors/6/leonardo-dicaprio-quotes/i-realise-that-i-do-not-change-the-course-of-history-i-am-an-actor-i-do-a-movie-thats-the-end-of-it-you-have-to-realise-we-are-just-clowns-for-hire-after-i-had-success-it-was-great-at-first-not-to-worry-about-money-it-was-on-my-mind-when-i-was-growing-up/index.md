@@ -1,0 +1,8 @@
++++
+author = "Leonardo Dicaprio"
+title = '''I realise that I do not change the course of history. I am an actor, I do a movie, that's the end of it. You have to realise we are just clowns for hire. After I had success it was great, at first, not to worry about money. It was on my mind when I was growing up.'''
+description = '''the best Leonardo Dicaprio Quote: I realise that I do not change the course of history. I am an actor, I do a movie, that's the end of it. You have to realise we are just clowns for hire. After I had success it was great, at first, not to worry about money. It was on my mind when I was growing up.'''
+slug = '''i-realise-that-i-do-not-change-the-course-of-history-i-am-an-actor-i-do-a-movie-thats-the-end-of-it-you-have-to-realise-we-are-just-clowns-for-hire-after-i-had-success-it-was-great-at-first-not-to-worry-about-money-it-was-on-my-mind-when-i-was-growing-up'''
+keywords = '''I realise that I do not change the course of history. I am an actor, I do a movie, that's the end of it. You have to realise we are just clowns for hire. After I had success it was great, at first, not to worry about money. It was on my mind when I was growing up.,leonardo dicaprio,leonardo dicaprio quotes,leonardo dicaprio quote,leonardo dicaprio sayings,leonardo dicaprio saying,quotes, sayings,quote, saying, motivation'''
++++
+I realise that I do not change the course of history. I am an actor, I do a movie, that's the end of it. You have to realise we are just clowns for hire. After I had success it was great, at first, not to worry about money. It was on my mind when I was growing up.

@@ -1,0 +1,8 @@
++++
+author = "Louis Kahn"
+title = '''You say to a brick, 'What do you want, brick?' And brick says to you, 'I like an arch.' And you say to brick, 'Look, I want one, too, but arches are expensive and I can use a concrete lintel.' And then you say: 'What do you think of that, brick?' Brick says: 'I like an arch.''''
+description = '''the best Louis Kahn Quote: You say to a brick, 'What do you want, brick?' And brick says to you, 'I like an arch.' And you say to brick, 'Look, I want one, too, but arches are expensive and I can use a concrete lintel.' And then you say: 'What do you think of that, brick?' Brick says: 'I like an arch.''''
+slug = '''you-say-to-a-brick-what-do-you-want-brick?-and-brick-says-to-you-i-like-an-arch-and-you-say-to-brick-look-i-want-one-too-but-arches-are-expensive-and-i-can-use-a-concrete-lintel-and-then-you-say:-what-do-you-think-of-that-brick?-brick-says:-i-like-an-arch'''
+keywords = '''You say to a brick, 'What do you want, brick?' And brick says to you, 'I like an arch.' And you say to brick, 'Look, I want one, too, but arches are expensive and I can use a concrete lintel.' And then you say: 'What do you think of that, brick?' Brick says: 'I like an arch.',louis kahn,louis kahn quotes,louis kahn quote,louis kahn sayings,louis kahn saying,quotes, sayings,quote, saying, motivation'''
++++
+You say to a brick, 'What do you want, brick?' And brick says to you, 'I like an arch.' And you say to brick, 'Look, I want one, too, but arches are expensive and I can use a concrete lintel.' And then you say: 'What do you think of that, brick?' Brick says: 'I like an arch.'

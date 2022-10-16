@@ -1,0 +1,8 @@
++++
+author = "Lyndon B. Johnson"
+title = '''What convinces is conviction. Believe in the argument you're advancing. If you don't you're as good as dead. The other person will sense that something isn't there, and no chain of reasoning, no matter how logical or elegant or brilliant, will win your case for you.'''
+description = '''the best Lyndon B. Johnson Quote: What convinces is conviction. Believe in the argument you're advancing. If you don't you're as good as dead. The other person will sense that something isn't there, and no chain of reasoning, no matter how logical or elegant or brilliant, will win your case for you.'''
+slug = '''what-convinces-is-conviction-believe-in-the-argument-youre-advancing-if-you-dont-youre-as-good-as-dead-the-other-person-will-sense-that-something-isnt-there-and-no-chain-of-reasoning-no-matter-how-logical-or-elegant-or-brilliant-will-win-your-case-for-you'''
+keywords = '''What convinces is conviction. Believe in the argument you're advancing. If you don't you're as good as dead. The other person will sense that something isn't there, and no chain of reasoning, no matter how logical or elegant or brilliant, will win your case for you.,lyndon b. johnson,lyndon b. johnson quotes,lyndon b. johnson quote,lyndon b. johnson sayings,lyndon b. johnson saying,quotes, sayings,quote, saying, motivation'''
++++
+What convinces is conviction. Believe in the argument you're advancing. If you don't you're as good as dead. The other person will sense that something isn't there, and no chain of reasoning, no matter how logical or elegant or brilliant, will win your case for you.

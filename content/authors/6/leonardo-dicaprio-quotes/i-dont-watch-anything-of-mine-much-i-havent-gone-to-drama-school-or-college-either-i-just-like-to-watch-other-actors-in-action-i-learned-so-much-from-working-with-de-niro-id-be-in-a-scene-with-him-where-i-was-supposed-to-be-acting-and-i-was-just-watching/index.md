@@ -1,0 +1,8 @@
++++
+author = "Leonardo Dicaprio"
+title = '''I don't watch anything of mine much. I haven't gone to drama school, or college, either. I just like to watch other actors in action. I learned so much from working with De Niro. I'd be in a scene with him where I was supposed to be acting, and I was just watching.'''
+description = '''the best Leonardo Dicaprio Quote: I don't watch anything of mine much. I haven't gone to drama school, or college, either. I just like to watch other actors in action. I learned so much from working with De Niro. I'd be in a scene with him where I was supposed to be acting, and I was just watching.'''
+slug = '''i-dont-watch-anything-of-mine-much-i-havent-gone-to-drama-school-or-college-either-i-just-like-to-watch-other-actors-in-action-i-learned-so-much-from-working-with-de-niro-id-be-in-a-scene-with-him-where-i-was-supposed-to-be-acting-and-i-was-just-watching'''
+keywords = '''I don't watch anything of mine much. I haven't gone to drama school, or college, either. I just like to watch other actors in action. I learned so much from working with De Niro. I'd be in a scene with him where I was supposed to be acting, and I was just watching.,leonardo dicaprio,leonardo dicaprio quotes,leonardo dicaprio quote,leonardo dicaprio sayings,leonardo dicaprio saying,quotes, sayings,quote, saying, motivation'''
++++
+I don't watch anything of mine much. I haven't gone to drama school, or college, either. I just like to watch other actors in action. I learned so much from working with De Niro. I'd be in a scene with him where I was supposed to be acting, and I was just watching.

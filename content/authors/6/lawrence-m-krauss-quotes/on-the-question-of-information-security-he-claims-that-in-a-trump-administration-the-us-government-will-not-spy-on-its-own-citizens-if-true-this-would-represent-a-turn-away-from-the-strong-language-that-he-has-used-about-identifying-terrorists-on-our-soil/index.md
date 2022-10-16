@@ -1,0 +1,8 @@
++++
+author = "Lawrence M. Krauss"
+title = '''On the question of information security, he claims that, in a Trump Administration, the U.S. government will not spy on its own citizens. If true, this would represent a turn away from the strong language that he has used about identifying terrorists on our soil.'''
+description = '''the best Lawrence M. Krauss Quote: On the question of information security, he claims that, in a Trump Administration, the U.S. government will not spy on its own citizens. If true, this would represent a turn away from the strong language that he has used about identifying terrorists on our soil.'''
+slug = '''on-the-question-of-information-security-he-claims-that-in-a-trump-administration-the-us-government-will-not-spy-on-its-own-citizens-if-true-this-would-represent-a-turn-away-from-the-strong-language-that-he-has-used-about-identifying-terrorists-on-our-soil'''
+keywords = '''On the question of information security, he claims that, in a Trump Administration, the U.S. government will not spy on its own citizens. If true, this would represent a turn away from the strong language that he has used about identifying terrorists on our soil.,lawrence m. krauss,lawrence m. krauss quotes,lawrence m. krauss quote,lawrence m. krauss sayings,lawrence m. krauss saying,quotes, sayings,quote, saying, motivation'''
++++
+On the question of information security, he claims that, in a Trump Administration, the U.S. government will not spy on its own citizens. If true, this would represent a turn away from the strong language that he has used about identifying terrorists on our soil.

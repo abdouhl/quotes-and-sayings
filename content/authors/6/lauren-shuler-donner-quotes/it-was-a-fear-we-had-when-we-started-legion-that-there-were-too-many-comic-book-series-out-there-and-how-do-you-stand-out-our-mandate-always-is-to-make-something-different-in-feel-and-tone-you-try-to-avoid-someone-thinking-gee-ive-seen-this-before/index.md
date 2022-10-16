@@ -1,0 +1,8 @@
++++
+author = "Lauren Shuler Donner"
+title = '''It was a fear we had when we started 'Legion,' that there were too many comic-book series out there, and how do you stand out. Our mandate always is to make something different in feel and tone. You try to avoid someone thinking, 'Gee, I've seen this before.''''
+description = '''the best Lauren Shuler Donner Quote: It was a fear we had when we started 'Legion,' that there were too many comic-book series out there, and how do you stand out. Our mandate always is to make something different in feel and tone. You try to avoid someone thinking, 'Gee, I've seen this before.''''
+slug = '''it-was-a-fear-we-had-when-we-started-legion-that-there-were-too-many-comic-book-series-out-there-and-how-do-you-stand-out-our-mandate-always-is-to-make-something-different-in-feel-and-tone-you-try-to-avoid-someone-thinking-gee-ive-seen-this-before'''
+keywords = '''It was a fear we had when we started 'Legion,' that there were too many comic-book series out there, and how do you stand out. Our mandate always is to make something different in feel and tone. You try to avoid someone thinking, 'Gee, I've seen this before.',lauren shuler donner,lauren shuler donner quotes,lauren shuler donner quote,lauren shuler donner sayings,lauren shuler donner saying,quotes, sayings,quote, saying, motivation'''
++++
+It was a fear we had when we started 'Legion,' that there were too many comic-book series out there, and how do you stand out. Our mandate always is to make something different in feel and tone. You try to avoid someone thinking, 'Gee, I've seen this before.'

@@ -1,0 +1,8 @@
++++
+author = "Lucius Quintus Cincinnatus Lamar Ii"
+title = '''Liberty does not exist where rights are on one side and power on the other. To be liberty, rights must be armed with vital powers. A people cannot be free who do not participate in the control of the government which operates upon them.'''
+description = '''the best Lucius Quintus Cincinnatus Lamar Ii Quote: Liberty does not exist where rights are on one side and power on the other. To be liberty, rights must be armed with vital powers. A people cannot be free who do not participate in the control of the government which operates upon them.'''
+slug = '''liberty-does-not-exist-where-rights-are-on-one-side-and-power-on-the-other-to-be-liberty-rights-must-be-armed-with-vital-powers-a-people-cannot-be-free-who-do-not-participate-in-the-control-of-the-government-which-operates-upon-them'''
+keywords = '''Liberty does not exist where rights are on one side and power on the other. To be liberty, rights must be armed with vital powers. A people cannot be free who do not participate in the control of the government which operates upon them.,lucius quintus cincinnatus lamar ii,lucius quintus cincinnatus lamar ii quotes,lucius quintus cincinnatus lamar ii quote,lucius quintus cincinnatus lamar ii sayings,lucius quintus cincinnatus lamar ii saying,quotes, sayings,quote, saying, motivation'''
++++
+Liberty does not exist where rights are on one side and power on the other. To be liberty, rights must be armed with vital powers. A people cannot be free who do not participate in the control of the government which operates upon them.
