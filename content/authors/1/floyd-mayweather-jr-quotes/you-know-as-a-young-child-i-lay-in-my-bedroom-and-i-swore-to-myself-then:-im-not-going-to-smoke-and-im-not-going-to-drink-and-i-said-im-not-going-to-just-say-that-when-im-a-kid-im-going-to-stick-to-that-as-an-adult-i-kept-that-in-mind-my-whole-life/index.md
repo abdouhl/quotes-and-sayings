@@ -1,8 +1,0 @@
-+++
-author = "Floyd Mayweather, Jr."
-title = "You know, as a young child, I lay in my bedroom and I swore to myself then: 'I'm not going to smoke and I'm not going to drink.' And I said I'm not going to just say that when I'm a kid. I'm going to stick to that as an adult. I kept that in mind my whole life."
-description = "the best Floyd Mayweather, Jr. Quote: You know, as a young child, I lay in my bedroom and I swore to myself then: 'I'm not going to smoke and I'm not going to drink.' And I said I'm not going to just say that when I'm a kid. I'm going to stick to that as an adult. I kept that in mind my whole life."
-slug = "you-know-as-a-young-child-i-lay-in-my-bedroom-and-i-swore-to-myself-then:-im-not-going-to-smoke-and-im-not-going-to-drink-and-i-said-im-not-going-to-just-say-that-when-im-a-kid-im-going-to-stick-to-that-as-an-adult-i-kept-that-in-mind-my-whole-life"
-keywords = "You know, as a young child, I lay in my bedroom and I swore to myself then: 'I'm not going to smoke and I'm not going to drink.' And I said I'm not going to just say that when I'm a kid. I'm going to stick to that as an adult. I kept that in mind my whole life.,floyd mayweather, jr.,floyd mayweather, jr. quotes,floyd mayweather, jr. quote,floyd mayweather, jr. sayings,floyd mayweather, jr. saying,quotes, sayings,quote, saying, motivation"
-+++
-You know, as a young child, I lay in my bedroom and I swore to myself then: 'I'm not going to smoke and I'm not going to drink.' And I said I'm not going to just say that when I'm a kid. I'm going to stick to that as an adult. I kept that in mind my whole life.

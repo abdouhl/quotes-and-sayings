@@ -1,8 +1,0 @@
-+++
-author = "Buffy Sainte-Marie"
-title = "I've always had that attitude about my career: it's something that I do, but it's not my whole life. I have a real life, a personal life: I've got a lot of chickens, I've got a horse, I've got a kitty-cat, I've got a lot of goats, I've got animals all over the place."
-description = "the best Buffy Sainte-Marie Quote: I've always had that attitude about my career: it's something that I do, but it's not my whole life. I have a real life, a personal life: I've got a lot of chickens, I've got a horse, I've got a kitty-cat, I've got a lot of goats, I've got animals all over the place."
-slug = "ive-always-had-that-attitude-about-my-career:-its-something-that-i-do-but-its-not-my-whole-life-i-have-a-real-life-a-personal-life:-ive-got-a-lot-of-chickens-ive-got-a-horse-ive-got-a-kitty-cat-ive-got-a-lot-of-goats-ive-got-animals-all-over-the-place"
-keywords = "I've always had that attitude about my career: it's something that I do, but it's not my whole life. I have a real life, a personal life: I've got a lot of chickens, I've got a horse, I've got a kitty-cat, I've got a lot of goats, I've got animals all over the place.,buffy sainte-marie,buffy sainte-marie quotes,buffy sainte-marie quote,buffy sainte-marie sayings,buffy sainte-marie saying,quotes, sayings,quote, saying, motivation"
-+++
-I've always had that attitude about my career: it's something that I do, but it's not my whole life. I have a real life, a personal life: I've got a lot of chickens, I've got a horse, I've got a kitty-cat, I've got a lot of goats, I've got animals all over the place.
