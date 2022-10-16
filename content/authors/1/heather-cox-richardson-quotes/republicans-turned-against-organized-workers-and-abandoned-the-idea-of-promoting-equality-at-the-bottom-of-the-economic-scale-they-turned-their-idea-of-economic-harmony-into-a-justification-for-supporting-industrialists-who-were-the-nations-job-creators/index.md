@@ -1,0 +1,8 @@
++++
+author = "Heather Cox Richardson"
+title = "Republicans turned against organized workers and abandoned the idea of promoting equality at the bottom of the economic scale. They turned their idea of economic harmony into a justification for supporting industrialists, who were the nation's job creators."
+description = "the best Heather Cox Richardson Quote: Republicans turned against organized workers and abandoned the idea of promoting equality at the bottom of the economic scale. They turned their idea of economic harmony into a justification for supporting industrialists, who were the nation's job creators."
+slug = "republicans-turned-against-organized-workers-and-abandoned-the-idea-of-promoting-equality-at-the-bottom-of-the-economic-scale-they-turned-their-idea-of-economic-harmony-into-a-justification-for-supporting-industrialists-who-were-the-nations-job-creators"
+keywords = "Republicans turned against organized workers and abandoned the idea of promoting equality at the bottom of the economic scale. They turned their idea of economic harmony into a justification for supporting industrialists, who were the nation's job creators.,heather cox richardson,heather cox richardson quotes,heather cox richardson quote,heather cox richardson sayings,heather cox richardson saying,quotes, sayings,quote, saying, motivation"
++++
+Republicans turned against organized workers and abandoned the idea of promoting equality at the bottom of the economic scale. They turned their idea of economic harmony into a justification for supporting industrialists, who were the nation's job creators.
