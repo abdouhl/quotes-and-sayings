@@ -1,0 +1,8 @@
++++
+author = "Alexis Ohanian"
+title = '''My junior year, I went to an LSAT-prep course. I flipped over my test and thought, 'You bastards.' I walked out and went to Waffle House. That's where I had what I call 'The Waffle House Epiphany': I didn't want to be a lawyer. I wanted to make a dent in the universe.'''
+description = '''the best Alexis Ohanian Quote: My junior year, I went to an LSAT-prep course. I flipped over my test and thought, 'You bastards.' I walked out and went to Waffle House. That's where I had what I call 'The Waffle House Epiphany': I didn't want to be a lawyer. I wanted to make a dent in the universe.'''
+slug = '''my-junior-year-i-went-to-an-lsat-prep-course-i-flipped-over-my-test-and-thought-you-bastards-i-walked-out-and-went-to-waffle-house-thats-where-i-had-what-i-call-the-waffle-house-epiphany:-i-didnt-want-to-be-a-lawyer-i-wanted-to-make-a-dent-in-the-universe'''
+keywords = '''My junior year, I went to an LSAT-prep course. I flipped over my test and thought, 'You bastards.' I walked out and went to Waffle House. That's where I had what I call 'The Waffle House Epiphany': I didn't want to be a lawyer. I wanted to make a dent in the universe.,alexis ohanian,alexis ohanian quotes,alexis ohanian quote,alexis ohanian sayings,alexis ohanian saying,quotes, sayings,quote, saying, motivation'''
++++
+My junior year, I went to an LSAT-prep course. I flipped over my test and thought, 'You bastards.' I walked out and went to Waffle House. That's where I had what I call 'The Waffle House Epiphany': I didn't want to be a lawyer. I wanted to make a dent in the universe.

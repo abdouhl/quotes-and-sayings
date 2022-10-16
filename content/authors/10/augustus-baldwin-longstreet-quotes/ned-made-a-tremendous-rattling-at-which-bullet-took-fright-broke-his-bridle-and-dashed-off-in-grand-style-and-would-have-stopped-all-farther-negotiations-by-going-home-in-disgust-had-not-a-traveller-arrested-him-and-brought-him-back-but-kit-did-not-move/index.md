@@ -1,0 +1,8 @@
++++
+author = "Augustus Baldwin Longstreet"
+title = '''Ned made a tremendous rattling, at which Bullet took fright, broke his bridle, and dashed off in grand style; and would have stopped all farther negotiations by going home in disgust, had not a traveller arrested him and brought him back; but Kit did not move.'''
+description = '''the best Augustus Baldwin Longstreet Quote: Ned made a tremendous rattling, at which Bullet took fright, broke his bridle, and dashed off in grand style; and would have stopped all farther negotiations by going home in disgust, had not a traveller arrested him and brought him back; but Kit did not move.'''
+slug = '''ned-made-a-tremendous-rattling-at-which-bullet-took-fright-broke-his-bridle-and-dashed-off-in-grand-style-and-would-have-stopped-all-farther-negotiations-by-going-home-in-disgust-had-not-a-traveller-arrested-him-and-brought-him-back-but-kit-did-not-move'''
+keywords = '''Ned made a tremendous rattling, at which Bullet took fright, broke his bridle, and dashed off in grand style; and would have stopped all farther negotiations by going home in disgust, had not a traveller arrested him and brought him back; but Kit did not move.,augustus baldwin longstreet,augustus baldwin longstreet quotes,augustus baldwin longstreet quote,augustus baldwin longstreet sayings,augustus baldwin longstreet saying,quotes, sayings,quote, saying, motivation'''
++++
+Ned made a tremendous rattling, at which Bullet took fright, broke his bridle, and dashed off in grand style; and would have stopped all farther negotiations by going home in disgust, had not a traveller arrested him and brought him back; but Kit did not move.

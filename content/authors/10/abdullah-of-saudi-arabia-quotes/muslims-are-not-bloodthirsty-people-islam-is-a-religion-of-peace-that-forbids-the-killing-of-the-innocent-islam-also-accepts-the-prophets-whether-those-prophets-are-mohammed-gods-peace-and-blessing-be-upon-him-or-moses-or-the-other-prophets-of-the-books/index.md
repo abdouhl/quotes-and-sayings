@@ -1,0 +1,8 @@
++++
+author = "Abdullah Of Saudi Arabia"
+title = '''Muslims are not bloodthirsty people. Islam is a religion of peace that forbids the killing of the innocent. Islam also accepts the Prophets, whether those prophets are Mohammed, God's peace and blessing be upon Him, or Moses or the other prophets of the Books.'''
+description = '''the best Abdullah Of Saudi Arabia Quote: Muslims are not bloodthirsty people. Islam is a religion of peace that forbids the killing of the innocent. Islam also accepts the Prophets, whether those prophets are Mohammed, God's peace and blessing be upon Him, or Moses or the other prophets of the Books.'''
+slug = '''muslims-are-not-bloodthirsty-people-islam-is-a-religion-of-peace-that-forbids-the-killing-of-the-innocent-islam-also-accepts-the-prophets-whether-those-prophets-are-mohammed-gods-peace-and-blessing-be-upon-him-or-moses-or-the-other-prophets-of-the-books'''
+keywords = '''Muslims are not bloodthirsty people. Islam is a religion of peace that forbids the killing of the innocent. Islam also accepts the Prophets, whether those prophets are Mohammed, God's peace and blessing be upon Him, or Moses or the other prophets of the Books.,abdullah of saudi arabia,abdullah of saudi arabia quotes,abdullah of saudi arabia quote,abdullah of saudi arabia sayings,abdullah of saudi arabia saying,quotes, sayings,quote, saying, motivation'''
++++
+Muslims are not bloodthirsty people. Islam is a religion of peace that forbids the killing of the innocent. Islam also accepts the Prophets, whether those prophets are Mohammed, God's peace and blessing be upon Him, or Moses or the other prophets of the Books.

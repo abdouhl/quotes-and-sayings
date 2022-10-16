@@ -1,0 +1,8 @@
++++
+author = "Anatoly Rybakov"
+title = '''For a professional writer in the Soviet Union, it works this way. First, you have to have something to say - that's the main thing. Second, it's a matter of who publishes you. If your book has real stuff in it, readers will ferret it out, even in a Siberian journal.'''
+description = '''the best Anatoly Rybakov Quote: For a professional writer in the Soviet Union, it works this way. First, you have to have something to say - that's the main thing. Second, it's a matter of who publishes you. If your book has real stuff in it, readers will ferret it out, even in a Siberian journal.'''
+slug = '''for-a-professional-writer-in-the-soviet-union-it-works-this-way-first-you-have-to-have-something-to-say---thats-the-main-thing-second-its-a-matter-of-who-publishes-you-if-your-book-has-real-stuff-in-it-readers-will-ferret-it-out-even-in-a-siberian-journal'''
+keywords = '''For a professional writer in the Soviet Union, it works this way. First, you have to have something to say - that's the main thing. Second, it's a matter of who publishes you. If your book has real stuff in it, readers will ferret it out, even in a Siberian journal.,anatoly rybakov,anatoly rybakov quotes,anatoly rybakov quote,anatoly rybakov sayings,anatoly rybakov saying,quotes, sayings,quote, saying, motivation'''
++++
+For a professional writer in the Soviet Union, it works this way. First, you have to have something to say - that's the main thing. Second, it's a matter of who publishes you. If your book has real stuff in it, readers will ferret it out, even in a Siberian journal.

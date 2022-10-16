@@ -1,0 +1,8 @@
++++
+author = "Adebayo Akinfenwa"
+title = '''I'm a massive fan of Didier Drogba, I love the way he plays. He's not as stacked as me but he's strong and he's still scoring goals. I'm a fan of Diego Costa as well. I think he crosses the line at times but I like the fact he doesn't allow himself to be bullied.'''
+description = '''the best Adebayo Akinfenwa Quote: I'm a massive fan of Didier Drogba, I love the way he plays. He's not as stacked as me but he's strong and he's still scoring goals. I'm a fan of Diego Costa as well. I think he crosses the line at times but I like the fact he doesn't allow himself to be bullied.'''
+slug = '''im-a-massive-fan-of-didier-drogba-i-love-the-way-he-plays-hes-not-as-stacked-as-me-but-hes-strong-and-hes-still-scoring-goals-im-a-fan-of-diego-costa-as-well-i-think-he-crosses-the-line-at-times-but-i-like-the-fact-he-doesnt-allow-himself-to-be-bullied'''
+keywords = '''I'm a massive fan of Didier Drogba, I love the way he plays. He's not as stacked as me but he's strong and he's still scoring goals. I'm a fan of Diego Costa as well. I think he crosses the line at times but I like the fact he doesn't allow himself to be bullied.,adebayo akinfenwa,adebayo akinfenwa quotes,adebayo akinfenwa quote,adebayo akinfenwa sayings,adebayo akinfenwa saying,quotes, sayings,quote, saying, motivation'''
++++
+I'm a massive fan of Didier Drogba, I love the way he plays. He's not as stacked as me but he's strong and he's still scoring goals. I'm a fan of Diego Costa as well. I think he crosses the line at times but I like the fact he doesn't allow himself to be bullied.

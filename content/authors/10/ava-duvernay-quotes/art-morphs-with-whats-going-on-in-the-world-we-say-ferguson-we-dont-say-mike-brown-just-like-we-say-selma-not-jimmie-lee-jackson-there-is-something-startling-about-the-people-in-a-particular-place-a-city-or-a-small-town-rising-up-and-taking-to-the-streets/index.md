@@ -1,0 +1,8 @@
++++
+author = "Ava Duvernay"
+title = '''Art morphs with what's going on in the world. We say 'Ferguson'; we don't say 'Mike Brown.' Just like we say 'Selma,' not 'Jimmie Lee Jackson.' There is something startling about the people in a particular place, a city or a small town, rising up and taking to the streets.'''
+description = '''the best Ava Duvernay Quote: Art morphs with what's going on in the world. We say 'Ferguson'; we don't say 'Mike Brown.' Just like we say 'Selma,' not 'Jimmie Lee Jackson.' There is something startling about the people in a particular place, a city or a small town, rising up and taking to the streets.'''
+slug = '''art-morphs-with-whats-going-on-in-the-world-we-say-ferguson-we-dont-say-mike-brown-just-like-we-say-selma-not-jimmie-lee-jackson-there-is-something-startling-about-the-people-in-a-particular-place-a-city-or-a-small-town-rising-up-and-taking-to-the-streets'''
+keywords = '''Art morphs with what's going on in the world. We say 'Ferguson'; we don't say 'Mike Brown.' Just like we say 'Selma,' not 'Jimmie Lee Jackson.' There is something startling about the people in a particular place, a city or a small town, rising up and taking to the streets.,ava duvernay,ava duvernay quotes,ava duvernay quote,ava duvernay sayings,ava duvernay saying,quotes, sayings,quote, saying, motivation'''
++++
+Art morphs with what's going on in the world. We say 'Ferguson'; we don't say 'Mike Brown.' Just like we say 'Selma,' not 'Jimmie Lee Jackson.' There is something startling about the people in a particular place, a city or a small town, rising up and taking to the streets.

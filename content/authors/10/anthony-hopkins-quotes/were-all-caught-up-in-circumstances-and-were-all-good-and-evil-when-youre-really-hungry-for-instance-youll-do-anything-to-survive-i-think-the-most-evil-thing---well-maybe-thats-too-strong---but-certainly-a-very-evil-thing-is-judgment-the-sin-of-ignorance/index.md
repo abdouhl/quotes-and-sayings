@@ -1,0 +1,8 @@
++++
+author = "Anthony Hopkins"
+title = '''We're all caught up in circumstances, and we're all good and evil. When you're really hungry, for instance, you'll do anything to survive. I think the most evil thing - well, maybe that's too strong - but certainly a very evil thing is judgment, the sin of ignorance.'''
+description = '''the best Anthony Hopkins Quote: We're all caught up in circumstances, and we're all good and evil. When you're really hungry, for instance, you'll do anything to survive. I think the most evil thing - well, maybe that's too strong - but certainly a very evil thing is judgment, the sin of ignorance.'''
+slug = '''were-all-caught-up-in-circumstances-and-were-all-good-and-evil-when-youre-really-hungry-for-instance-youll-do-anything-to-survive-i-think-the-most-evil-thing---well-maybe-thats-too-strong---but-certainly-a-very-evil-thing-is-judgment-the-sin-of-ignorance'''
+keywords = '''We're all caught up in circumstances, and we're all good and evil. When you're really hungry, for instance, you'll do anything to survive. I think the most evil thing - well, maybe that's too strong - but certainly a very evil thing is judgment, the sin of ignorance.,anthony hopkins,anthony hopkins quotes,anthony hopkins quote,anthony hopkins sayings,anthony hopkins saying,quotes, sayings,quote, saying, motivation'''
++++
+We're all caught up in circumstances, and we're all good and evil. When you're really hungry, for instance, you'll do anything to survive. I think the most evil thing - well, maybe that's too strong - but certainly a very evil thing is judgment, the sin of ignorance.
