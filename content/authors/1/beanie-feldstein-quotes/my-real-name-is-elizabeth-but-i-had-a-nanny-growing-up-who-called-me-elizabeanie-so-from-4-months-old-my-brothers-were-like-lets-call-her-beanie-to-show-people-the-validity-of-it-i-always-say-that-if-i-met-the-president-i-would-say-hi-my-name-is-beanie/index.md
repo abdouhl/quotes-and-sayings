@@ -1,0 +1,8 @@
++++
+author = "Beanie Feldstein"
+title = "My real name is Elizabeth, but I had a nanny growing up who called me 'Elizabeanie.' So from 4 months old, my brothers were, like, 'Let's call her Beanie.' To show people the validity of it, I always say that if I met the president, I would say, 'Hi, my name is Beanie.'"
+description = "the best Beanie Feldstein Quote: My real name is Elizabeth, but I had a nanny growing up who called me 'Elizabeanie.' So from 4 months old, my brothers were, like, 'Let's call her Beanie.' To show people the validity of it, I always say that if I met the president, I would say, 'Hi, my name is Beanie.'"
+slug = "my-real-name-is-elizabeth-but-i-had-a-nanny-growing-up-who-called-me-elizabeanie-so-from-4-months-old-my-brothers-were-like-lets-call-her-beanie-to-show-people-the-validity-of-it-i-always-say-that-if-i-met-the-president-i-would-say-hi-my-name-is-beanie"
+keywords = "My real name is Elizabeth, but I had a nanny growing up who called me 'Elizabeanie.' So from 4 months old, my brothers were, like, 'Let's call her Beanie.' To show people the validity of it, I always say that if I met the president, I would say, 'Hi, my name is Beanie.',beanie feldstein,beanie feldstein quotes,beanie feldstein quote,beanie feldstein sayings,beanie feldstein saying,quotes, sayings,quote, saying, motivation"
++++
+My real name is Elizabeth, but I had a nanny growing up who called me 'Elizabeanie.' So from 4 months old, my brothers were, like, 'Let's call her Beanie.' To show people the validity of it, I always say that if I met the president, I would say, 'Hi, my name is Beanie.'

@@ -1,0 +1,8 @@
++++
+author = "Brian Reynolds Myers"
+title = "People tend to overlook the fact that North Korea's economy collapsed at about the same time as South Koreans lost faith in their own state. The late 1980s and early 1990s were a time when South Koreans were questioning the very legitimacy of their republic."
+description = "the best Brian Reynolds Myers Quote: People tend to overlook the fact that North Korea's economy collapsed at about the same time as South Koreans lost faith in their own state. The late 1980s and early 1990s were a time when South Koreans were questioning the very legitimacy of their republic."
+slug = "people-tend-to-overlook-the-fact-that-north-koreas-economy-collapsed-at-about-the-same-time-as-south-koreans-lost-faith-in-their-own-state-the-late-1980s-and-early-1990s-were-a-time-when-south-koreans-were-questioning-the-very-legitimacy-of-their-republic"
+keywords = "People tend to overlook the fact that North Korea's economy collapsed at about the same time as South Koreans lost faith in their own state. The late 1980s and early 1990s were a time when South Koreans were questioning the very legitimacy of their republic.,brian reynolds myers,brian reynolds myers quotes,brian reynolds myers quote,brian reynolds myers sayings,brian reynolds myers saying,quotes, sayings,quote, saying, motivation"
++++
+People tend to overlook the fact that North Korea's economy collapsed at about the same time as South Koreans lost faith in their own state. The late 1980s and early 1990s were a time when South Koreans were questioning the very legitimacy of their republic.

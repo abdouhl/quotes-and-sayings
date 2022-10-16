@@ -1,0 +1,8 @@
++++
+author = "Bradley Whitford"
+title = "I grew up in Wisconsin. It's not like growing up in New York or L.A., where you know somebody's cousin who does this. It was in the back of my mind, but I would never say that I wanted to be an actor, but as I look back, I was in every play I could possibly be in."
+description = "the best Bradley Whitford Quote: I grew up in Wisconsin. It's not like growing up in New York or L.A., where you know somebody's cousin who does this. It was in the back of my mind, but I would never say that I wanted to be an actor, but as I look back, I was in every play I could possibly be in."
+slug = "i-grew-up-in-wisconsin-its-not-like-growing-up-in-new-york-or-la-where-you-know-somebodys-cousin-who-does-this-it-was-in-the-back-of-my-mind-but-i-would-never-say-that-i-wanted-to-be-an-actor-but-as-i-look-back-i-was-in-every-play-i-could-possibly-be-in"
+keywords = "I grew up in Wisconsin. It's not like growing up in New York or L.A., where you know somebody's cousin who does this. It was in the back of my mind, but I would never say that I wanted to be an actor, but as I look back, I was in every play I could possibly be in.,bradley whitford,bradley whitford quotes,bradley whitford quote,bradley whitford sayings,bradley whitford saying,quotes, sayings,quote, saying, motivation"
++++
+I grew up in Wisconsin. It's not like growing up in New York or L.A., where you know somebody's cousin who does this. It was in the back of my mind, but I would never say that I wanted to be an actor, but as I look back, I was in every play I could possibly be in.
