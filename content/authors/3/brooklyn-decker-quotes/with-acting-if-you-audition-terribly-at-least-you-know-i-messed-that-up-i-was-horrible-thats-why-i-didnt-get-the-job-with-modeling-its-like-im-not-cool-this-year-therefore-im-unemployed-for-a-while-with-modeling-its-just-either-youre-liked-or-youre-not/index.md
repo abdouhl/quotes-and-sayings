@@ -1,0 +1,8 @@
++++
+author = "Brooklyn Decker"
+title = '''With acting, if you audition terribly, at least you know, 'I messed that up. I was horrible. That's why I didn't get the job.' With modeling, it's like, 'I'm not cool this year; therefore, I'm unemployed for a while.' With modeling, it's just, either you're liked, or you're not.'''
+description = '''the best Brooklyn Decker Quote: With acting, if you audition terribly, at least you know, 'I messed that up. I was horrible. That's why I didn't get the job.' With modeling, it's like, 'I'm not cool this year; therefore, I'm unemployed for a while.' With modeling, it's just, either you're liked, or you're not.'''
+slug = '''with-acting-if-you-audition-terribly-at-least-you-know-i-messed-that-up-i-was-horrible-thats-why-i-didnt-get-the-job-with-modeling-its-like-im-not-cool-this-year-therefore-im-unemployed-for-a-while-with-modeling-its-just-either-youre-liked-or-youre-not'''
+keywords = '''With acting, if you audition terribly, at least you know, 'I messed that up. I was horrible. That's why I didn't get the job.' With modeling, it's like, 'I'm not cool this year; therefore, I'm unemployed for a while.' With modeling, it's just, either you're liked, or you're not.,brooklyn decker,brooklyn decker quotes,brooklyn decker quote,brooklyn decker sayings,brooklyn decker saying,quotes, sayings,quote, saying, motivation'''
++++
+With acting, if you audition terribly, at least you know, 'I messed that up. I was horrible. That's why I didn't get the job.' With modeling, it's like, 'I'm not cool this year; therefore, I'm unemployed for a while.' With modeling, it's just, either you're liked, or you're not.

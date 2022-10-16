@@ -1,0 +1,8 @@
++++
+author = "Benjamin Clementine"
+title = '''When I first started singing in Paris, I sounded horrible: I was just singing to get some money to eat. And I wasn't singing my own songs: it was Bob Dylan, Bob Marley, Jimi Hendrix. Eventually, when I wrote my own music, my style just came out of my own place.'''
+description = '''the best Benjamin Clementine Quote: When I first started singing in Paris, I sounded horrible: I was just singing to get some money to eat. And I wasn't singing my own songs: it was Bob Dylan, Bob Marley, Jimi Hendrix. Eventually, when I wrote my own music, my style just came out of my own place.'''
+slug = '''when-i-first-started-singing-in-paris-i-sounded-horrible:-i-was-just-singing-to-get-some-money-to-eat-and-i-wasnt-singing-my-own-songs:-it-was-bob-dylan-bob-marley-jimi-hendrix-eventually-when-i-wrote-my-own-music-my-style-just-came-out-of-my-own-place'''
+keywords = '''When I first started singing in Paris, I sounded horrible: I was just singing to get some money to eat. And I wasn't singing my own songs: it was Bob Dylan, Bob Marley, Jimi Hendrix. Eventually, when I wrote my own music, my style just came out of my own place.,benjamin clementine,benjamin clementine quotes,benjamin clementine quote,benjamin clementine sayings,benjamin clementine saying,quotes, sayings,quote, saying, motivation'''
++++
+When I first started singing in Paris, I sounded horrible: I was just singing to get some money to eat. And I wasn't singing my own songs: it was Bob Dylan, Bob Marley, Jimi Hendrix. Eventually, when I wrote my own music, my style just came out of my own place.

@@ -1,0 +1,8 @@
++++
+author = "Benjamin Clementine"
+title = '''When I was a kid, I remember seeing Michael Jackson. I thought he was an alien. You don't grow up to be like Michael Jackson. I'm not saying I'm Michael Jackson, but Mercury Prizes are for aliens, basically. So I was very chuffed that I got nominated, and then I won.'''
+description = '''the best Benjamin Clementine Quote: When I was a kid, I remember seeing Michael Jackson. I thought he was an alien. You don't grow up to be like Michael Jackson. I'm not saying I'm Michael Jackson, but Mercury Prizes are for aliens, basically. So I was very chuffed that I got nominated, and then I won.'''
+slug = '''when-i-was-a-kid-i-remember-seeing-michael-jackson-i-thought-he-was-an-alien-you-dont-grow-up-to-be-like-michael-jackson-im-not-saying-im-michael-jackson-but-mercury-prizes-are-for-aliens-basically-so-i-was-very-chuffed-that-i-got-nominated-and-then-i-won'''
+keywords = '''When I was a kid, I remember seeing Michael Jackson. I thought he was an alien. You don't grow up to be like Michael Jackson. I'm not saying I'm Michael Jackson, but Mercury Prizes are for aliens, basically. So I was very chuffed that I got nominated, and then I won.,benjamin clementine,benjamin clementine quotes,benjamin clementine quote,benjamin clementine sayings,benjamin clementine saying,quotes, sayings,quote, saying, motivation'''
++++
+When I was a kid, I remember seeing Michael Jackson. I thought he was an alien. You don't grow up to be like Michael Jackson. I'm not saying I'm Michael Jackson, but Mercury Prizes are for aliens, basically. So I was very chuffed that I got nominated, and then I won.

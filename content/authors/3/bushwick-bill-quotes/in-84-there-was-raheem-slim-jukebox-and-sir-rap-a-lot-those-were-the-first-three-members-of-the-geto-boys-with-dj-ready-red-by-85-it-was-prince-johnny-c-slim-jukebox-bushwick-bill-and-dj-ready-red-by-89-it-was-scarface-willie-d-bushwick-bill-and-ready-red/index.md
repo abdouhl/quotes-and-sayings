@@ -1,0 +1,8 @@
++++
+author = "Bushwick Bill"
+title = '''In '84 there was Raheem, Slim Jukebox, and Sir Rap-A-Lot. Those were the first three members of the Geto Boys with DJ Ready Red. By '85 it was Prince Johnny C, Slim Jukebox, Bushwick Bill, and DJ Ready Red. By '89 it was Scarface, Willie D, Bushwick Bill, and Ready Red.'''
+description = '''the best Bushwick Bill Quote: In '84 there was Raheem, Slim Jukebox, and Sir Rap-A-Lot. Those were the first three members of the Geto Boys with DJ Ready Red. By '85 it was Prince Johnny C, Slim Jukebox, Bushwick Bill, and DJ Ready Red. By '89 it was Scarface, Willie D, Bushwick Bill, and Ready Red.'''
+slug = '''in-84-there-was-raheem-slim-jukebox-and-sir-rap-a-lot-those-were-the-first-three-members-of-the-geto-boys-with-dj-ready-red-by-85-it-was-prince-johnny-c-slim-jukebox-bushwick-bill-and-dj-ready-red-by-89-it-was-scarface-willie-d-bushwick-bill-and-ready-red'''
+keywords = '''In '84 there was Raheem, Slim Jukebox, and Sir Rap-A-Lot. Those were the first three members of the Geto Boys with DJ Ready Red. By '85 it was Prince Johnny C, Slim Jukebox, Bushwick Bill, and DJ Ready Red. By '89 it was Scarface, Willie D, Bushwick Bill, and Ready Red.,bushwick bill,bushwick bill quotes,bushwick bill quote,bushwick bill sayings,bushwick bill saying,quotes, sayings,quote, saying, motivation'''
++++
+In '84 there was Raheem, Slim Jukebox, and Sir Rap-A-Lot. Those were the first three members of the Geto Boys with DJ Ready Red. By '85 it was Prince Johnny C, Slim Jukebox, Bushwick Bill, and DJ Ready Red. By '89 it was Scarface, Willie D, Bushwick Bill, and Ready Red.
