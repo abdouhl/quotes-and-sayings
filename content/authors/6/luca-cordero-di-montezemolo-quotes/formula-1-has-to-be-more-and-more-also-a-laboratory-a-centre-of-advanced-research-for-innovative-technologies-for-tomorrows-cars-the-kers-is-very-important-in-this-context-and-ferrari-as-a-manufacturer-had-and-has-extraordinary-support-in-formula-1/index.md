@@ -1,0 +1,8 @@
++++
+author = "Luca Cordero Di Montezemolo"
+title = '''Formula 1 has to be more and more also a laboratory, a centre of advanced research for innovative technologies for tomorrow's cars. The KERS is very important in this context, and Ferrari as a manufacturer had, and has, extraordinary support in Formula 1.'''
+description = '''the best Luca Cordero Di Montezemolo Quote: Formula 1 has to be more and more also a laboratory, a centre of advanced research for innovative technologies for tomorrow's cars. The KERS is very important in this context, and Ferrari as a manufacturer had, and has, extraordinary support in Formula 1.'''
+slug = '''formula-1-has-to-be-more-and-more-also-a-laboratory-a-centre-of-advanced-research-for-innovative-technologies-for-tomorrows-cars-the-kers-is-very-important-in-this-context-and-ferrari-as-a-manufacturer-had-and-has-extraordinary-support-in-formula-1'''
+keywords = '''Formula 1 has to be more and more also a laboratory, a centre of advanced research for innovative technologies for tomorrow's cars. The KERS is very important in this context, and Ferrari as a manufacturer had, and has, extraordinary support in Formula 1.,luca cordero di montezemolo,luca cordero di montezemolo quotes,luca cordero di montezemolo quote,luca cordero di montezemolo sayings,luca cordero di montezemolo saying,quotes, sayings,quote, saying, motivation'''
++++
+Formula 1 has to be more and more also a laboratory, a centre of advanced research for innovative technologies for tomorrow's cars. The KERS is very important in this context, and Ferrari as a manufacturer had, and has, extraordinary support in Formula 1.

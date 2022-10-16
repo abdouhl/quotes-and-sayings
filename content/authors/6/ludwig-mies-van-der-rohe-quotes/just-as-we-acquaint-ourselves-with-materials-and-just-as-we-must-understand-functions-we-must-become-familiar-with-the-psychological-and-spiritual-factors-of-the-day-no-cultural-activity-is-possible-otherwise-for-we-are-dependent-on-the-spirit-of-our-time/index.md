@@ -1,0 +1,8 @@
++++
+author = "Ludwig Mies Van Der Rohe"
+title = '''Just as we acquaint ourselves with materials, and just as we must understand functions, we must become familiar with the psychological and spiritual factors of the day. No cultural activity is possible otherwise, for we are dependent on the spirit of our time.'''
+description = '''the best Ludwig Mies Van Der Rohe Quote: Just as we acquaint ourselves with materials, and just as we must understand functions, we must become familiar with the psychological and spiritual factors of the day. No cultural activity is possible otherwise, for we are dependent on the spirit of our time.'''
+slug = '''just-as-we-acquaint-ourselves-with-materials-and-just-as-we-must-understand-functions-we-must-become-familiar-with-the-psychological-and-spiritual-factors-of-the-day-no-cultural-activity-is-possible-otherwise-for-we-are-dependent-on-the-spirit-of-our-time'''
+keywords = '''Just as we acquaint ourselves with materials, and just as we must understand functions, we must become familiar with the psychological and spiritual factors of the day. No cultural activity is possible otherwise, for we are dependent on the spirit of our time.,ludwig mies van der rohe,ludwig mies van der rohe quotes,ludwig mies van der rohe quote,ludwig mies van der rohe sayings,ludwig mies van der rohe saying,quotes, sayings,quote, saying, motivation'''
++++
+Just as we acquaint ourselves with materials, and just as we must understand functions, we must become familiar with the psychological and spiritual factors of the day. No cultural activity is possible otherwise, for we are dependent on the spirit of our time.

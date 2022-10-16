@@ -1,0 +1,8 @@
++++
+author = "Lorraine Hansberry"
+title = '''Mine is, after all, the generation that had come to maturity drinking in the forebodings of the Silones, Koestlers, and Richard Wrights. It had left us ill-prepared for decisions that had to be made in our own time about Algeria, Birmingham, or the Bay of Pigs.'''
+description = '''the best Lorraine Hansberry Quote: Mine is, after all, the generation that had come to maturity drinking in the forebodings of the Silones, Koestlers, and Richard Wrights. It had left us ill-prepared for decisions that had to be made in our own time about Algeria, Birmingham, or the Bay of Pigs.'''
+slug = '''mine-is-after-all-the-generation-that-had-come-to-maturity-drinking-in-the-forebodings-of-the-silones-koestlers-and-richard-wrights-it-had-left-us-ill-prepared-for-decisions-that-had-to-be-made-in-our-own-time-about-algeria-birmingham-or-the-bay-of-pigs'''
+keywords = '''Mine is, after all, the generation that had come to maturity drinking in the forebodings of the Silones, Koestlers, and Richard Wrights. It had left us ill-prepared for decisions that had to be made in our own time about Algeria, Birmingham, or the Bay of Pigs.,lorraine hansberry,lorraine hansberry quotes,lorraine hansberry quote,lorraine hansberry sayings,lorraine hansberry saying,quotes, sayings,quote, saying, motivation'''
++++
+Mine is, after all, the generation that had come to maturity drinking in the forebodings of the Silones, Koestlers, and Richard Wrights. It had left us ill-prepared for decisions that had to be made in our own time about Algeria, Birmingham, or the Bay of Pigs.

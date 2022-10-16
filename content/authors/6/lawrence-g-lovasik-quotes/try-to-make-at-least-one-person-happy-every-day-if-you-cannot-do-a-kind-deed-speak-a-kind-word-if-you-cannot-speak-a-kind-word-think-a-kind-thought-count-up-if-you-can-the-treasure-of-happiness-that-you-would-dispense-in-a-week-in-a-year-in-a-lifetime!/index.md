@@ -1,0 +1,8 @@
++++
+author = "Lawrence G. Lovasik"
+title = '''Try to make at least one person happy every day. If you cannot do a kind deed, speak a kind word. If you cannot speak a kind word, think a kind thought. Count up, if you can, the treasure of happiness that you would dispense in a week, in a year, in a lifetime!'''
+description = '''the best Lawrence G. Lovasik Quote: Try to make at least one person happy every day. If you cannot do a kind deed, speak a kind word. If you cannot speak a kind word, think a kind thought. Count up, if you can, the treasure of happiness that you would dispense in a week, in a year, in a lifetime!'''
+slug = '''try-to-make-at-least-one-person-happy-every-day-if-you-cannot-do-a-kind-deed-speak-a-kind-word-if-you-cannot-speak-a-kind-word-think-a-kind-thought-count-up-if-you-can-the-treasure-of-happiness-that-you-would-dispense-in-a-week-in-a-year-in-a-lifetime!'''
+keywords = '''Try to make at least one person happy every day. If you cannot do a kind deed, speak a kind word. If you cannot speak a kind word, think a kind thought. Count up, if you can, the treasure of happiness that you would dispense in a week, in a year, in a lifetime!,lawrence g. lovasik,lawrence g. lovasik quotes,lawrence g. lovasik quote,lawrence g. lovasik sayings,lawrence g. lovasik saying,quotes, sayings,quote, saying, motivation'''
++++
+Try to make at least one person happy every day. If you cannot do a kind deed, speak a kind word. If you cannot speak a kind word, think a kind thought. Count up, if you can, the treasure of happiness that you would dispense in a week, in a year, in a lifetime!
