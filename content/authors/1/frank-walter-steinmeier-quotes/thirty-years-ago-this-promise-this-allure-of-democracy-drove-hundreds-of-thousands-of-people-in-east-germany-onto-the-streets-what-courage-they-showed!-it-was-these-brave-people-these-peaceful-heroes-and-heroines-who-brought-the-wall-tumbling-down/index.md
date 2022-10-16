@@ -1,8 +1,0 @@
-+++
-author = "Frank-Walter Steinmeier"
-title = "Thirty years ago, this promise, this allure of democracy, drove hundreds of thousands of people in East Germany onto the streets. What courage they showed! It was these brave people, these peaceful heroes and heroines, who brought the Wall tumbling down."
-description = "the best Frank-Walter Steinmeier Quote: Thirty years ago, this promise, this allure of democracy, drove hundreds of thousands of people in East Germany onto the streets. What courage they showed! It was these brave people, these peaceful heroes and heroines, who brought the Wall tumbling down."
-slug = "thirty-years-ago-this-promise-this-allure-of-democracy-drove-hundreds-of-thousands-of-people-in-east-germany-onto-the-streets-what-courage-they-showed!-it-was-these-brave-people-these-peaceful-heroes-and-heroines-who-brought-the-wall-tumbling-down"
-keywords = "Thirty years ago, this promise, this allure of democracy, drove hundreds of thousands of people in East Germany onto the streets. What courage they showed! It was these brave people, these peaceful heroes and heroines, who brought the Wall tumbling down.,frank-walter steinmeier,frank-walter steinmeier quotes,frank-walter steinmeier quote,frank-walter steinmeier sayings,frank-walter steinmeier saying,quotes, sayings,quote, saying, motivation"
-+++
-Thirty years ago, this promise, this allure of democracy, drove hundreds of thousands of people in East Germany onto the streets. What courage they showed! It was these brave people, these peaceful heroes and heroines, who brought the Wall tumbling down.
