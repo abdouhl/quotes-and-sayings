@@ -1,0 +1,8 @@
++++
+author = "Cecile Mclorin Salvant"
+title = '''Jazz in the 1920s and '30s was dance music, teenage music for parties, for being wild and young. There's this punk feeling I really love. It was something so radical and different and new and not codified. People didn't have a definition of what they were doing.'''
+description = '''the best Cecile Mclorin Salvant Quote: Jazz in the 1920s and '30s was dance music, teenage music for parties, for being wild and young. There's this punk feeling I really love. It was something so radical and different and new and not codified. People didn't have a definition of what they were doing.'''
+slug = '''jazz-in-the-1920s-and-30s-was-dance-music-teenage-music-for-parties-for-being-wild-and-young-theres-this-punk-feeling-i-really-love-it-was-something-so-radical-and-different-and-new-and-not-codified-people-didnt-have-a-definition-of-what-they-were-doing'''
+keywords = '''Jazz in the 1920s and '30s was dance music, teenage music for parties, for being wild and young. There's this punk feeling I really love. It was something so radical and different and new and not codified. People didn't have a definition of what they were doing.,cecile mclorin salvant,cecile mclorin salvant quotes,cecile mclorin salvant quote,cecile mclorin salvant sayings,cecile mclorin salvant saying,quotes, sayings,quote, saying, motivation'''
++++
+Jazz in the 1920s and '30s was dance music, teenage music for parties, for being wild and young. There's this punk feeling I really love. It was something so radical and different and new and not codified. People didn't have a definition of what they were doing.

@@ -1,0 +1,8 @@
++++
+author = "Cecile Mclorin Salvant"
+title = '''My compositions are, I would say, like pages ripped from a diary that I don't really want to share, but that I almost feel the need to share. It's a way for me to get things out that I can't get out in life, you know, in real regular conversation with people.'''
+description = '''the best Cecile Mclorin Salvant Quote: My compositions are, I would say, like pages ripped from a diary that I don't really want to share, but that I almost feel the need to share. It's a way for me to get things out that I can't get out in life, you know, in real regular conversation with people.'''
+slug = '''my-compositions-are-i-would-say-like-pages-ripped-from-a-diary-that-i-dont-really-want-to-share-but-that-i-almost-feel-the-need-to-share-its-a-way-for-me-to-get-things-out-that-i-cant-get-out-in-life-you-know-in-real-regular-conversation-with-people'''
+keywords = '''My compositions are, I would say, like pages ripped from a diary that I don't really want to share, but that I almost feel the need to share. It's a way for me to get things out that I can't get out in life, you know, in real regular conversation with people.,cecile mclorin salvant,cecile mclorin salvant quotes,cecile mclorin salvant quote,cecile mclorin salvant sayings,cecile mclorin salvant saying,quotes, sayings,quote, saying, motivation'''
++++
+My compositions are, I would say, like pages ripped from a diary that I don't really want to share, but that I almost feel the need to share. It's a way for me to get things out that I can't get out in life, you know, in real regular conversation with people.

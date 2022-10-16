@@ -1,0 +1,8 @@
++++
+author = "Carrie Brownstein"
+title = '''One summer, when I was elementary-school age, my neighbors and I built guitars and keyboards out of scrap wood, painted them in bright colors, and formed the cover band Lil' 'D' Duran Duran. We didn't make our own noise or even pretend to play our fake instruments.'''
+description = '''the best Carrie Brownstein Quote: One summer, when I was elementary-school age, my neighbors and I built guitars and keyboards out of scrap wood, painted them in bright colors, and formed the cover band Lil' 'D' Duran Duran. We didn't make our own noise or even pretend to play our fake instruments.'''
+slug = '''one-summer-when-i-was-elementary-school-age-my-neighbors-and-i-built-guitars-and-keyboards-out-of-scrap-wood-painted-them-in-bright-colors-and-formed-the-cover-band-lil-d-duran-duran-we-didnt-make-our-own-noise-or-even-pretend-to-play-our-fake-instruments'''
+keywords = '''One summer, when I was elementary-school age, my neighbors and I built guitars and keyboards out of scrap wood, painted them in bright colors, and formed the cover band Lil' 'D' Duran Duran. We didn't make our own noise or even pretend to play our fake instruments.,carrie brownstein,carrie brownstein quotes,carrie brownstein quote,carrie brownstein sayings,carrie brownstein saying,quotes, sayings,quote, saying, motivation'''
++++
+One summer, when I was elementary-school age, my neighbors and I built guitars and keyboards out of scrap wood, painted them in bright colors, and formed the cover band Lil' 'D' Duran Duran. We didn't make our own noise or even pretend to play our fake instruments.

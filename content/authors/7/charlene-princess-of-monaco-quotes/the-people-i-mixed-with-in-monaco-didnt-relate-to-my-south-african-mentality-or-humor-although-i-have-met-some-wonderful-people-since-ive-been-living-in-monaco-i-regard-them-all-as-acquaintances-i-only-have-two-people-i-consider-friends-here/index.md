@@ -1,0 +1,8 @@
++++
+author = "Charlene, Princess Of Monaco"
+title = '''The people I mixed with in Monaco didn't relate to my South African mentality or humor... Although I have met some wonderful people since I've been living in Monaco, I regard them all as acquaintances. I only have two people I consider friends here.'''
+description = '''the best Charlene, Princess Of Monaco Quote: The people I mixed with in Monaco didn't relate to my South African mentality or humor... Although I have met some wonderful people since I've been living in Monaco, I regard them all as acquaintances. I only have two people I consider friends here.'''
+slug = '''the-people-i-mixed-with-in-monaco-didnt-relate-to-my-south-african-mentality-or-humor-although-i-have-met-some-wonderful-people-since-ive-been-living-in-monaco-i-regard-them-all-as-acquaintances-i-only-have-two-people-i-consider-friends-here'''
+keywords = '''The people I mixed with in Monaco didn't relate to my South African mentality or humor... Although I have met some wonderful people since I've been living in Monaco, I regard them all as acquaintances. I only have two people I consider friends here.,charlene, princess of monaco,charlene, princess of monaco quotes,charlene, princess of monaco quote,charlene, princess of monaco sayings,charlene, princess of monaco saying,quotes, sayings,quote, saying, motivation'''
++++
+The people I mixed with in Monaco didn't relate to my South African mentality or humor... Although I have met some wonderful people since I've been living in Monaco, I regard them all as acquaintances. I only have two people I consider friends here.
