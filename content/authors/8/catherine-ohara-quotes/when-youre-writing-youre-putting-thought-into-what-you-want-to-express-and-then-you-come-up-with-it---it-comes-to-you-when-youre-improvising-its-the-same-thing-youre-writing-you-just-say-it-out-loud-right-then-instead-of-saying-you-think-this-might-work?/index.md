@@ -1,0 +1,8 @@
++++
+author = "Catherine O'Hara"
+title = '''When you're writing, you're putting thought into what you want to express, and then you come up with it - it comes to you. When you're improvising, it's the same thing. You're writing. You just say it out loud right then, instead of saying, 'You think this might work?''''
+description = '''the best Catherine O'Hara Quote: When you're writing, you're putting thought into what you want to express, and then you come up with it - it comes to you. When you're improvising, it's the same thing. You're writing. You just say it out loud right then, instead of saying, 'You think this might work?''''
+slug = '''when-youre-writing-youre-putting-thought-into-what-you-want-to-express-and-then-you-come-up-with-it---it-comes-to-you-when-youre-improvising-its-the-same-thing-youre-writing-you-just-say-it-out-loud-right-then-instead-of-saying-you-think-this-might-work?'''
+keywords = '''When you're writing, you're putting thought into what you want to express, and then you come up with it - it comes to you. When you're improvising, it's the same thing. You're writing. You just say it out loud right then, instead of saying, 'You think this might work?',catherine o'hara,catherine o'hara quotes,catherine o'hara quote,catherine o'hara sayings,catherine o'hara saying,quotes, sayings,quote, saying, motivation'''
++++
+When you're writing, you're putting thought into what you want to express, and then you come up with it - it comes to you. When you're improvising, it's the same thing. You're writing. You just say it out loud right then, instead of saying, 'You think this might work?'

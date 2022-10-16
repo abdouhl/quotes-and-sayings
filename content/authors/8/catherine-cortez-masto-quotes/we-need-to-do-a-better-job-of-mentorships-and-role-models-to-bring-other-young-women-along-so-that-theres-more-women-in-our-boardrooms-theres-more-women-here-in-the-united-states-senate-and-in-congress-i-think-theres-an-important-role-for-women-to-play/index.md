@@ -1,0 +1,8 @@
++++
+author = "Catherine Cortez-Masto"
+title = '''We need to do a better job of mentorships and role models to bring other young women along so that there's more women in our boardrooms, there's more women here in the United States Senate and in Congress. I think there's an important role for women to play.'''
+description = '''the best Catherine Cortez-Masto Quote: We need to do a better job of mentorships and role models to bring other young women along so that there's more women in our boardrooms, there's more women here in the United States Senate and in Congress. I think there's an important role for women to play.'''
+slug = '''we-need-to-do-a-better-job-of-mentorships-and-role-models-to-bring-other-young-women-along-so-that-theres-more-women-in-our-boardrooms-theres-more-women-here-in-the-united-states-senate-and-in-congress-i-think-theres-an-important-role-for-women-to-play'''
+keywords = '''We need to do a better job of mentorships and role models to bring other young women along so that there's more women in our boardrooms, there's more women here in the United States Senate and in Congress. I think there's an important role for women to play.,catherine cortez-masto,catherine cortez-masto quotes,catherine cortez-masto quote,catherine cortez-masto sayings,catherine cortez-masto saying,quotes, sayings,quote, saying, motivation'''
++++
+We need to do a better job of mentorships and role models to bring other young women along so that there's more women in our boardrooms, there's more women here in the United States Senate and in Congress. I think there's an important role for women to play.

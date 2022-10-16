@@ -1,0 +1,8 @@
++++
+author = "Chitra Banerjee Divakaruni"
+title = '''I have been watching how Indian women are forced to do certain things, as the stories of sacrifice and devotion in mythology demand from them. And then there are inspiring stories about women like the Rani of Jhansi that offer women refreshing role models.'''
+description = '''the best Chitra Banerjee Divakaruni Quote: I have been watching how Indian women are forced to do certain things, as the stories of sacrifice and devotion in mythology demand from them. And then there are inspiring stories about women like the Rani of Jhansi that offer women refreshing role models.'''
+slug = '''i-have-been-watching-how-indian-women-are-forced-to-do-certain-things-as-the-stories-of-sacrifice-and-devotion-in-mythology-demand-from-them-and-then-there-are-inspiring-stories-about-women-like-the-rani-of-jhansi-that-offer-women-refreshing-role-models'''
+keywords = '''I have been watching how Indian women are forced to do certain things, as the stories of sacrifice and devotion in mythology demand from them. And then there are inspiring stories about women like the Rani of Jhansi that offer women refreshing role models.,chitra banerjee divakaruni,chitra banerjee divakaruni quotes,chitra banerjee divakaruni quote,chitra banerjee divakaruni sayings,chitra banerjee divakaruni saying,quotes, sayings,quote, saying, motivation'''
++++
+I have been watching how Indian women are forced to do certain things, as the stories of sacrifice and devotion in mythology demand from them. And then there are inspiring stories about women like the Rani of Jhansi that offer women refreshing role models.

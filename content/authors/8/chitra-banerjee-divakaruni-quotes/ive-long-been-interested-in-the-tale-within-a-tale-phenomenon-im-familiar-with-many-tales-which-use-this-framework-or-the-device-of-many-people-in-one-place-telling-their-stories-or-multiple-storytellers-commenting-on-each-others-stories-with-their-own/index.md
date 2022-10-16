@@ -1,0 +1,8 @@
++++
+author = "Chitra Banerjee Divakaruni"
+title = '''I've long been interested in the tale-within-a-tale phenomenon. I'm familiar with many tales which use this framework or the device of many people in one place, telling their stories, or multiple storytellers commenting on each others' stories with their own.'''
+description = '''the best Chitra Banerjee Divakaruni Quote: I've long been interested in the tale-within-a-tale phenomenon. I'm familiar with many tales which use this framework or the device of many people in one place, telling their stories, or multiple storytellers commenting on each others' stories with their own.'''
+slug = '''ive-long-been-interested-in-the-tale-within-a-tale-phenomenon-im-familiar-with-many-tales-which-use-this-framework-or-the-device-of-many-people-in-one-place-telling-their-stories-or-multiple-storytellers-commenting-on-each-others-stories-with-their-own'''
+keywords = '''I've long been interested in the tale-within-a-tale phenomenon. I'm familiar with many tales which use this framework or the device of many people in one place, telling their stories, or multiple storytellers commenting on each others' stories with their own.,chitra banerjee divakaruni,chitra banerjee divakaruni quotes,chitra banerjee divakaruni quote,chitra banerjee divakaruni sayings,chitra banerjee divakaruni saying,quotes, sayings,quote, saying, motivation'''
++++
+I've long been interested in the tale-within-a-tale phenomenon. I'm familiar with many tales which use this framework or the device of many people in one place, telling their stories, or multiple storytellers commenting on each others' stories with their own.

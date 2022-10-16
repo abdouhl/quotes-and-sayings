@@ -1,0 +1,8 @@
++++
+author = "Charles Jules Henry Nicole"
+title = '''Just as the only reservoir for the typhus virus in nature is provided by man, so the only vector of infection is the louse. The bite of the louse is not virulent immediately after the infecting meal. It becomes so only towards the 7th day following infection.'''
+description = '''the best Charles Jules Henry Nicole Quote: Just as the only reservoir for the typhus virus in nature is provided by man, so the only vector of infection is the louse. The bite of the louse is not virulent immediately after the infecting meal. It becomes so only towards the 7th day following infection.'''
+slug = '''just-as-the-only-reservoir-for-the-typhus-virus-in-nature-is-provided-by-man-so-the-only-vector-of-infection-is-the-louse-the-bite-of-the-louse-is-not-virulent-immediately-after-the-infecting-meal-it-becomes-so-only-towards-the-7th-day-following-infection'''
+keywords = '''Just as the only reservoir for the typhus virus in nature is provided by man, so the only vector of infection is the louse. The bite of the louse is not virulent immediately after the infecting meal. It becomes so only towards the 7th day following infection.,charles jules henry nicole,charles jules henry nicole quotes,charles jules henry nicole quote,charles jules henry nicole sayings,charles jules henry nicole saying,quotes, sayings,quote, saying, motivation'''
++++
+Just as the only reservoir for the typhus virus in nature is provided by man, so the only vector of infection is the louse. The bite of the louse is not virulent immediately after the infecting meal. It becomes so only towards the 7th day following infection.

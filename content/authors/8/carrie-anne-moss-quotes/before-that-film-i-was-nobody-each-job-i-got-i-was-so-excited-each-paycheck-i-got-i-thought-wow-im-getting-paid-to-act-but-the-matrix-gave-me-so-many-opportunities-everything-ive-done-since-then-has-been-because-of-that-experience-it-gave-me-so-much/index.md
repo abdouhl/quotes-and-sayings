@@ -1,0 +1,8 @@
++++
+author = "Carrie-Anne Moss"
+title = '''Before that film, I was nobody. Each job I got, I was so excited. Each paycheck I got, I thought, 'Wow, I'm getting paid to act.' But 'The Matrix' gave me so many opportunities. Everything I've done since then has been because of that experience. It gave me so much.'''
+description = '''the best Carrie-Anne Moss Quote: Before that film, I was nobody. Each job I got, I was so excited. Each paycheck I got, I thought, 'Wow, I'm getting paid to act.' But 'The Matrix' gave me so many opportunities. Everything I've done since then has been because of that experience. It gave me so much.'''
+slug = '''before-that-film-i-was-nobody-each-job-i-got-i-was-so-excited-each-paycheck-i-got-i-thought-wow-im-getting-paid-to-act-but-the-matrix-gave-me-so-many-opportunities-everything-ive-done-since-then-has-been-because-of-that-experience-it-gave-me-so-much'''
+keywords = '''Before that film, I was nobody. Each job I got, I was so excited. Each paycheck I got, I thought, 'Wow, I'm getting paid to act.' But 'The Matrix' gave me so many opportunities. Everything I've done since then has been because of that experience. It gave me so much.,carrie-anne moss,carrie-anne moss quotes,carrie-anne moss quote,carrie-anne moss sayings,carrie-anne moss saying,quotes, sayings,quote, saying, motivation'''
++++
+Before that film, I was nobody. Each job I got, I was so excited. Each paycheck I got, I thought, 'Wow, I'm getting paid to act.' But 'The Matrix' gave me so many opportunities. Everything I've done since then has been because of that experience. It gave me so much.

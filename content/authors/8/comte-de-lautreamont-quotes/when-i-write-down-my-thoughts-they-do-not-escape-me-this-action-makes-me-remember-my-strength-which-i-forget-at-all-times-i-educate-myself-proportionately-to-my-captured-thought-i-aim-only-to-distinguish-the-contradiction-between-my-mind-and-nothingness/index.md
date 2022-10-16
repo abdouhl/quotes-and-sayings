@@ -1,0 +1,8 @@
++++
+author = "Comte De Lautreamont"
+title = '''When I write down my thoughts, they do not escape me. This action makes me remember my strength which I forget at all times. I educate myself proportionately to my captured thought. I aim only to distinguish the contradiction between my mind and nothingness.'''
+description = '''the best Comte De Lautreamont Quote: When I write down my thoughts, they do not escape me. This action makes me remember my strength which I forget at all times. I educate myself proportionately to my captured thought. I aim only to distinguish the contradiction between my mind and nothingness.'''
+slug = '''when-i-write-down-my-thoughts-they-do-not-escape-me-this-action-makes-me-remember-my-strength-which-i-forget-at-all-times-i-educate-myself-proportionately-to-my-captured-thought-i-aim-only-to-distinguish-the-contradiction-between-my-mind-and-nothingness'''
+keywords = '''When I write down my thoughts, they do not escape me. This action makes me remember my strength which I forget at all times. I educate myself proportionately to my captured thought. I aim only to distinguish the contradiction between my mind and nothingness.,comte de lautreamont,comte de lautreamont quotes,comte de lautreamont quote,comte de lautreamont sayings,comte de lautreamont saying,quotes, sayings,quote, saying, motivation'''
++++
+When I write down my thoughts, they do not escape me. This action makes me remember my strength which I forget at all times. I educate myself proportionately to my captured thought. I aim only to distinguish the contradiction between my mind and nothingness.

@@ -1,0 +1,8 @@
++++
+author = "Charles Durning"
+title = '''Of course, I'm not often the top dog, but sometimes it's better not to be top dog, because you last longer. If a movie or play flops, you always blame the lead. They say, 'He couldn't carry it.' They always blame him. But they rarely blame the second or third banana.'''
+description = '''the best Charles Durning Quote: Of course, I'm not often the top dog, but sometimes it's better not to be top dog, because you last longer. If a movie or play flops, you always blame the lead. They say, 'He couldn't carry it.' They always blame him. But they rarely blame the second or third banana.'''
+slug = '''of-course-im-not-often-the-top-dog-but-sometimes-its-better-not-to-be-top-dog-because-you-last-longer-if-a-movie-or-play-flops-you-always-blame-the-lead-they-say-he-couldnt-carry-it-they-always-blame-him-but-they-rarely-blame-the-second-or-third-banana'''
+keywords = '''Of course, I'm not often the top dog, but sometimes it's better not to be top dog, because you last longer. If a movie or play flops, you always blame the lead. They say, 'He couldn't carry it.' They always blame him. But they rarely blame the second or third banana.,charles durning,charles durning quotes,charles durning quote,charles durning sayings,charles durning saying,quotes, sayings,quote, saying, motivation'''
++++
+Of course, I'm not often the top dog, but sometimes it's better not to be top dog, because you last longer. If a movie or play flops, you always blame the lead. They say, 'He couldn't carry it.' They always blame him. But they rarely blame the second or third banana.

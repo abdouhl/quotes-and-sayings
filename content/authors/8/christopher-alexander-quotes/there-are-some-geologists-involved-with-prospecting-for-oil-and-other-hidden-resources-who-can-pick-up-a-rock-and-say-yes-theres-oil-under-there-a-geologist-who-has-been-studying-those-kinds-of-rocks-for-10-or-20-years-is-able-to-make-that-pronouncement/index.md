@@ -1,0 +1,8 @@
++++
+author = "Christopher Alexander"
+title = '''There are some geologists involved with prospecting for oil and other hidden resources who can pick up a rock and say, 'Yes, there's oil under there.' A geologist who has been studying those kinds of rocks for 10 or 20 years is able to make that pronouncement.'''
+description = '''the best Christopher Alexander Quote: There are some geologists involved with prospecting for oil and other hidden resources who can pick up a rock and say, 'Yes, there's oil under there.' A geologist who has been studying those kinds of rocks for 10 or 20 years is able to make that pronouncement.'''
+slug = '''there-are-some-geologists-involved-with-prospecting-for-oil-and-other-hidden-resources-who-can-pick-up-a-rock-and-say-yes-theres-oil-under-there-a-geologist-who-has-been-studying-those-kinds-of-rocks-for-10-or-20-years-is-able-to-make-that-pronouncement'''
+keywords = '''There are some geologists involved with prospecting for oil and other hidden resources who can pick up a rock and say, 'Yes, there's oil under there.' A geologist who has been studying those kinds of rocks for 10 or 20 years is able to make that pronouncement.,christopher alexander,christopher alexander quotes,christopher alexander quote,christopher alexander sayings,christopher alexander saying,quotes, sayings,quote, saying, motivation'''
++++
+There are some geologists involved with prospecting for oil and other hidden resources who can pick up a rock and say, 'Yes, there's oil under there.' A geologist who has been studying those kinds of rocks for 10 or 20 years is able to make that pronouncement.

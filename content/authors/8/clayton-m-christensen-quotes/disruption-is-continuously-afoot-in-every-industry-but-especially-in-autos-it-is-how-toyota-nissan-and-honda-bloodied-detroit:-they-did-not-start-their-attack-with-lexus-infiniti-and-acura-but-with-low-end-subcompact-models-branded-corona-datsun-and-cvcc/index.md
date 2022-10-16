@@ -1,0 +1,8 @@
++++
+author = "Clayton M. Christensen"
+title = '''Disruption is continuously afoot in every industry, but especially in autos. It is how Toyota, Nissan and Honda bloodied Detroit: They did not start their attack with Lexus, Infiniti and Acura, but with low-end subcompact models branded Corona, Datsun and CVCC.'''
+description = '''the best Clayton M. Christensen Quote: Disruption is continuously afoot in every industry, but especially in autos. It is how Toyota, Nissan and Honda bloodied Detroit: They did not start their attack with Lexus, Infiniti and Acura, but with low-end subcompact models branded Corona, Datsun and CVCC.'''
+slug = '''disruption-is-continuously-afoot-in-every-industry-but-especially-in-autos-it-is-how-toyota-nissan-and-honda-bloodied-detroit:-they-did-not-start-their-attack-with-lexus-infiniti-and-acura-but-with-low-end-subcompact-models-branded-corona-datsun-and-cvcc'''
+keywords = '''Disruption is continuously afoot in every industry, but especially in autos. It is how Toyota, Nissan and Honda bloodied Detroit: They did not start their attack with Lexus, Infiniti and Acura, but with low-end subcompact models branded Corona, Datsun and CVCC.,clayton m. christensen,clayton m. christensen quotes,clayton m. christensen quote,clayton m. christensen sayings,clayton m. christensen saying,quotes, sayings,quote, saying, motivation'''
++++
+Disruption is continuously afoot in every industry, but especially in autos. It is how Toyota, Nissan and Honda bloodied Detroit: They did not start their attack with Lexus, Infiniti and Acura, but with low-end subcompact models branded Corona, Datsun and CVCC.
