@@ -1,8 +1,0 @@
-+++
-author = "Rabindranath Tagore"
-title = "Trees are Earth's endless effort to speak to the listening heaven."
-description = "the best Rabindranath Tagore Quote: Trees are Earth's endless effort to speak to the listening heaven."
-slug = "trees-are-earths-endless-effort-to-speak-to-the-listening-heaven"
-keywords = "Trees are Earth's endless effort to speak to the listening heaven.,rabindranath tagore,rabindranath tagore quotes,rabindranath tagore quote,rabindranath tagore sayings,rabindranath tagore saying,quotes, sayings,quote, saying, motivation"
-+++
-Trees are Earth's endless effort to speak to the listening heaven.
