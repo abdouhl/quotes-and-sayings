@@ -1,0 +1,8 @@
++++
+author = "Brett Goldstein"
+title = "You've heard this phrase and I don't think I understood it until I was making 'Ted Lasso,' this thing of 'the sandbox.' It's like we build the sandbox, we have the characters, we've got the action figures, and Season 2, we get to play with them and move them around."
+description = "the best Brett Goldstein Quote: You've heard this phrase and I don't think I understood it until I was making 'Ted Lasso,' this thing of 'the sandbox.' It's like we build the sandbox, we have the characters, we've got the action figures, and Season 2, we get to play with them and move them around."
+slug = "youve-heard-this-phrase-and-i-dont-think-i-understood-it-until-i-was-making-ted-lasso-this-thing-of-the-sandbox-its-like-we-build-the-sandbox-we-have-the-characters-weve-got-the-action-figures-and-season-2-we-get-to-play-with-them-and-move-them-around"
+keywords = "You've heard this phrase and I don't think I understood it until I was making 'Ted Lasso,' this thing of 'the sandbox.' It's like we build the sandbox, we have the characters, we've got the action figures, and Season 2, we get to play with them and move them around.,brett goldstein,brett goldstein quotes,brett goldstein quote,brett goldstein sayings,brett goldstein saying,quotes, sayings,quote, saying, motivation"
++++
+You've heard this phrase and I don't think I understood it until I was making 'Ted Lasso,' this thing of 'the sandbox.' It's like we build the sandbox, we have the characters, we've got the action figures, and Season 2, we get to play with them and move them around.
