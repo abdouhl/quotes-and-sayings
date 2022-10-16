@@ -1,8 +1,0 @@
-+++
-author = "Benjamin N. Cardozo"
-title = "Lawsuits are rare and catastrophic experiences for the vast majority of men, and even when the catastrophe ensues, the controversy relates most often not to the law, but to the facts. In countless litigations, the law Is so clear that judges have no discretion."
-description = "the best Benjamin N. Cardozo Quote: Lawsuits are rare and catastrophic experiences for the vast majority of men, and even when the catastrophe ensues, the controversy relates most often not to the law, but to the facts. In countless litigations, the law Is so clear that judges have no discretion."
-slug = "lawsuits-are-rare-and-catastrophic-experiences-for-the-vast-majority-of-men-and-even-when-the-catastrophe-ensues-the-controversy-relates-most-often-not-to-the-law-but-to-the-facts-in-countless-litigations-the-law-is-so-clear-that-judges-have-no-discretion"
-keywords = "Lawsuits are rare and catastrophic experiences for the vast majority of men, and even when the catastrophe ensues, the controversy relates most often not to the law, but to the facts. In countless litigations, the law Is so clear that judges have no discretion.,benjamin n. cardozo,benjamin n. cardozo quotes,benjamin n. cardozo quote,benjamin n. cardozo sayings,benjamin n. cardozo saying,quotes, sayings,quote, saying, motivation"
-+++
-Lawsuits are rare and catastrophic experiences for the vast majority of men, and even when the catastrophe ensues, the controversy relates most often not to the law, but to the facts. In countless litigations, the law Is so clear that judges have no discretion.
