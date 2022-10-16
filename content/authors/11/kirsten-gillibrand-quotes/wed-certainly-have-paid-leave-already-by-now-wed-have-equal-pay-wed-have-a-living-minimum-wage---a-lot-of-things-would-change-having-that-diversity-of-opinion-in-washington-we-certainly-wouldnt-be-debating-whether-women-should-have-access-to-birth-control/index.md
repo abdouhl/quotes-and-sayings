@@ -1,0 +1,8 @@
++++
+author = "Kirsten Gillibrand"
+title = '''We'd certainly have paid leave already by now, we'd have equal pay, we'd have a living minimum wage - a lot of things would change having that diversity of opinion in Washington. We certainly wouldn't be debating whether women should have access to birth control.'''
+description = '''the best Kirsten Gillibrand Quote: We'd certainly have paid leave already by now, we'd have equal pay, we'd have a living minimum wage - a lot of things would change having that diversity of opinion in Washington. We certainly wouldn't be debating whether women should have access to birth control.'''
+slug = '''wed-certainly-have-paid-leave-already-by-now-wed-have-equal-pay-wed-have-a-living-minimum-wage---a-lot-of-things-would-change-having-that-diversity-of-opinion-in-washington-we-certainly-wouldnt-be-debating-whether-women-should-have-access-to-birth-control'''
+keywords = '''We'd certainly have paid leave already by now, we'd have equal pay, we'd have a living minimum wage - a lot of things would change having that diversity of opinion in Washington. We certainly wouldn't be debating whether women should have access to birth control.,kirsten gillibrand,kirsten gillibrand quotes,kirsten gillibrand quote,kirsten gillibrand sayings,kirsten gillibrand saying,quotes, sayings,quote, saying, motivation'''
++++
+We'd certainly have paid leave already by now, we'd have equal pay, we'd have a living minimum wage - a lot of things would change having that diversity of opinion in Washington. We certainly wouldn't be debating whether women should have access to birth control.

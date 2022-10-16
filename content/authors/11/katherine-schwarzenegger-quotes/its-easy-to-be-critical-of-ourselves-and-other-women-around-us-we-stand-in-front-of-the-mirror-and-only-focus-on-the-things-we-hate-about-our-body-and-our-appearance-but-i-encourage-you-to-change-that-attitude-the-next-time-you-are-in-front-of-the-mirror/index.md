@@ -1,0 +1,8 @@
++++
+author = "Katherine Schwarzenegger"
+title = '''It's easy to be critical of ourselves and other women around us. We stand in front of the mirror and only focus on the things we hate about our body and our appearance. But I encourage you to change that attitude the next time you are in front of the mirror.'''
+description = '''the best Katherine Schwarzenegger Quote: It's easy to be critical of ourselves and other women around us. We stand in front of the mirror and only focus on the things we hate about our body and our appearance. But I encourage you to change that attitude the next time you are in front of the mirror.'''
+slug = '''its-easy-to-be-critical-of-ourselves-and-other-women-around-us-we-stand-in-front-of-the-mirror-and-only-focus-on-the-things-we-hate-about-our-body-and-our-appearance-but-i-encourage-you-to-change-that-attitude-the-next-time-you-are-in-front-of-the-mirror'''
+keywords = '''It's easy to be critical of ourselves and other women around us. We stand in front of the mirror and only focus on the things we hate about our body and our appearance. But I encourage you to change that attitude the next time you are in front of the mirror.,katherine schwarzenegger,katherine schwarzenegger quotes,katherine schwarzenegger quote,katherine schwarzenegger sayings,katherine schwarzenegger saying,quotes, sayings,quote, saying, motivation'''
++++
+It's easy to be critical of ourselves and other women around us. We stand in front of the mirror and only focus on the things we hate about our body and our appearance. But I encourage you to change that attitude the next time you are in front of the mirror.

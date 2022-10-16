@@ -1,0 +1,8 @@
++++
+author = "Katherine Schwarzenegger"
+title = '''I did an internship with Dove when they were doing the 'real beauty' campaign, and I was really inspired by that. Growing up in L.A., being a young woman, and seeing how the media tells young women to be everything you're not, I kind of wrote about that experience.'''
+description = '''the best Katherine Schwarzenegger Quote: I did an internship with Dove when they were doing the 'real beauty' campaign, and I was really inspired by that. Growing up in L.A., being a young woman, and seeing how the media tells young women to be everything you're not, I kind of wrote about that experience.'''
+slug = '''i-did-an-internship-with-dove-when-they-were-doing-the-real-beauty-campaign-and-i-was-really-inspired-by-that-growing-up-in-la-being-a-young-woman-and-seeing-how-the-media-tells-young-women-to-be-everything-youre-not-i-kind-of-wrote-about-that-experience'''
+keywords = '''I did an internship with Dove when they were doing the 'real beauty' campaign, and I was really inspired by that. Growing up in L.A., being a young woman, and seeing how the media tells young women to be everything you're not, I kind of wrote about that experience.,katherine schwarzenegger,katherine schwarzenegger quotes,katherine schwarzenegger quote,katherine schwarzenegger sayings,katherine schwarzenegger saying,quotes, sayings,quote, saying, motivation'''
++++
+I did an internship with Dove when they were doing the 'real beauty' campaign, and I was really inspired by that. Growing up in L.A., being a young woman, and seeing how the media tells young women to be everything you're not, I kind of wrote about that experience.

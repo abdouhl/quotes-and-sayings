@@ -1,0 +1,8 @@
++++
+author = "Kevin Crossley-Holland"
+title = '''When I was a boy, I took over the shed at the bottom of the garden and displayed fossils and potsherds and coins in it and proudly called it my 'museum'. I charged people to come in, and my most prized possession was a Saracen shield dating from the Crusades.'''
+description = '''the best Kevin Crossley-Holland Quote: When I was a boy, I took over the shed at the bottom of the garden and displayed fossils and potsherds and coins in it and proudly called it my 'museum'. I charged people to come in, and my most prized possession was a Saracen shield dating from the Crusades.'''
+slug = '''when-i-was-a-boy-i-took-over-the-shed-at-the-bottom-of-the-garden-and-displayed-fossils-and-potsherds-and-coins-in-it-and-proudly-called-it-my-museum-i-charged-people-to-come-in-and-my-most-prized-possession-was-a-saracen-shield-dating-from-the-crusades'''
+keywords = '''When I was a boy, I took over the shed at the bottom of the garden and displayed fossils and potsherds and coins in it and proudly called it my 'museum'. I charged people to come in, and my most prized possession was a Saracen shield dating from the Crusades.,kevin crossley-holland,kevin crossley-holland quotes,kevin crossley-holland quote,kevin crossley-holland sayings,kevin crossley-holland saying,quotes, sayings,quote, saying, motivation'''
++++
+When I was a boy, I took over the shed at the bottom of the garden and displayed fossils and potsherds and coins in it and proudly called it my 'museum'. I charged people to come in, and my most prized possession was a Saracen shield dating from the Crusades.

@@ -1,0 +1,8 @@
++++
+author = "Kimberle Williams Crenshaw"
+title = '''Intersectionality draws attention to invisibilities that exist in feminism, in anti-racism, in class politics, so, obviously, it takes a lot of work to consistently challenge ourselves to be attentive to aspects of power that we don't ourselves experience.'''
+description = '''the best Kimberle Williams Crenshaw Quote: Intersectionality draws attention to invisibilities that exist in feminism, in anti-racism, in class politics, so, obviously, it takes a lot of work to consistently challenge ourselves to be attentive to aspects of power that we don't ourselves experience.'''
+slug = '''intersectionality-draws-attention-to-invisibilities-that-exist-in-feminism-in-anti-racism-in-class-politics-so-obviously-it-takes-a-lot-of-work-to-consistently-challenge-ourselves-to-be-attentive-to-aspects-of-power-that-we-dont-ourselves-experience'''
+keywords = '''Intersectionality draws attention to invisibilities that exist in feminism, in anti-racism, in class politics, so, obviously, it takes a lot of work to consistently challenge ourselves to be attentive to aspects of power that we don't ourselves experience.,kimberle williams crenshaw,kimberle williams crenshaw quotes,kimberle williams crenshaw quote,kimberle williams crenshaw sayings,kimberle williams crenshaw saying,quotes, sayings,quote, saying, motivation'''
++++
+Intersectionality draws attention to invisibilities that exist in feminism, in anti-racism, in class politics, so, obviously, it takes a lot of work to consistently challenge ourselves to be attentive to aspects of power that we don't ourselves experience.

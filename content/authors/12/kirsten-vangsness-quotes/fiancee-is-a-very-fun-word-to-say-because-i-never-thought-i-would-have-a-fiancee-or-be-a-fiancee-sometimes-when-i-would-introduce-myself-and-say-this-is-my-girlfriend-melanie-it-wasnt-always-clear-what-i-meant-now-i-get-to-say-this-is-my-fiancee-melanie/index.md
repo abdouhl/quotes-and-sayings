@@ -1,0 +1,8 @@
++++
+author = "Kirsten Vangsness"
+title = ''''Fiancee' is a very fun word to say, because I never thought I would have a fiancee or be a fiancee. Sometimes when I would introduce myself and say, 'This is my girlfriend Melanie,' it wasn't always clear what I meant. Now I get to say, 'This is my fiancee Melanie.''''
+description = '''the best Kirsten Vangsness Quote: 'Fiancee' is a very fun word to say, because I never thought I would have a fiancee or be a fiancee. Sometimes when I would introduce myself and say, 'This is my girlfriend Melanie,' it wasn't always clear what I meant. Now I get to say, 'This is my fiancee Melanie.''''
+slug = '''fiancee-is-a-very-fun-word-to-say-because-i-never-thought-i-would-have-a-fiancee-or-be-a-fiancee-sometimes-when-i-would-introduce-myself-and-say-this-is-my-girlfriend-melanie-it-wasnt-always-clear-what-i-meant-now-i-get-to-say-this-is-my-fiancee-melanie'''
+keywords = ''''Fiancee' is a very fun word to say, because I never thought I would have a fiancee or be a fiancee. Sometimes when I would introduce myself and say, 'This is my girlfriend Melanie,' it wasn't always clear what I meant. Now I get to say, 'This is my fiancee Melanie.',kirsten vangsness,kirsten vangsness quotes,kirsten vangsness quote,kirsten vangsness sayings,kirsten vangsness saying,quotes, sayings,quote, saying, motivation'''
++++
+'Fiancee' is a very fun word to say, because I never thought I would have a fiancee or be a fiancee. Sometimes when I would introduce myself and say, 'This is my girlfriend Melanie,' it wasn't always clear what I meant. Now I get to say, 'This is my fiancee Melanie.'
