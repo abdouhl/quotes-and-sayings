@@ -1,0 +1,8 @@
++++
+author = "Louis R. Chenevert"
+title = '''You could look at people in India and say we are manufacturing the cabin that is going to be a part of the U.S. President's helicopter. That's a pretty big deal, right? There are 11 other heads of state who we support, but the fact is, to me, it's a very large deal.'''
+description = '''the best Louis R. Chenevert Quote: You could look at people in India and say we are manufacturing the cabin that is going to be a part of the U.S. President's helicopter. That's a pretty big deal, right? There are 11 other heads of state who we support, but the fact is, to me, it's a very large deal.'''
+slug = '''you-could-look-at-people-in-india-and-say-we-are-manufacturing-the-cabin-that-is-going-to-be-a-part-of-the-us-presidents-helicopter-thats-a-pretty-big-deal-right?-there-are-11-other-heads-of-state-who-we-support-but-the-fact-is-to-me-its-a-very-large-deal'''
+keywords = '''You could look at people in India and say we are manufacturing the cabin that is going to be a part of the U.S. President's helicopter. That's a pretty big deal, right? There are 11 other heads of state who we support, but the fact is, to me, it's a very large deal.,louis r. chenevert,louis r. chenevert quotes,louis r. chenevert quote,louis r. chenevert sayings,louis r. chenevert saying,quotes, sayings,quote, saying, motivation'''
++++
+You could look at people in India and say we are manufacturing the cabin that is going to be a part of the U.S. President's helicopter. That's a pretty big deal, right? There are 11 other heads of state who we support, but the fact is, to me, it's a very large deal.

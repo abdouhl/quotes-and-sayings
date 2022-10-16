@@ -1,0 +1,8 @@
++++
+author = "Lucille Roybal-Allard"
+title = '''Our theme for this year's festivities, Dreams and Challenges of Asian Pacific Americans, speaks to the many generations of Asian Pacific Americans who worked hard to overcome economic hardship, racism and other barriers in their pursuit of the American dream.'''
+description = '''the best Lucille Roybal-Allard Quote: Our theme for this year's festivities, Dreams and Challenges of Asian Pacific Americans, speaks to the many generations of Asian Pacific Americans who worked hard to overcome economic hardship, racism and other barriers in their pursuit of the American dream.'''
+slug = '''our-theme-for-this-years-festivities-dreams-and-challenges-of-asian-pacific-americans-speaks-to-the-many-generations-of-asian-pacific-americans-who-worked-hard-to-overcome-economic-hardship-racism-and-other-barriers-in-their-pursuit-of-the-american-dream'''
+keywords = '''Our theme for this year's festivities, Dreams and Challenges of Asian Pacific Americans, speaks to the many generations of Asian Pacific Americans who worked hard to overcome economic hardship, racism and other barriers in their pursuit of the American dream.,lucille roybal-allard,lucille roybal-allard quotes,lucille roybal-allard quote,lucille roybal-allard sayings,lucille roybal-allard saying,quotes, sayings,quote, saying, motivation'''
++++
+Our theme for this year's festivities, Dreams and Challenges of Asian Pacific Americans, speaks to the many generations of Asian Pacific Americans who worked hard to overcome economic hardship, racism and other barriers in their pursuit of the American dream.
