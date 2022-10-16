@@ -1,8 +1,0 @@
-+++
-author = "Brian Stokes Mitchell"
-title = "That's the magic of art and the magic of theatre: it has the power to transform an audience, an individual, or en masse, to transform them and give them an epiphanal experience that changes their life, opens their hearts and their minds and the way they think."
-description = "the best Brian Stokes Mitchell Quote: That's the magic of art and the magic of theatre: it has the power to transform an audience, an individual, or en masse, to transform them and give them an epiphanal experience that changes their life, opens their hearts and their minds and the way they think."
-slug = "thats-the-magic-of-art-and-the-magic-of-theatre:-it-has-the-power-to-transform-an-audience-an-individual-or-en-masse-to-transform-them-and-give-them-an-epiphanal-experience-that-changes-their-life-opens-their-hearts-and-their-minds-and-the-way-they-think"
-keywords = "That's the magic of art and the magic of theatre: it has the power to transform an audience, an individual, or en masse, to transform them and give them an epiphanal experience that changes their life, opens their hearts and their minds and the way they think.,brian stokes mitchell,brian stokes mitchell quotes,brian stokes mitchell quote,brian stokes mitchell sayings,brian stokes mitchell saying,quotes, sayings,quote, saying, motivation"
-+++
-That's the magic of art and the magic of theatre: it has the power to transform an audience, an individual, or en masse, to transform them and give them an epiphanal experience that changes their life, opens their hearts and their minds and the way they think.
