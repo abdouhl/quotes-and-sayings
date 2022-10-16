@@ -1,0 +1,8 @@
++++
+author = "Rachel Campos-Duffy"
+title = '''My advice to Republicans: Stop worrying about the 'Hispanic' vote. Focus on being true to your party platform, because the party that can deliver economic opportunity along with traditional family values will prevail with Hispanics - and most other Americans.'''
+description = '''the best Rachel Campos-Duffy Quote: My advice to Republicans: Stop worrying about the 'Hispanic' vote. Focus on being true to your party platform, because the party that can deliver economic opportunity along with traditional family values will prevail with Hispanics - and most other Americans.'''
+slug = '''my-advice-to-republicans:-stop-worrying-about-the-hispanic-vote-focus-on-being-true-to-your-party-platform-because-the-party-that-can-deliver-economic-opportunity-along-with-traditional-family-values-will-prevail-with-hispanics---and-most-other-americans'''
+keywords = '''My advice to Republicans: Stop worrying about the 'Hispanic' vote. Focus on being true to your party platform, because the party that can deliver economic opportunity along with traditional family values will prevail with Hispanics - and most other Americans.,rachel campos-duffy,rachel campos-duffy quotes,rachel campos-duffy quote,rachel campos-duffy sayings,rachel campos-duffy saying,quotes, sayings,quote, saying, motivation'''
++++
+My advice to Republicans: Stop worrying about the 'Hispanic' vote. Focus on being true to your party platform, because the party that can deliver economic opportunity along with traditional family values will prevail with Hispanics - and most other Americans.

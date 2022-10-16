@@ -1,0 +1,8 @@
++++
+author = "Robert Green Ingersoll"
+title = '''I can imagine no sweeter way to end one's life than in the quiet of the country, out of the mad race for money, place and power - far from the demands of business - out of the dusty highway where fools struggle and strive for the hollow praise of other fools.'''
+description = '''the best Robert Green Ingersoll Quote: I can imagine no sweeter way to end one's life than in the quiet of the country, out of the mad race for money, place and power - far from the demands of business - out of the dusty highway where fools struggle and strive for the hollow praise of other fools.'''
+slug = '''i-can-imagine-no-sweeter-way-to-end-ones-life-than-in-the-quiet-of-the-country-out-of-the-mad-race-for-money-place-and-power---far-from-the-demands-of-business---out-of-the-dusty-highway-where-fools-struggle-and-strive-for-the-hollow-praise-of-other-fools'''
+keywords = '''I can imagine no sweeter way to end one's life than in the quiet of the country, out of the mad race for money, place and power - far from the demands of business - out of the dusty highway where fools struggle and strive for the hollow praise of other fools.,robert green ingersoll,robert green ingersoll quotes,robert green ingersoll quote,robert green ingersoll sayings,robert green ingersoll saying,quotes, sayings,quote, saying, motivation'''
++++
+I can imagine no sweeter way to end one's life than in the quiet of the country, out of the mad race for money, place and power - far from the demands of business - out of the dusty highway where fools struggle and strive for the hollow praise of other fools.

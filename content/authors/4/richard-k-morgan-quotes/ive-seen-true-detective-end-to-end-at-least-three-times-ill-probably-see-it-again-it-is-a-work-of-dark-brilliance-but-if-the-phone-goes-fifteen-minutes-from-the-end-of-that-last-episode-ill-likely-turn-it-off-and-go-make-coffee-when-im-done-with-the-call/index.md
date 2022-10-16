@@ -1,0 +1,8 @@
++++
+author = "Richard K. Morgan"
+title = '''I've seen 'True Detective' end-to-end at least three times; I'll probably see it again. It is a work of dark brilliance. But if the phone goes fifteen minutes from the end of that last episode, I'll likely turn it off and go make coffee when I'm done with the call.'''
+description = '''the best Richard K. Morgan Quote: I've seen 'True Detective' end-to-end at least three times; I'll probably see it again. It is a work of dark brilliance. But if the phone goes fifteen minutes from the end of that last episode, I'll likely turn it off and go make coffee when I'm done with the call.'''
+slug = '''ive-seen-true-detective-end-to-end-at-least-three-times-ill-probably-see-it-again-it-is-a-work-of-dark-brilliance-but-if-the-phone-goes-fifteen-minutes-from-the-end-of-that-last-episode-ill-likely-turn-it-off-and-go-make-coffee-when-im-done-with-the-call'''
+keywords = '''I've seen 'True Detective' end-to-end at least three times; I'll probably see it again. It is a work of dark brilliance. But if the phone goes fifteen minutes from the end of that last episode, I'll likely turn it off and go make coffee when I'm done with the call.,richard k. morgan,richard k. morgan quotes,richard k. morgan quote,richard k. morgan sayings,richard k. morgan saying,quotes, sayings,quote, saying, motivation'''
++++
+I've seen 'True Detective' end-to-end at least three times; I'll probably see it again. It is a work of dark brilliance. But if the phone goes fifteen minutes from the end of that last episode, I'll likely turn it off and go make coffee when I'm done with the call.

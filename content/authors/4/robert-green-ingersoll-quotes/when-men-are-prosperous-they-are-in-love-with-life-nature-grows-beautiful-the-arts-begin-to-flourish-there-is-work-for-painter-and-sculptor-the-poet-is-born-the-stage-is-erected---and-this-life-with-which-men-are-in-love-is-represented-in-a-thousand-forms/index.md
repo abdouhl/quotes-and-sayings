@@ -1,0 +1,8 @@
++++
+author = "Robert Green Ingersoll"
+title = '''When men are prosperous, they are in love with life. Nature grows beautiful, the arts begin to flourish, there is work for painter and sculptor, the poet is born, the stage is erected - and this life with which men are in love is represented in a thousand forms.'''
+description = '''the best Robert Green Ingersoll Quote: When men are prosperous, they are in love with life. Nature grows beautiful, the arts begin to flourish, there is work for painter and sculptor, the poet is born, the stage is erected - and this life with which men are in love is represented in a thousand forms.'''
+slug = '''when-men-are-prosperous-they-are-in-love-with-life-nature-grows-beautiful-the-arts-begin-to-flourish-there-is-work-for-painter-and-sculptor-the-poet-is-born-the-stage-is-erected---and-this-life-with-which-men-are-in-love-is-represented-in-a-thousand-forms'''
+keywords = '''When men are prosperous, they are in love with life. Nature grows beautiful, the arts begin to flourish, there is work for painter and sculptor, the poet is born, the stage is erected - and this life with which men are in love is represented in a thousand forms.,robert green ingersoll,robert green ingersoll quotes,robert green ingersoll quote,robert green ingersoll sayings,robert green ingersoll saying,quotes, sayings,quote, saying, motivation'''
++++
+When men are prosperous, they are in love with life. Nature grows beautiful, the arts begin to flourish, there is work for painter and sculptor, the poet is born, the stage is erected - and this life with which men are in love is represented in a thousand forms.

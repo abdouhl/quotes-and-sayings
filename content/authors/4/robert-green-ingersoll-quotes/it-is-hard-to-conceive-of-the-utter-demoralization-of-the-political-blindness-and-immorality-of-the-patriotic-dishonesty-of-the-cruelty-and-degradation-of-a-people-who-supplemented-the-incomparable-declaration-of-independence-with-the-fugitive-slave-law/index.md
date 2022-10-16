@@ -1,0 +1,8 @@
++++
+author = "Robert Green Ingersoll"
+title = '''It is hard to conceive of the utter demoralization, of the political blindness and immorality, of the patriotic dishonesty, of the cruelty and degradation of a people who supplemented the incomparable Declaration of Independence with the Fugitive Slave Law.'''
+description = '''the best Robert Green Ingersoll Quote: It is hard to conceive of the utter demoralization, of the political blindness and immorality, of the patriotic dishonesty, of the cruelty and degradation of a people who supplemented the incomparable Declaration of Independence with the Fugitive Slave Law.'''
+slug = '''it-is-hard-to-conceive-of-the-utter-demoralization-of-the-political-blindness-and-immorality-of-the-patriotic-dishonesty-of-the-cruelty-and-degradation-of-a-people-who-supplemented-the-incomparable-declaration-of-independence-with-the-fugitive-slave-law'''
+keywords = '''It is hard to conceive of the utter demoralization, of the political blindness and immorality, of the patriotic dishonesty, of the cruelty and degradation of a people who supplemented the incomparable Declaration of Independence with the Fugitive Slave Law.,robert green ingersoll,robert green ingersoll quotes,robert green ingersoll quote,robert green ingersoll sayings,robert green ingersoll saying,quotes, sayings,quote, saying, motivation'''
++++
+It is hard to conceive of the utter demoralization, of the political blindness and immorality, of the patriotic dishonesty, of the cruelty and degradation of a people who supplemented the incomparable Declaration of Independence with the Fugitive Slave Law.
