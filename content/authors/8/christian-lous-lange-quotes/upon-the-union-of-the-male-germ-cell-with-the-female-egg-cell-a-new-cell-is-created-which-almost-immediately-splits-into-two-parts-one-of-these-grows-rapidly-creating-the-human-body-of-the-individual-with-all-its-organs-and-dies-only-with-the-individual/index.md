@@ -1,0 +1,8 @@
++++
+author = "Christian Lous Lange"
+title = '''Upon the union of the male germ cell with the female egg cell, a new cell is created which almost immediately splits into two parts. One of these grows rapidly, creating the human body of the individual with all its organs, and dies only with the individual.'''
+description = '''the best Christian Lous Lange Quote: Upon the union of the male germ cell with the female egg cell, a new cell is created which almost immediately splits into two parts. One of these grows rapidly, creating the human body of the individual with all its organs, and dies only with the individual.'''
+slug = '''upon-the-union-of-the-male-germ-cell-with-the-female-egg-cell-a-new-cell-is-created-which-almost-immediately-splits-into-two-parts-one-of-these-grows-rapidly-creating-the-human-body-of-the-individual-with-all-its-organs-and-dies-only-with-the-individual'''
+keywords = '''Upon the union of the male germ cell with the female egg cell, a new cell is created which almost immediately splits into two parts. One of these grows rapidly, creating the human body of the individual with all its organs, and dies only with the individual.,christian lous lange,christian lous lange quotes,christian lous lange quote,christian lous lange sayings,christian lous lange saying,quotes, sayings,quote, saying, motivation'''
++++
+Upon the union of the male germ cell with the female egg cell, a new cell is created which almost immediately splits into two parts. One of these grows rapidly, creating the human body of the individual with all its organs, and dies only with the individual.

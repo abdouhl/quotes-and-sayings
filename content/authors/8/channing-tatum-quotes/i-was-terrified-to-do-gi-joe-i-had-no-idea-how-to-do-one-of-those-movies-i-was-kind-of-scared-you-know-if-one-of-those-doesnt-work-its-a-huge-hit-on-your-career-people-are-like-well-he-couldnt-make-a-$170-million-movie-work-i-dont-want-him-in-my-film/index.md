@@ -1,0 +1,8 @@
++++
+author = "Channing Tatum"
+title = '''I was terrified to do 'G.I. Joe.' I had no idea how to do one of those movies. I was kind of scared. You know, if one of those doesn't work, it's a huge hit on your career. People are like, 'Well he couldn't make a $170 million movie work. I don't want him in my film.''''
+description = '''the best Channing Tatum Quote: I was terrified to do 'G.I. Joe.' I had no idea how to do one of those movies. I was kind of scared. You know, if one of those doesn't work, it's a huge hit on your career. People are like, 'Well he couldn't make a $170 million movie work. I don't want him in my film.''''
+slug = '''i-was-terrified-to-do-gi-joe-i-had-no-idea-how-to-do-one-of-those-movies-i-was-kind-of-scared-you-know-if-one-of-those-doesnt-work-its-a-huge-hit-on-your-career-people-are-like-well-he-couldnt-make-a-$170-million-movie-work-i-dont-want-him-in-my-film'''
+keywords = '''I was terrified to do 'G.I. Joe.' I had no idea how to do one of those movies. I was kind of scared. You know, if one of those doesn't work, it's a huge hit on your career. People are like, 'Well he couldn't make a $170 million movie work. I don't want him in my film.',channing tatum,channing tatum quotes,channing tatum quote,channing tatum sayings,channing tatum saying,quotes, sayings,quote, saying, motivation'''
++++
+I was terrified to do 'G.I. Joe.' I had no idea how to do one of those movies. I was kind of scared. You know, if one of those doesn't work, it's a huge hit on your career. People are like, 'Well he couldn't make a $170 million movie work. I don't want him in my film.'

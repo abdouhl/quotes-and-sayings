@@ -1,0 +1,8 @@
++++
+author = "Charity Sunshine Tillemann-Dick"
+title = '''It doesn't matter what tradition you come from, what religion you have or don't, what culture you were brought up in or what God you ascribe to: Faith is worthwhile as it helps us to be kinder, more generous, more loving and forgiving people.'''
+description = '''the best Charity Sunshine Tillemann-Dick Quote: It doesn't matter what tradition you come from, what religion you have or don't, what culture you were brought up in or what God you ascribe to: Faith is worthwhile as it helps us to be kinder, more generous, more loving and forgiving people.'''
+slug = '''it-doesnt-matter-what-tradition-you-come-from-what-religion-you-have-or-dont-what-culture-you-were-brought-up-in-or-what-god-you-ascribe-to:-faith-is-worthwhile-as-it-helps-us-to-be-kinder-more-generous-more-loving-and-forgiving-people'''
+keywords = '''It doesn't matter what tradition you come from, what religion you have or don't, what culture you were brought up in or what God you ascribe to: Faith is worthwhile as it helps us to be kinder, more generous, more loving and forgiving people.,charity sunshine tillemann-dick,charity sunshine tillemann-dick quotes,charity sunshine tillemann-dick quote,charity sunshine tillemann-dick sayings,charity sunshine tillemann-dick saying,quotes, sayings,quote, saying, motivation'''
++++
+It doesn't matter what tradition you come from, what religion you have or don't, what culture you were brought up in or what God you ascribe to: Faith is worthwhile as it helps us to be kinder, more generous, more loving and forgiving people.

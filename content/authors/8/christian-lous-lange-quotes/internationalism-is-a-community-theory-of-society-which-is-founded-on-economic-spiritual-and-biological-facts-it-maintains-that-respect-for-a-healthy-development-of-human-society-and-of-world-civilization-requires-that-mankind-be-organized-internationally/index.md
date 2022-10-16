@@ -1,0 +1,8 @@
++++
+author = "Christian Lous Lange"
+title = '''Internationalism is a community theory of society which is founded on economic, spiritual, and biological facts. It maintains that respect for a healthy development of human society and of world civilization requires that mankind be organized internationally.'''
+description = '''the best Christian Lous Lange Quote: Internationalism is a community theory of society which is founded on economic, spiritual, and biological facts. It maintains that respect for a healthy development of human society and of world civilization requires that mankind be organized internationally.'''
+slug = '''internationalism-is-a-community-theory-of-society-which-is-founded-on-economic-spiritual-and-biological-facts-it-maintains-that-respect-for-a-healthy-development-of-human-society-and-of-world-civilization-requires-that-mankind-be-organized-internationally'''
+keywords = '''Internationalism is a community theory of society which is founded on economic, spiritual, and biological facts. It maintains that respect for a healthy development of human society and of world civilization requires that mankind be organized internationally.,christian lous lange,christian lous lange quotes,christian lous lange quote,christian lous lange sayings,christian lous lange saying,quotes, sayings,quote, saying, motivation'''
++++
+Internationalism is a community theory of society which is founded on economic, spiritual, and biological facts. It maintains that respect for a healthy development of human society and of world civilization requires that mankind be organized internationally.

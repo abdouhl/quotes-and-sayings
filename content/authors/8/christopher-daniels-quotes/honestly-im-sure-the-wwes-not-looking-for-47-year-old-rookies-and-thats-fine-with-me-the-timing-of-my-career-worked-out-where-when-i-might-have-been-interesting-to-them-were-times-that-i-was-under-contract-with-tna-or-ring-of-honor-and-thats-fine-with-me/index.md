@@ -1,0 +1,8 @@
++++
+author = "Christopher Daniels"
+title = '''Honestly, I'm sure the WWE's not looking for 47-year old rookies and that's fine with me. The timing of my career worked out where when I might have been interesting to them, were times that I was under contract with TNA or Ring of Honor and that's fine with me.'''
+description = '''the best Christopher Daniels Quote: Honestly, I'm sure the WWE's not looking for 47-year old rookies and that's fine with me. The timing of my career worked out where when I might have been interesting to them, were times that I was under contract with TNA or Ring of Honor and that's fine with me.'''
+slug = '''honestly-im-sure-the-wwes-not-looking-for-47-year-old-rookies-and-thats-fine-with-me-the-timing-of-my-career-worked-out-where-when-i-might-have-been-interesting-to-them-were-times-that-i-was-under-contract-with-tna-or-ring-of-honor-and-thats-fine-with-me'''
+keywords = '''Honestly, I'm sure the WWE's not looking for 47-year old rookies and that's fine with me. The timing of my career worked out where when I might have been interesting to them, were times that I was under contract with TNA or Ring of Honor and that's fine with me.,christopher daniels,christopher daniels quotes,christopher daniels quote,christopher daniels sayings,christopher daniels saying,quotes, sayings,quote, saying, motivation'''
++++
+Honestly, I'm sure the WWE's not looking for 47-year old rookies and that's fine with me. The timing of my career worked out where when I might have been interesting to them, were times that I was under contract with TNA or Ring of Honor and that's fine with me.
