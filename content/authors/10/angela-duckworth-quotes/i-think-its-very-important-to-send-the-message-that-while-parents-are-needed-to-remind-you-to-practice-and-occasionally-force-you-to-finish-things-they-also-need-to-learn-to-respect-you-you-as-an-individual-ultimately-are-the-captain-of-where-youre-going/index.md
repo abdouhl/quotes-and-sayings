@@ -1,0 +1,8 @@
++++
+author = "Angela Duckworth"
+title = '''I think it's very important to send the message that, while parents are needed to remind you to practice and occasionally force you to finish things... they also need to learn to respect you. You as an individual, ultimately, are the captain of where you're going.'''
+description = '''the best Angela Duckworth Quote: I think it's very important to send the message that, while parents are needed to remind you to practice and occasionally force you to finish things... they also need to learn to respect you. You as an individual, ultimately, are the captain of where you're going.'''
+slug = '''i-think-its-very-important-to-send-the-message-that-while-parents-are-needed-to-remind-you-to-practice-and-occasionally-force-you-to-finish-things-they-also-need-to-learn-to-respect-you-you-as-an-individual-ultimately-are-the-captain-of-where-youre-going'''
+keywords = '''I think it's very important to send the message that, while parents are needed to remind you to practice and occasionally force you to finish things... they also need to learn to respect you. You as an individual, ultimately, are the captain of where you're going.,angela duckworth,angela duckworth quotes,angela duckworth quote,angela duckworth sayings,angela duckworth saying,quotes, sayings,quote, saying, motivation'''
++++
+I think it's very important to send the message that, while parents are needed to remind you to practice and occasionally force you to finish things... they also need to learn to respect you. You as an individual, ultimately, are the captain of where you're going.

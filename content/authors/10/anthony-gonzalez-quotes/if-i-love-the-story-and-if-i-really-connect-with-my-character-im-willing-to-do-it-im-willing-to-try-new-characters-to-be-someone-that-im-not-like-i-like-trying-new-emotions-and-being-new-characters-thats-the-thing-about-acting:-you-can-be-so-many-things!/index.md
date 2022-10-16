@@ -1,0 +1,8 @@
++++
+author = "Anthony Gonzalez"
+title = '''If I love the story, and if I really connect with my character, I'm willing to do it. I'm willing to try new characters, to be someone that I'm not like. I like trying new emotions and being new characters. That's the thing about acting: You can be so many things!'''
+description = '''the best Anthony Gonzalez Quote: If I love the story, and if I really connect with my character, I'm willing to do it. I'm willing to try new characters, to be someone that I'm not like. I like trying new emotions and being new characters. That's the thing about acting: You can be so many things!'''
+slug = '''if-i-love-the-story-and-if-i-really-connect-with-my-character-im-willing-to-do-it-im-willing-to-try-new-characters-to-be-someone-that-im-not-like-i-like-trying-new-emotions-and-being-new-characters-thats-the-thing-about-acting:-you-can-be-so-many-things!'''
+keywords = '''If I love the story, and if I really connect with my character, I'm willing to do it. I'm willing to try new characters, to be someone that I'm not like. I like trying new emotions and being new characters. That's the thing about acting: You can be so many things!,anthony gonzalez,anthony gonzalez quotes,anthony gonzalez quote,anthony gonzalez sayings,anthony gonzalez saying,quotes, sayings,quote, saying, motivation'''
++++
+If I love the story, and if I really connect with my character, I'm willing to do it. I'm willing to try new characters, to be someone that I'm not like. I like trying new emotions and being new characters. That's the thing about acting: You can be so many things!

@@ -1,0 +1,8 @@
++++
+author = "Arundhati Bhattacharya"
+title = '''Often, people wonder if she can give the time required at work, given also her responsibilities at home. So a woman has to prove her worth over and over again each time she's given a new responsibility, especially when she is at junior to mid-level positions.'''
+description = '''the best Arundhati Bhattacharya Quote: Often, people wonder if she can give the time required at work, given also her responsibilities at home. So a woman has to prove her worth over and over again each time she's given a new responsibility, especially when she is at junior to mid-level positions.'''
+slug = '''often-people-wonder-if-she-can-give-the-time-required-at-work-given-also-her-responsibilities-at-home-so-a-woman-has-to-prove-her-worth-over-and-over-again-each-time-shes-given-a-new-responsibility-especially-when-she-is-at-junior-to-mid-level-positions'''
+keywords = '''Often, people wonder if she can give the time required at work, given also her responsibilities at home. So a woman has to prove her worth over and over again each time she's given a new responsibility, especially when she is at junior to mid-level positions.,arundhati bhattacharya,arundhati bhattacharya quotes,arundhati bhattacharya quote,arundhati bhattacharya sayings,arundhati bhattacharya saying,quotes, sayings,quote, saying, motivation'''
++++
+Often, people wonder if she can give the time required at work, given also her responsibilities at home. So a woman has to prove her worth over and over again each time she's given a new responsibility, especially when she is at junior to mid-level positions.

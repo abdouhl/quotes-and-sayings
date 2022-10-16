@@ -1,0 +1,8 @@
++++
+author = "Annegret Kramp-Karrenbauer"
+title = '''When it comes to social issues such as the role of the family, I'm certainly more conservative than Angela Merkel. But on the big questions on what direction and where Germany should develop, when it comes to the economy, then we have very similar views.'''
+description = '''the best Annegret Kramp-Karrenbauer Quote: When it comes to social issues such as the role of the family, I'm certainly more conservative than Angela Merkel. But on the big questions on what direction and where Germany should develop, when it comes to the economy, then we have very similar views.'''
+slug = '''when-it-comes-to-social-issues-such-as-the-role-of-the-family-im-certainly-more-conservative-than-angela-merkel-but-on-the-big-questions-on-what-direction-and-where-germany-should-develop-when-it-comes-to-the-economy-then-we-have-very-similar-views'''
+keywords = '''When it comes to social issues such as the role of the family, I'm certainly more conservative than Angela Merkel. But on the big questions on what direction and where Germany should develop, when it comes to the economy, then we have very similar views.,annegret kramp-karrenbauer,annegret kramp-karrenbauer quotes,annegret kramp-karrenbauer quote,annegret kramp-karrenbauer sayings,annegret kramp-karrenbauer saying,quotes, sayings,quote, saying, motivation'''
++++
+When it comes to social issues such as the role of the family, I'm certainly more conservative than Angela Merkel. But on the big questions on what direction and where Germany should develop, when it comes to the economy, then we have very similar views.

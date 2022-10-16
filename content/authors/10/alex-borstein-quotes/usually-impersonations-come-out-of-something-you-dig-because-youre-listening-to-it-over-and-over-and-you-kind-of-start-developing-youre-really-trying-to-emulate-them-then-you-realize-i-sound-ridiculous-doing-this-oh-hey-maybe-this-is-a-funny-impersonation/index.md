@@ -1,0 +1,8 @@
++++
+author = "Alex Borstein"
+title = '''Usually, impersonations come out of something you dig, because you're listening to it over and over. And you kind of start developing... You're really trying to emulate them, then you realize, 'I sound ridiculous doing this. Oh, hey, maybe this is a funny impersonation.''''
+description = '''the best Alex Borstein Quote: Usually, impersonations come out of something you dig, because you're listening to it over and over. And you kind of start developing... You're really trying to emulate them, then you realize, 'I sound ridiculous doing this. Oh, hey, maybe this is a funny impersonation.''''
+slug = '''usually-impersonations-come-out-of-something-you-dig-because-youre-listening-to-it-over-and-over-and-you-kind-of-start-developing-youre-really-trying-to-emulate-them-then-you-realize-i-sound-ridiculous-doing-this-oh-hey-maybe-this-is-a-funny-impersonation'''
+keywords = '''Usually, impersonations come out of something you dig, because you're listening to it over and over. And you kind of start developing... You're really trying to emulate them, then you realize, 'I sound ridiculous doing this. Oh, hey, maybe this is a funny impersonation.',alex borstein,alex borstein quotes,alex borstein quote,alex borstein sayings,alex borstein saying,quotes, sayings,quote, saying, motivation'''
++++
+Usually, impersonations come out of something you dig, because you're listening to it over and over. And you kind of start developing... You're really trying to emulate them, then you realize, 'I sound ridiculous doing this. Oh, hey, maybe this is a funny impersonation.'

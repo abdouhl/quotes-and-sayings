@@ -1,0 +1,8 @@
++++
+author = "Arlie Russell Hochschild"
+title = '''Each person's drive to overwork is unique, and doing too much numbs every workaholic's emotions differently. Sometimes overwork numbs depression, sometimes anger, sometimes envy, sometimes sexuality. Or the overworker runs herself ragged in a race for attention.'''
+description = '''the best Arlie Russell Hochschild Quote: Each person's drive to overwork is unique, and doing too much numbs every workaholic's emotions differently. Sometimes overwork numbs depression, sometimes anger, sometimes envy, sometimes sexuality. Or the overworker runs herself ragged in a race for attention.'''
+slug = '''each-persons-drive-to-overwork-is-unique-and-doing-too-much-numbs-every-workaholics-emotions-differently-sometimes-overwork-numbs-depression-sometimes-anger-sometimes-envy-sometimes-sexuality-or-the-overworker-runs-herself-ragged-in-a-race-for-attention'''
+keywords = '''Each person's drive to overwork is unique, and doing too much numbs every workaholic's emotions differently. Sometimes overwork numbs depression, sometimes anger, sometimes envy, sometimes sexuality. Or the overworker runs herself ragged in a race for attention.,arlie russell hochschild,arlie russell hochschild quotes,arlie russell hochschild quote,arlie russell hochschild sayings,arlie russell hochschild saying,quotes, sayings,quote, saying, motivation'''
++++
+Each person's drive to overwork is unique, and doing too much numbs every workaholic's emotions differently. Sometimes overwork numbs depression, sometimes anger, sometimes envy, sometimes sexuality. Or the overworker runs herself ragged in a race for attention.
