@@ -1,0 +1,8 @@
++++
+author = "Angie Harmon"
+title = '''After I quote unquote came out as a Republican, one of my dearest gay friends said to me, 'You've got to go on a T.V. show and tell everyone you like gay people.' I was like, 'Why?' He was like, 'Because you're a Republican.' I was like, 'I'm sorry who's stereotyping who?''''
+description = '''the best Angie Harmon Quote: After I quote unquote came out as a Republican, one of my dearest gay friends said to me, 'You've got to go on a T.V. show and tell everyone you like gay people.' I was like, 'Why?' He was like, 'Because you're a Republican.' I was like, 'I'm sorry who's stereotyping who?''''
+slug = '''after-i-quote-unquote-came-out-as-a-republican-one-of-my-dearest-gay-friends-said-to-me-youve-got-to-go-on-a-tv-show-and-tell-everyone-you-like-gay-people-i-was-like-why?-he-was-like-because-youre-a-republican-i-was-like-im-sorry-whos-stereotyping-who?'''
+keywords = '''After I quote unquote came out as a Republican, one of my dearest gay friends said to me, 'You've got to go on a T.V. show and tell everyone you like gay people.' I was like, 'Why?' He was like, 'Because you're a Republican.' I was like, 'I'm sorry who's stereotyping who?',angie harmon,angie harmon quotes,angie harmon quote,angie harmon sayings,angie harmon saying,quotes, sayings,quote, saying, motivation'''
++++
+After I quote unquote came out as a Republican, one of my dearest gay friends said to me, 'You've got to go on a T.V. show and tell everyone you like gay people.' I was like, 'Why?' He was like, 'Because you're a Republican.' I was like, 'I'm sorry who's stereotyping who?'

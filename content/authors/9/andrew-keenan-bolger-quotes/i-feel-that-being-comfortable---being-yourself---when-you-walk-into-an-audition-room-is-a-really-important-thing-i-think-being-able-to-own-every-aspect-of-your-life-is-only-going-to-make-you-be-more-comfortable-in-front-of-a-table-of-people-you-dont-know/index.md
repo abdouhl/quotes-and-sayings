@@ -1,0 +1,8 @@
++++
+author = "Andrew Keenan-Bolger"
+title = '''I feel that being comfortable - being yourself - when you walk into an audition room is a really important thing. I think being able to own every aspect of your life is only going to make you be more comfortable in front of a table of people you don't know.'''
+description = '''the best Andrew Keenan-Bolger Quote: I feel that being comfortable - being yourself - when you walk into an audition room is a really important thing. I think being able to own every aspect of your life is only going to make you be more comfortable in front of a table of people you don't know.'''
+slug = '''i-feel-that-being-comfortable---being-yourself---when-you-walk-into-an-audition-room-is-a-really-important-thing-i-think-being-able-to-own-every-aspect-of-your-life-is-only-going-to-make-you-be-more-comfortable-in-front-of-a-table-of-people-you-dont-know'''
+keywords = '''I feel that being comfortable - being yourself - when you walk into an audition room is a really important thing. I think being able to own every aspect of your life is only going to make you be more comfortable in front of a table of people you don't know.,andrew keenan-bolger,andrew keenan-bolger quotes,andrew keenan-bolger quote,andrew keenan-bolger sayings,andrew keenan-bolger saying,quotes, sayings,quote, saying, motivation'''
++++
+I feel that being comfortable - being yourself - when you walk into an audition room is a really important thing. I think being able to own every aspect of your life is only going to make you be more comfortable in front of a table of people you don't know.

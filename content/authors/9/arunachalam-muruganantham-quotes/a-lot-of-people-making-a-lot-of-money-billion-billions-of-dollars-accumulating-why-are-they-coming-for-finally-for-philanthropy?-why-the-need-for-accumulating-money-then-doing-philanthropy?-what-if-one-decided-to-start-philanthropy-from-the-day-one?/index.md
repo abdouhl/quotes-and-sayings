@@ -1,0 +1,8 @@
++++
+author = "Arunachalam Muruganantham"
+title = '''A lot of people making a lot of money, billion, billions of dollars accumulating. Why are they coming for, finally, for philanthropy? Why the need for accumulating money, then doing philanthropy? What if one decided to start philanthropy from the day one?'''
+description = '''the best Arunachalam Muruganantham Quote: A lot of people making a lot of money, billion, billions of dollars accumulating. Why are they coming for, finally, for philanthropy? Why the need for accumulating money, then doing philanthropy? What if one decided to start philanthropy from the day one?'''
+slug = '''a-lot-of-people-making-a-lot-of-money-billion-billions-of-dollars-accumulating-why-are-they-coming-for-finally-for-philanthropy?-why-the-need-for-accumulating-money-then-doing-philanthropy?-what-if-one-decided-to-start-philanthropy-from-the-day-one?'''
+keywords = '''A lot of people making a lot of money, billion, billions of dollars accumulating. Why are they coming for, finally, for philanthropy? Why the need for accumulating money, then doing philanthropy? What if one decided to start philanthropy from the day one?,arunachalam muruganantham,arunachalam muruganantham quotes,arunachalam muruganantham quote,arunachalam muruganantham sayings,arunachalam muruganantham saying,quotes, sayings,quote, saying, motivation'''
++++
+A lot of people making a lot of money, billion, billions of dollars accumulating. Why are they coming for, finally, for philanthropy? Why the need for accumulating money, then doing philanthropy? What if one decided to start philanthropy from the day one?

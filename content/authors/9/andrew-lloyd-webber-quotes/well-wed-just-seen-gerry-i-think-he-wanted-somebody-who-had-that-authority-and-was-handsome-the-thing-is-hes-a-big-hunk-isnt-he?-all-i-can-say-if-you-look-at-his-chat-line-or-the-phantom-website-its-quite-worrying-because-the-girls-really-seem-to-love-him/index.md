@@ -1,0 +1,8 @@
++++
+author = "Andrew Lloyd Webber"
+title = '''Well we'd just seen Gerry. I think he wanted somebody who had that authority and was handsome. The thing is, he's a big hunk isn't he? All I can say, if you look at his chat line, or the Phantom website, it's quite worrying. Because the girls really seem to love him.'''
+description = '''the best Andrew Lloyd Webber Quote: Well we'd just seen Gerry. I think he wanted somebody who had that authority and was handsome. The thing is, he's a big hunk isn't he? All I can say, if you look at his chat line, or the Phantom website, it's quite worrying. Because the girls really seem to love him.'''
+slug = '''well-wed-just-seen-gerry-i-think-he-wanted-somebody-who-had-that-authority-and-was-handsome-the-thing-is-hes-a-big-hunk-isnt-he?-all-i-can-say-if-you-look-at-his-chat-line-or-the-phantom-website-its-quite-worrying-because-the-girls-really-seem-to-love-him'''
+keywords = '''Well we'd just seen Gerry. I think he wanted somebody who had that authority and was handsome. The thing is, he's a big hunk isn't he? All I can say, if you look at his chat line, or the Phantom website, it's quite worrying. Because the girls really seem to love him.,andrew lloyd webber,andrew lloyd webber quotes,andrew lloyd webber quote,andrew lloyd webber sayings,andrew lloyd webber saying,quotes, sayings,quote, saying, motivation'''
++++
+Well we'd just seen Gerry. I think he wanted somebody who had that authority and was handsome. The thing is, he's a big hunk isn't he? All I can say, if you look at his chat line, or the Phantom website, it's quite worrying. Because the girls really seem to love him.
