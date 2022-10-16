@@ -1,0 +1,8 @@
++++
+author = "Isaac Hempstead Wright"
+title = '''I tend to listen to music more than I read. I need to get into reading a bit more. The stuff I tend to read is usually non-fiction books more than fiction, but I've been trying to power my way through Dostoevsky's 'Crime and Punishment,' and I do enjoy it.'''
+description = '''the best Isaac Hempstead Wright Quote: I tend to listen to music more than I read. I need to get into reading a bit more. The stuff I tend to read is usually non-fiction books more than fiction, but I've been trying to power my way through Dostoevsky's 'Crime and Punishment,' and I do enjoy it.'''
+slug = '''i-tend-to-listen-to-music-more-than-i-read-i-need-to-get-into-reading-a-bit-more-the-stuff-i-tend-to-read-is-usually-non-fiction-books-more-than-fiction-but-ive-been-trying-to-power-my-way-through-dostoevskys-crime-and-punishment-and-i-do-enjoy-it'''
+keywords = '''I tend to listen to music more than I read. I need to get into reading a bit more. The stuff I tend to read is usually non-fiction books more than fiction, but I've been trying to power my way through Dostoevsky's 'Crime and Punishment,' and I do enjoy it.,isaac hempstead wright,isaac hempstead wright quotes,isaac hempstead wright quote,isaac hempstead wright sayings,isaac hempstead wright saying,quotes, sayings,quote, saying, motivation'''
++++
+I tend to listen to music more than I read. I need to get into reading a bit more. The stuff I tend to read is usually non-fiction books more than fiction, but I've been trying to power my way through Dostoevsky's 'Crime and Punishment,' and I do enjoy it.

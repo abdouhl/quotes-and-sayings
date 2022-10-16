@@ -1,0 +1,8 @@
++++
+author = "Israel Adesanya"
+title = '''Kids will tell me 'oh I want to be like you when I grow up,' you know. I just thought 'nah, don't be like me, be like you,' because first of all they don't really know me but second of all I understand what they're trying to say but I just let them know - be like you.'''
+description = '''the best Israel Adesanya Quote: Kids will tell me 'oh I want to be like you when I grow up,' you know. I just thought 'nah, don't be like me, be like you,' because first of all they don't really know me but second of all I understand what they're trying to say but I just let them know - be like you.'''
+slug = '''kids-will-tell-me-oh-i-want-to-be-like-you-when-i-grow-up-you-know-i-just-thought-nah-dont-be-like-me-be-like-you-because-first-of-all-they-dont-really-know-me-but-second-of-all-i-understand-what-theyre-trying-to-say-but-i-just-let-them-know---be-like-you'''
+keywords = '''Kids will tell me 'oh I want to be like you when I grow up,' you know. I just thought 'nah, don't be like me, be like you,' because first of all they don't really know me but second of all I understand what they're trying to say but I just let them know - be like you.,israel adesanya,israel adesanya quotes,israel adesanya quote,israel adesanya sayings,israel adesanya saying,quotes, sayings,quote, saying, motivation'''
++++
+Kids will tell me 'oh I want to be like you when I grow up,' you know. I just thought 'nah, don't be like me, be like you,' because first of all they don't really know me but second of all I understand what they're trying to say but I just let them know - be like you.
