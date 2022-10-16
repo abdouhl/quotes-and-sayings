@@ -1,0 +1,8 @@
++++
+author = "Rosemary Mahoney"
+title = '''I, for one, find writing excruciating. Some mornings, as I'm on my way to my desk, my hands actually tremble with fear. The fear, of course, is that I'll sit down at the desk and discover that what I've written is claptrap. Fear inevitably leads to procrastination.'''
+description = '''the best Rosemary Mahoney Quote: I, for one, find writing excruciating. Some mornings, as I'm on my way to my desk, my hands actually tremble with fear. The fear, of course, is that I'll sit down at the desk and discover that what I've written is claptrap. Fear inevitably leads to procrastination.'''
+slug = '''i-for-one-find-writing-excruciating-some-mornings-as-im-on-my-way-to-my-desk-my-hands-actually-tremble-with-fear-the-fear-of-course-is-that-ill-sit-down-at-the-desk-and-discover-that-what-ive-written-is-claptrap-fear-inevitably-leads-to-procrastination'''
+keywords = '''I, for one, find writing excruciating. Some mornings, as I'm on my way to my desk, my hands actually tremble with fear. The fear, of course, is that I'll sit down at the desk and discover that what I've written is claptrap. Fear inevitably leads to procrastination.,rosemary mahoney,rosemary mahoney quotes,rosemary mahoney quote,rosemary mahoney sayings,rosemary mahoney saying,quotes, sayings,quote, saying, motivation'''
++++
+I, for one, find writing excruciating. Some mornings, as I'm on my way to my desk, my hands actually tremble with fear. The fear, of course, is that I'll sit down at the desk and discover that what I've written is claptrap. Fear inevitably leads to procrastination.

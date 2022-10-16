@@ -1,0 +1,8 @@
++++
+author = "Rhianna Pratchett"
+title = '''I think 'Overlord' has definitely benefited because I work with every single level designer, and working where we have space to tell the story. That's what it's all about - getting writers and storytellers involved in the team and being a back and forth process.'''
+description = '''the best Rhianna Pratchett Quote: I think 'Overlord' has definitely benefited because I work with every single level designer, and working where we have space to tell the story. That's what it's all about - getting writers and storytellers involved in the team and being a back and forth process.'''
+slug = '''i-think-overlord-has-definitely-benefited-because-i-work-with-every-single-level-designer-and-working-where-we-have-space-to-tell-the-story-thats-what-its-all-about---getting-writers-and-storytellers-involved-in-the-team-and-being-a-back-and-forth-process'''
+keywords = '''I think 'Overlord' has definitely benefited because I work with every single level designer, and working where we have space to tell the story. That's what it's all about - getting writers and storytellers involved in the team and being a back and forth process.,rhianna pratchett,rhianna pratchett quotes,rhianna pratchett quote,rhianna pratchett sayings,rhianna pratchett saying,quotes, sayings,quote, saying, motivation'''
++++
+I think 'Overlord' has definitely benefited because I work with every single level designer, and working where we have space to tell the story. That's what it's all about - getting writers and storytellers involved in the team and being a back and forth process.

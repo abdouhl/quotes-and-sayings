@@ -1,0 +1,8 @@
++++
+author = "Richard Bonynge"
+title = '''Lots of young singers come to me and ask, 'May I sing to you?' I say, 'Yes, you can sing to me as long as you don't mind what I tell you, because I'm not going to flatter you. I'm going to tell you what I think.' Oh, yes, they're quite happy about that, until they hear it.'''
+description = '''the best Richard Bonynge Quote: Lots of young singers come to me and ask, 'May I sing to you?' I say, 'Yes, you can sing to me as long as you don't mind what I tell you, because I'm not going to flatter you. I'm going to tell you what I think.' Oh, yes, they're quite happy about that, until they hear it.'''
+slug = '''lots-of-young-singers-come-to-me-and-ask-may-i-sing-to-you?-i-say-yes-you-can-sing-to-me-as-long-as-you-dont-mind-what-i-tell-you-because-im-not-going-to-flatter-you-im-going-to-tell-you-what-i-think-oh-yes-theyre-quite-happy-about-that-until-they-hear-it'''
+keywords = '''Lots of young singers come to me and ask, 'May I sing to you?' I say, 'Yes, you can sing to me as long as you don't mind what I tell you, because I'm not going to flatter you. I'm going to tell you what I think.' Oh, yes, they're quite happy about that, until they hear it.,richard bonynge,richard bonynge quotes,richard bonynge quote,richard bonynge sayings,richard bonynge saying,quotes, sayings,quote, saying, motivation'''
++++
+Lots of young singers come to me and ask, 'May I sing to you?' I say, 'Yes, you can sing to me as long as you don't mind what I tell you, because I'm not going to flatter you. I'm going to tell you what I think.' Oh, yes, they're quite happy about that, until they hear it.

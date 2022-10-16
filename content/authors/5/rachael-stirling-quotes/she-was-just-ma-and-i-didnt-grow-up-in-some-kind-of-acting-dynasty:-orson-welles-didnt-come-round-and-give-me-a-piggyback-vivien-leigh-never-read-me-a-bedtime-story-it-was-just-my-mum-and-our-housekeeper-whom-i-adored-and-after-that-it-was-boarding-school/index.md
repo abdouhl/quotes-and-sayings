@@ -1,0 +1,8 @@
++++
+author = "Rachael Stirling"
+title = '''She was just Ma, and I didn't grow up in some kind of acting dynasty: Orson Welles didn't come round and give me a piggyback; Vivien Leigh never read me a bedtime story. It was just my mum and our housekeeper, whom I adored, and after that, it was boarding school.'''
+description = '''the best Rachael Stirling Quote: She was just Ma, and I didn't grow up in some kind of acting dynasty: Orson Welles didn't come round and give me a piggyback; Vivien Leigh never read me a bedtime story. It was just my mum and our housekeeper, whom I adored, and after that, it was boarding school.'''
+slug = '''she-was-just-ma-and-i-didnt-grow-up-in-some-kind-of-acting-dynasty:-orson-welles-didnt-come-round-and-give-me-a-piggyback-vivien-leigh-never-read-me-a-bedtime-story-it-was-just-my-mum-and-our-housekeeper-whom-i-adored-and-after-that-it-was-boarding-school'''
+keywords = '''She was just Ma, and I didn't grow up in some kind of acting dynasty: Orson Welles didn't come round and give me a piggyback; Vivien Leigh never read me a bedtime story. It was just my mum and our housekeeper, whom I adored, and after that, it was boarding school.,rachael stirling,rachael stirling quotes,rachael stirling quote,rachael stirling sayings,rachael stirling saying,quotes, sayings,quote, saying, motivation'''
++++
+She was just Ma, and I didn't grow up in some kind of acting dynasty: Orson Welles didn't come round and give me a piggyback; Vivien Leigh never read me a bedtime story. It was just my mum and our housekeeper, whom I adored, and after that, it was boarding school.

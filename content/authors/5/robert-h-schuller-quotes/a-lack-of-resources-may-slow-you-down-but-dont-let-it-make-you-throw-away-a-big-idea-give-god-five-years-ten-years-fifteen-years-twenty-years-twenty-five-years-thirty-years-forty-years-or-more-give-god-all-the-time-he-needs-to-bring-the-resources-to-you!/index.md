@@ -1,0 +1,8 @@
++++
+author = "Robert H. Schuller"
+title = '''A lack of resources may slow you down, but don't let it make you throw away a big idea. Give God five years, ten years, fifteen years, twenty years, twenty-five years, thirty years, forty years, or more. Give God all the time He needs to bring the resources to you!'''
+description = '''the best Robert H. Schuller Quote: A lack of resources may slow you down, but don't let it make you throw away a big idea. Give God five years, ten years, fifteen years, twenty years, twenty-five years, thirty years, forty years, or more. Give God all the time He needs to bring the resources to you!'''
+slug = '''a-lack-of-resources-may-slow-you-down-but-dont-let-it-make-you-throw-away-a-big-idea-give-god-five-years-ten-years-fifteen-years-twenty-years-twenty-five-years-thirty-years-forty-years-or-more-give-god-all-the-time-he-needs-to-bring-the-resources-to-you!'''
+keywords = '''A lack of resources may slow you down, but don't let it make you throw away a big idea. Give God five years, ten years, fifteen years, twenty years, twenty-five years, thirty years, forty years, or more. Give God all the time He needs to bring the resources to you!,robert h. schuller,robert h. schuller quotes,robert h. schuller quote,robert h. schuller sayings,robert h. schuller saying,quotes, sayings,quote, saying, motivation'''
++++
+A lack of resources may slow you down, but don't let it make you throw away a big idea. Give God five years, ten years, fifteen years, twenty years, twenty-five years, thirty years, forty years, or more. Give God all the time He needs to bring the resources to you!
