@@ -1,0 +1,8 @@
++++
+author = "Colin Kaepernick"
+title = '''All my tattoos, they've been thought out, thought over, been a work in progress for at least a year before I've got them. So I'm not walking into a tattoo shop, picking tattoos off a wall. It's something that means something to me. It's something that I believe in.'''
+description = '''the best Colin Kaepernick Quote: All my tattoos, they've been thought out, thought over, been a work in progress for at least a year before I've got them. So I'm not walking into a tattoo shop, picking tattoos off a wall. It's something that means something to me. It's something that I believe in.'''
+slug = '''all-my-tattoos-theyve-been-thought-out-thought-over-been-a-work-in-progress-for-at-least-a-year-before-ive-got-them-so-im-not-walking-into-a-tattoo-shop-picking-tattoos-off-a-wall-its-something-that-means-something-to-me-its-something-that-i-believe-in'''
+keywords = '''All my tattoos, they've been thought out, thought over, been a work in progress for at least a year before I've got them. So I'm not walking into a tattoo shop, picking tattoos off a wall. It's something that means something to me. It's something that I believe in.,colin kaepernick,colin kaepernick quotes,colin kaepernick quote,colin kaepernick sayings,colin kaepernick saying,quotes, sayings,quote, saying, motivation'''
++++
+All my tattoos, they've been thought out, thought over, been a work in progress for at least a year before I've got them. So I'm not walking into a tattoo shop, picking tattoos off a wall. It's something that means something to me. It's something that I believe in.

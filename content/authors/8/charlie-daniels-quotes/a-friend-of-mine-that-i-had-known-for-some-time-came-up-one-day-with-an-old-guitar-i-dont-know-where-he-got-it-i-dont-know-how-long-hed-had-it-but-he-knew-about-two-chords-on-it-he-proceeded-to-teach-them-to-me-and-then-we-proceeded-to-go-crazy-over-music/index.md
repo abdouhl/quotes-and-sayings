@@ -1,0 +1,8 @@
++++
+author = "Charlie Daniels"
+title = '''A friend of mine, that I had known for some time, came up one day with an old guitar. I don't know where he got it, I don't know how long he'd had it, but he knew about two chords on it. He proceeded to teach them to me, and then we proceeded to go crazy over music.'''
+description = '''the best Charlie Daniels Quote: A friend of mine, that I had known for some time, came up one day with an old guitar. I don't know where he got it, I don't know how long he'd had it, but he knew about two chords on it. He proceeded to teach them to me, and then we proceeded to go crazy over music.'''
+slug = '''a-friend-of-mine-that-i-had-known-for-some-time-came-up-one-day-with-an-old-guitar-i-dont-know-where-he-got-it-i-dont-know-how-long-hed-had-it-but-he-knew-about-two-chords-on-it-he-proceeded-to-teach-them-to-me-and-then-we-proceeded-to-go-crazy-over-music'''
+keywords = '''A friend of mine, that I had known for some time, came up one day with an old guitar. I don't know where he got it, I don't know how long he'd had it, but he knew about two chords on it. He proceeded to teach them to me, and then we proceeded to go crazy over music.,charlie daniels,charlie daniels quotes,charlie daniels quote,charlie daniels sayings,charlie daniels saying,quotes, sayings,quote, saying, motivation'''
++++
+A friend of mine, that I had known for some time, came up one day with an old guitar. I don't know where he got it, I don't know how long he'd had it, but he knew about two chords on it. He proceeded to teach them to me, and then we proceeded to go crazy over music.

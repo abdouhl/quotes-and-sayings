@@ -1,0 +1,8 @@
++++
+author = "Christopher Plummer"
+title = '''I've done a lot of pictures that are ensemble, and I've not always liked the people I was working with, but that doesn't make any difference because you do the job, and often it turns out to be a great ensemble even if you didn't particularly really like anybody.'''
+description = '''the best Christopher Plummer Quote: I've done a lot of pictures that are ensemble, and I've not always liked the people I was working with, but that doesn't make any difference because you do the job, and often it turns out to be a great ensemble even if you didn't particularly really like anybody.'''
+slug = '''ive-done-a-lot-of-pictures-that-are-ensemble-and-ive-not-always-liked-the-people-i-was-working-with-but-that-doesnt-make-any-difference-because-you-do-the-job-and-often-it-turns-out-to-be-a-great-ensemble-even-if-you-didnt-particularly-really-like-anybody'''
+keywords = '''I've done a lot of pictures that are ensemble, and I've not always liked the people I was working with, but that doesn't make any difference because you do the job, and often it turns out to be a great ensemble even if you didn't particularly really like anybody.,christopher plummer,christopher plummer quotes,christopher plummer quote,christopher plummer sayings,christopher plummer saying,quotes, sayings,quote, saying, motivation'''
++++
+I've done a lot of pictures that are ensemble, and I've not always liked the people I was working with, but that doesn't make any difference because you do the job, and often it turns out to be a great ensemble even if you didn't particularly really like anybody.

@@ -1,0 +1,8 @@
++++
+author = "Christopher Atkins"
+title = '''Let me tell you something: if you're on an island for three and a half months and you're four and a half hours by boat from the nearest store, and there's nobody but 30 crew members on the island, I guarantee that you'd be running around without your clothes on.'''
+description = '''the best Christopher Atkins Quote: Let me tell you something: if you're on an island for three and a half months and you're four and a half hours by boat from the nearest store, and there's nobody but 30 crew members on the island, I guarantee that you'd be running around without your clothes on.'''
+slug = '''let-me-tell-you-something:-if-youre-on-an-island-for-three-and-a-half-months-and-youre-four-and-a-half-hours-by-boat-from-the-nearest-store-and-theres-nobody-but-30-crew-members-on-the-island-i-guarantee-that-youd-be-running-around-without-your-clothes-on'''
+keywords = '''Let me tell you something: if you're on an island for three and a half months and you're four and a half hours by boat from the nearest store, and there's nobody but 30 crew members on the island, I guarantee that you'd be running around without your clothes on.,christopher atkins,christopher atkins quotes,christopher atkins quote,christopher atkins sayings,christopher atkins saying,quotes, sayings,quote, saying, motivation'''
++++
+Let me tell you something: if you're on an island for three and a half months and you're four and a half hours by boat from the nearest store, and there's nobody but 30 crew members on the island, I guarantee that you'd be running around without your clothes on.

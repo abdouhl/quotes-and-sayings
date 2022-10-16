@@ -1,0 +1,8 @@
++++
+author = "Charlie Trotter"
+title = '''It's a lot harder to get people to 'ooh' and 'aah' over beets and carrots than it is to get them to 'ooh' and 'aah' over artichokes or asparagus, and I enjoy being able to take these humble, 'lowbrow' foodstuffs up a few notches and serve them with great exuberance.'''
+description = '''the best Charlie Trotter Quote: It's a lot harder to get people to 'ooh' and 'aah' over beets and carrots than it is to get them to 'ooh' and 'aah' over artichokes or asparagus, and I enjoy being able to take these humble, 'lowbrow' foodstuffs up a few notches and serve them with great exuberance.'''
+slug = '''its-a-lot-harder-to-get-people-to-ooh-and-aah-over-beets-and-carrots-than-it-is-to-get-them-to-ooh-and-aah-over-artichokes-or-asparagus-and-i-enjoy-being-able-to-take-these-humble-lowbrow-foodstuffs-up-a-few-notches-and-serve-them-with-great-exuberance'''
+keywords = '''It's a lot harder to get people to 'ooh' and 'aah' over beets and carrots than it is to get them to 'ooh' and 'aah' over artichokes or asparagus, and I enjoy being able to take these humble, 'lowbrow' foodstuffs up a few notches and serve them with great exuberance.,charlie trotter,charlie trotter quotes,charlie trotter quote,charlie trotter sayings,charlie trotter saying,quotes, sayings,quote, saying, motivation'''
++++
+It's a lot harder to get people to 'ooh' and 'aah' over beets and carrots than it is to get them to 'ooh' and 'aah' over artichokes or asparagus, and I enjoy being able to take these humble, 'lowbrow' foodstuffs up a few notches and serve them with great exuberance.

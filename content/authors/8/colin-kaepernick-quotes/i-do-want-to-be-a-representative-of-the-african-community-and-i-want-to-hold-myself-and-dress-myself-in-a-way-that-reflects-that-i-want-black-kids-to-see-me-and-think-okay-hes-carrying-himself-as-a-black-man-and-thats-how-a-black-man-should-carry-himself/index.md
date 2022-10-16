@@ -1,0 +1,8 @@
++++
+author = "Colin Kaepernick"
+title = '''I do want to be a representative of the African community, and I want to hold myself and dress myself in a way that reflects that. I want black kids to see me and think, 'Okay, he's carrying himself as a black man, and that's how a black man should carry himself.''''
+description = '''the best Colin Kaepernick Quote: I do want to be a representative of the African community, and I want to hold myself and dress myself in a way that reflects that. I want black kids to see me and think, 'Okay, he's carrying himself as a black man, and that's how a black man should carry himself.''''
+slug = '''i-do-want-to-be-a-representative-of-the-african-community-and-i-want-to-hold-myself-and-dress-myself-in-a-way-that-reflects-that-i-want-black-kids-to-see-me-and-think-okay-hes-carrying-himself-as-a-black-man-and-thats-how-a-black-man-should-carry-himself'''
+keywords = '''I do want to be a representative of the African community, and I want to hold myself and dress myself in a way that reflects that. I want black kids to see me and think, 'Okay, he's carrying himself as a black man, and that's how a black man should carry himself.',colin kaepernick,colin kaepernick quotes,colin kaepernick quote,colin kaepernick sayings,colin kaepernick saying,quotes, sayings,quote, saying, motivation'''
++++
+I do want to be a representative of the African community, and I want to hold myself and dress myself in a way that reflects that. I want black kids to see me and think, 'Okay, he's carrying himself as a black man, and that's how a black man should carry himself.'
