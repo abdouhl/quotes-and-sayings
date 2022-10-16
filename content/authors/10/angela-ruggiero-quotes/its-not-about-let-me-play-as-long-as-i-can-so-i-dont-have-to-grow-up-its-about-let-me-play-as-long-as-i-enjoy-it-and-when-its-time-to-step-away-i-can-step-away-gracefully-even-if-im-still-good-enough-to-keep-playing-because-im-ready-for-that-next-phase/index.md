@@ -1,0 +1,8 @@
++++
+author = "Angela Ruggiero"
+title = '''It's not about, 'Let me play as long as I can so I don't have to grow up.' It's about, 'Let me play as long as I enjoy it,' and when it's time to step away, I can step away gracefully even if I'm still good enough to keep playing, because I'm ready for that next phase.'''
+description = '''the best Angela Ruggiero Quote: It's not about, 'Let me play as long as I can so I don't have to grow up.' It's about, 'Let me play as long as I enjoy it,' and when it's time to step away, I can step away gracefully even if I'm still good enough to keep playing, because I'm ready for that next phase.'''
+slug = '''its-not-about-let-me-play-as-long-as-i-can-so-i-dont-have-to-grow-up-its-about-let-me-play-as-long-as-i-enjoy-it-and-when-its-time-to-step-away-i-can-step-away-gracefully-even-if-im-still-good-enough-to-keep-playing-because-im-ready-for-that-next-phase'''
+keywords = '''It's not about, 'Let me play as long as I can so I don't have to grow up.' It's about, 'Let me play as long as I enjoy it,' and when it's time to step away, I can step away gracefully even if I'm still good enough to keep playing, because I'm ready for that next phase.,angela ruggiero,angela ruggiero quotes,angela ruggiero quote,angela ruggiero sayings,angela ruggiero saying,quotes, sayings,quote, saying, motivation'''
++++
+It's not about, 'Let me play as long as I can so I don't have to grow up.' It's about, 'Let me play as long as I enjoy it,' and when it's time to step away, I can step away gracefully even if I'm still good enough to keep playing, because I'm ready for that next phase.
