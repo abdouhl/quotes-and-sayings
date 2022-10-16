@@ -1,0 +1,8 @@
++++
+author = "Christopher Robin Milne"
+title = '''War and love - they have much in common. You can theorize about them, but until you have experienced them, you cannot know them, for the emotions that they engender are as complicated and as conflicting, as noble and as ignoble, as any that life has to offer.'''
+description = '''the best Christopher Robin Milne Quote: War and love - they have much in common. You can theorize about them, but until you have experienced them, you cannot know them, for the emotions that they engender are as complicated and as conflicting, as noble and as ignoble, as any that life has to offer.'''
+slug = '''war-and-love---they-have-much-in-common-you-can-theorize-about-them-but-until-you-have-experienced-them-you-cannot-know-them-for-the-emotions-that-they-engender-are-as-complicated-and-as-conflicting-as-noble-and-as-ignoble-as-any-that-life-has-to-offer'''
+keywords = '''War and love - they have much in common. You can theorize about them, but until you have experienced them, you cannot know them, for the emotions that they engender are as complicated and as conflicting, as noble and as ignoble, as any that life has to offer.,christopher robin milne,christopher robin milne quotes,christopher robin milne quote,christopher robin milne sayings,christopher robin milne saying,quotes, sayings,quote, saying, motivation'''
++++
+War and love - they have much in common. You can theorize about them, but until you have experienced them, you cannot know them, for the emotions that they engender are as complicated and as conflicting, as noble and as ignoble, as any that life has to offer.

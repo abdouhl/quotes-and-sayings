@@ -1,0 +1,8 @@
++++
+author = "Alexandria Ocasio-Cortez"
+title = '''It's time we acknowledge that not all Democrats are the same. That a Democrat who takes corporate money, profits off foreclosure, doesn't live here, doesn't send his kids to our schools, doesn't drink our water or breathe our air cannot possibly represent us.'''
+description = '''the best Alexandria Ocasio-Cortez Quote: It's time we acknowledge that not all Democrats are the same. That a Democrat who takes corporate money, profits off foreclosure, doesn't live here, doesn't send his kids to our schools, doesn't drink our water or breathe our air cannot possibly represent us.'''
+slug = '''its-time-we-acknowledge-that-not-all-democrats-are-the-same-that-a-democrat-who-takes-corporate-money-profits-off-foreclosure-doesnt-live-here-doesnt-send-his-kids-to-our-schools-doesnt-drink-our-water-or-breathe-our-air-cannot-possibly-represent-us'''
+keywords = '''It's time we acknowledge that not all Democrats are the same. That a Democrat who takes corporate money, profits off foreclosure, doesn't live here, doesn't send his kids to our schools, doesn't drink our water or breathe our air cannot possibly represent us.,alexandria ocasio-cortez,alexandria ocasio-cortez quotes,alexandria ocasio-cortez quote,alexandria ocasio-cortez sayings,alexandria ocasio-cortez saying,quotes, sayings,quote, saying, motivation'''
++++
+It's time we acknowledge that not all Democrats are the same. That a Democrat who takes corporate money, profits off foreclosure, doesn't live here, doesn't send his kids to our schools, doesn't drink our water or breathe our air cannot possibly represent us.

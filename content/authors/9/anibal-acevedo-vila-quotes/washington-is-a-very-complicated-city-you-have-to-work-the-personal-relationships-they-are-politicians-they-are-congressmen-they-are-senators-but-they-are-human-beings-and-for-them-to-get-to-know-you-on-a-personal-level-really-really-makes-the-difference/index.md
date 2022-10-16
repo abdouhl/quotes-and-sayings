@@ -1,0 +1,8 @@
++++
+author = "Anibal Acevedo Vila"
+title = '''Washington is a very complicated city. You have to work the personal relationships. They are politicians, they are congressmen, they are senators, but they are human beings. And for them to get to know you on a personal level really, really makes the difference.'''
+description = '''the best Anibal Acevedo Vila Quote: Washington is a very complicated city. You have to work the personal relationships. They are politicians, they are congressmen, they are senators, but they are human beings. And for them to get to know you on a personal level really, really makes the difference.'''
+slug = '''washington-is-a-very-complicated-city-you-have-to-work-the-personal-relationships-they-are-politicians-they-are-congressmen-they-are-senators-but-they-are-human-beings-and-for-them-to-get-to-know-you-on-a-personal-level-really-really-makes-the-difference'''
+keywords = '''Washington is a very complicated city. You have to work the personal relationships. They are politicians, they are congressmen, they are senators, but they are human beings. And for them to get to know you on a personal level really, really makes the difference.,anibal acevedo vila,anibal acevedo vila quotes,anibal acevedo vila quote,anibal acevedo vila sayings,anibal acevedo vila saying,quotes, sayings,quote, saying, motivation'''
++++
+Washington is a very complicated city. You have to work the personal relationships. They are politicians, they are congressmen, they are senators, but they are human beings. And for them to get to know you on a personal level really, really makes the difference.

@@ -1,0 +1,8 @@
++++
+author = "Cathy Mcmorris Rodgers"
+title = '''The power in Washington, D.C., is centered on the status quo - outdated systems, models, and programs built for a previous century. With more silicon and less concrete, we can open up those models to return power and independence to every man, woman, and child.'''
+description = '''the best Cathy Mcmorris Rodgers Quote: The power in Washington, D.C., is centered on the status quo - outdated systems, models, and programs built for a previous century. With more silicon and less concrete, we can open up those models to return power and independence to every man, woman, and child.'''
+slug = '''the-power-in-washington-dc-is-centered-on-the-status-quo---outdated-systems-models-and-programs-built-for-a-previous-century-with-more-silicon-and-less-concrete-we-can-open-up-those-models-to-return-power-and-independence-to-every-man-woman-and-child'''
+keywords = '''The power in Washington, D.C., is centered on the status quo - outdated systems, models, and programs built for a previous century. With more silicon and less concrete, we can open up those models to return power and independence to every man, woman, and child.,cathy mcmorris rodgers,cathy mcmorris rodgers quotes,cathy mcmorris rodgers quote,cathy mcmorris rodgers sayings,cathy mcmorris rodgers saying,quotes, sayings,quote, saying, motivation'''
++++
+The power in Washington, D.C., is centered on the status quo - outdated systems, models, and programs built for a previous century. With more silicon and less concrete, we can open up those models to return power and independence to every man, woman, and child.

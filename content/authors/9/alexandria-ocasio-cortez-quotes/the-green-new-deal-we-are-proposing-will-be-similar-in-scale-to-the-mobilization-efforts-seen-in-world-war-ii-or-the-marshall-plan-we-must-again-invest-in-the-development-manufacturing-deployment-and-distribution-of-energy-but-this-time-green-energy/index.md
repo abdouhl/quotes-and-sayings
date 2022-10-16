@@ -1,0 +1,8 @@
++++
+author = "Alexandria Ocasio-Cortez"
+title = '''The Green New Deal we are proposing will be similar in scale to the mobilization efforts seen in World War II or the Marshall Plan. We must again invest in the development, manufacturing, deployment, and distribution of energy, but this time green energy.'''
+description = '''the best Alexandria Ocasio-Cortez Quote: The Green New Deal we are proposing will be similar in scale to the mobilization efforts seen in World War II or the Marshall Plan. We must again invest in the development, manufacturing, deployment, and distribution of energy, but this time green energy.'''
+slug = '''the-green-new-deal-we-are-proposing-will-be-similar-in-scale-to-the-mobilization-efforts-seen-in-world-war-ii-or-the-marshall-plan-we-must-again-invest-in-the-development-manufacturing-deployment-and-distribution-of-energy-but-this-time-green-energy'''
+keywords = '''The Green New Deal we are proposing will be similar in scale to the mobilization efforts seen in World War II or the Marshall Plan. We must again invest in the development, manufacturing, deployment, and distribution of energy, but this time green energy.,alexandria ocasio-cortez,alexandria ocasio-cortez quotes,alexandria ocasio-cortez quote,alexandria ocasio-cortez sayings,alexandria ocasio-cortez saying,quotes, sayings,quote, saying, motivation'''
++++
+The Green New Deal we are proposing will be similar in scale to the mobilization efforts seen in World War II or the Marshall Plan. We must again invest in the development, manufacturing, deployment, and distribution of energy, but this time green energy.

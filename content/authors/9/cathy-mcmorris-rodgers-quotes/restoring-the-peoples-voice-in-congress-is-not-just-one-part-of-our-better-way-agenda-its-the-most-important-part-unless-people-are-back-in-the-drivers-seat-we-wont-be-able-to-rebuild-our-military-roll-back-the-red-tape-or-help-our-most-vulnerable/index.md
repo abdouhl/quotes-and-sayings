@@ -1,0 +1,8 @@
++++
+author = "Cathy Mcmorris Rodgers"
+title = '''Restoring the people's voice in Congress is not just one part of our Better Way agenda, it's the most important part. Unless people are back in the driver's seat, we won't be able to rebuild our military, roll back the red tape, or help our most vulnerable.'''
+description = '''the best Cathy Mcmorris Rodgers Quote: Restoring the people's voice in Congress is not just one part of our Better Way agenda, it's the most important part. Unless people are back in the driver's seat, we won't be able to rebuild our military, roll back the red tape, or help our most vulnerable.'''
+slug = '''restoring-the-peoples-voice-in-congress-is-not-just-one-part-of-our-better-way-agenda-its-the-most-important-part-unless-people-are-back-in-the-drivers-seat-we-wont-be-able-to-rebuild-our-military-roll-back-the-red-tape-or-help-our-most-vulnerable'''
+keywords = '''Restoring the people's voice in Congress is not just one part of our Better Way agenda, it's the most important part. Unless people are back in the driver's seat, we won't be able to rebuild our military, roll back the red tape, or help our most vulnerable.,cathy mcmorris rodgers,cathy mcmorris rodgers quotes,cathy mcmorris rodgers quote,cathy mcmorris rodgers sayings,cathy mcmorris rodgers saying,quotes, sayings,quote, saying, motivation'''
++++
+Restoring the people's voice in Congress is not just one part of our Better Way agenda, it's the most important part. Unless people are back in the driver's seat, we won't be able to rebuild our military, roll back the red tape, or help our most vulnerable.

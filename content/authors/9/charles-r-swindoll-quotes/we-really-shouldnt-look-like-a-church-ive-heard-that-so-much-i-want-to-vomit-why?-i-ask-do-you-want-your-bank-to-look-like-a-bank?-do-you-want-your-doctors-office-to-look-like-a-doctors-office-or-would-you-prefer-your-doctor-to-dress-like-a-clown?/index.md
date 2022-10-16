@@ -1,0 +1,8 @@
++++
+author = "Charles R. Swindoll"
+title = ''''We really shouldn't look like a church.' I've heard that so much I want to vomit. 'Why?' I ask. 'Do you want your bank to look like a bank? Do you want your doctor's office to look like a doctor's office, or would you prefer your doctor to dress like a clown?''''
+description = '''the best Charles R. Swindoll Quote: 'We really shouldn't look like a church.' I've heard that so much I want to vomit. 'Why?' I ask. 'Do you want your bank to look like a bank? Do you want your doctor's office to look like a doctor's office, or would you prefer your doctor to dress like a clown?''''
+slug = '''we-really-shouldnt-look-like-a-church-ive-heard-that-so-much-i-want-to-vomit-why?-i-ask-do-you-want-your-bank-to-look-like-a-bank?-do-you-want-your-doctors-office-to-look-like-a-doctors-office-or-would-you-prefer-your-doctor-to-dress-like-a-clown?'''
+keywords = ''''We really shouldn't look like a church.' I've heard that so much I want to vomit. 'Why?' I ask. 'Do you want your bank to look like a bank? Do you want your doctor's office to look like a doctor's office, or would you prefer your doctor to dress like a clown?',charles r. swindoll,charles r. swindoll quotes,charles r. swindoll quote,charles r. swindoll sayings,charles r. swindoll saying,quotes, sayings,quote, saying, motivation'''
++++
+'We really shouldn't look like a church.' I've heard that so much I want to vomit. 'Why?' I ask. 'Do you want your bank to look like a bank? Do you want your doctor's office to look like a doctor's office, or would you prefer your doctor to dress like a clown?'

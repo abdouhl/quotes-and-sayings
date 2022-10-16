@@ -1,0 +1,8 @@
++++
+author = "Carrie Preston"
+title = '''Before I do episodes of 'The Good Wife,' I talk to the director and say, 'I'm trusting you to let me know if it's too much! I won't be offended.' So I put myself in their hands, and most of the time they let me do my thing, but sometimes they'll say, 'Let's try this.''''
+description = '''the best Carrie Preston Quote: Before I do episodes of 'The Good Wife,' I talk to the director and say, 'I'm trusting you to let me know if it's too much! I won't be offended.' So I put myself in their hands, and most of the time they let me do my thing, but sometimes they'll say, 'Let's try this.''''
+slug = '''before-i-do-episodes-of-the-good-wife-i-talk-to-the-director-and-say-im-trusting-you-to-let-me-know-if-its-too-much!-i-wont-be-offended-so-i-put-myself-in-their-hands-and-most-of-the-time-they-let-me-do-my-thing-but-sometimes-theyll-say-lets-try-this'''
+keywords = '''Before I do episodes of 'The Good Wife,' I talk to the director and say, 'I'm trusting you to let me know if it's too much! I won't be offended.' So I put myself in their hands, and most of the time they let me do my thing, but sometimes they'll say, 'Let's try this.',carrie preston,carrie preston quotes,carrie preston quote,carrie preston sayings,carrie preston saying,quotes, sayings,quote, saying, motivation'''
++++
+Before I do episodes of 'The Good Wife,' I talk to the director and say, 'I'm trusting you to let me know if it's too much! I won't be offended.' So I put myself in their hands, and most of the time they let me do my thing, but sometimes they'll say, 'Let's try this.'
