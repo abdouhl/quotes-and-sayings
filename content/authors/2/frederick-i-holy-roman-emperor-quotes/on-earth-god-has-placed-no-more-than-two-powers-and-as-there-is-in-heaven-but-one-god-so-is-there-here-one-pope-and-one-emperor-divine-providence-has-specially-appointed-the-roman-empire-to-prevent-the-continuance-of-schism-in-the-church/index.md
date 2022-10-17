@@ -1,8 +1,0 @@
-+++
-author = "Frederick I, Holy Roman Emperor"
-title = '''On Earth, God has placed no more than two powers, and as there is in Heaven but one God, so is there here one Pope and one Emperor. Divine providence has specially appointed the Roman Empire to prevent the continuance of schism in the Church.'''
-description = '''the best Frederick I, Holy Roman Emperor Quote: On Earth, God has placed no more than two powers, and as there is in Heaven but one God, so is there here one Pope and one Emperor. Divine providence has specially appointed the Roman Empire to prevent the continuance of schism in the Church.'''
-slug = '''on-earth-god-has-placed-no-more-than-two-powers-and-as-there-is-in-heaven-but-one-god-so-is-there-here-one-pope-and-one-emperor-divine-providence-has-specially-appointed-the-roman-empire-to-prevent-the-continuance-of-schism-in-the-church'''
-keywords = '''On Earth, God has placed no more than two powers, and as there is in Heaven but one God, so is there here one Pope and one Emperor. Divine providence has specially appointed the Roman Empire to prevent the continuance of schism in the Church.,frederick i, holy roman emperor,frederick i, holy roman emperor quotes,frederick i, holy roman emperor quote,frederick i, holy roman emperor sayings,frederick i, holy roman emperor saying,quotes, sayings,quote, saying, motivation'''
-+++
-On Earth, God has placed no more than two powers, and as there is in Heaven but one God, so is there here one Pope and one Emperor. Divine providence has specially appointed the Roman Empire to prevent the continuance of schism in the Church.

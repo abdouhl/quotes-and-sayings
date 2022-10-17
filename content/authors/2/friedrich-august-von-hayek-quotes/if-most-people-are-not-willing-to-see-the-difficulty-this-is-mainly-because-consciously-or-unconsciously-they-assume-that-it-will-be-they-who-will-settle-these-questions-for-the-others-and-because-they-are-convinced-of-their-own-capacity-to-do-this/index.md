@@ -1,8 +1,0 @@
-+++
-author = "Friedrich August Von Hayek"
-title = '''If most people are not willing to see the difficulty, this is mainly because, consciously or unconsciously, they assume that it will be they who will settle these questions for the others, and because they are convinced of their own capacity to do this.'''
-description = '''the best Friedrich August Von Hayek Quote: If most people are not willing to see the difficulty, this is mainly because, consciously or unconsciously, they assume that it will be they who will settle these questions for the others, and because they are convinced of their own capacity to do this.'''
-slug = '''if-most-people-are-not-willing-to-see-the-difficulty-this-is-mainly-because-consciously-or-unconsciously-they-assume-that-it-will-be-they-who-will-settle-these-questions-for-the-others-and-because-they-are-convinced-of-their-own-capacity-to-do-this'''
-keywords = '''If most people are not willing to see the difficulty, this is mainly because, consciously or unconsciously, they assume that it will be they who will settle these questions for the others, and because they are convinced of their own capacity to do this.,friedrich august von hayek,friedrich august von hayek quotes,friedrich august von hayek quote,friedrich august von hayek sayings,friedrich august von hayek saying,quotes, sayings,quote, saying, motivation'''
-+++
-If most people are not willing to see the difficulty, this is mainly because, consciously or unconsciously, they assume that it will be they who will settle these questions for the others, and because they are convinced of their own capacity to do this.
