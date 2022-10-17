@@ -1,8 +1,0 @@
-+++
-author = "Ferdinand De Saussure"
-title = '''In fact, from then on scholars engaged in a kind of game of comparing different Indo-European languages with one another, and eventually they could not fail to wonder what exactly these connections showed, and how they should be interpreted in concrete terms.'''
-description = '''the best Ferdinand De Saussure Quote: In fact, from then on scholars engaged in a kind of game of comparing different Indo-European languages with one another, and eventually they could not fail to wonder what exactly these connections showed, and how they should be interpreted in concrete terms.'''
-slug = '''in-fact-from-then-on-scholars-engaged-in-a-kind-of-game-of-comparing-different-indo-european-languages-with-one-another-and-eventually-they-could-not-fail-to-wonder-what-exactly-these-connections-showed-and-how-they-should-be-interpreted-in-concrete-terms'''
-keywords = '''In fact, from then on scholars engaged in a kind of game of comparing different Indo-European languages with one another, and eventually they could not fail to wonder what exactly these connections showed, and how they should be interpreted in concrete terms.,ferdinand de saussure,ferdinand de saussure quotes,ferdinand de saussure quote,ferdinand de saussure sayings,ferdinand de saussure saying,quotes, sayings,quote, saying, motivation'''
-+++
-In fact, from then on scholars engaged in a kind of game of comparing different Indo-European languages with one another, and eventually they could not fail to wonder what exactly these connections showed, and how they should be interpreted in concrete terms.
