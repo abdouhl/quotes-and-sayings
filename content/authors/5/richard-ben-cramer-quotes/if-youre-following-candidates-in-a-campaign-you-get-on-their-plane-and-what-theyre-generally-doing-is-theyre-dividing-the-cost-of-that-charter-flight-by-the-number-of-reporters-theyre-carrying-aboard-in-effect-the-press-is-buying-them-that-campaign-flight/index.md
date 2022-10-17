@@ -1,8 +1,0 @@
-+++
-author = "Richard Ben Cramer"
-title = '''If you're following candidates in a campaign, you get on their plane, and what they're generally doing is they're dividing the cost of that charter flight by the number of reporters they're carrying aboard. In effect, the press is buying them that campaign flight.'''
-description = '''the best Richard Ben Cramer Quote: If you're following candidates in a campaign, you get on their plane, and what they're generally doing is they're dividing the cost of that charter flight by the number of reporters they're carrying aboard. In effect, the press is buying them that campaign flight.'''
-slug = '''if-youre-following-candidates-in-a-campaign-you-get-on-their-plane-and-what-theyre-generally-doing-is-theyre-dividing-the-cost-of-that-charter-flight-by-the-number-of-reporters-theyre-carrying-aboard-in-effect-the-press-is-buying-them-that-campaign-flight'''
-keywords = '''If you're following candidates in a campaign, you get on their plane, and what they're generally doing is they're dividing the cost of that charter flight by the number of reporters they're carrying aboard. In effect, the press is buying them that campaign flight.,richard ben cramer,richard ben cramer quotes,richard ben cramer quote,richard ben cramer sayings,richard ben cramer saying,quotes, sayings,quote, saying, motivation'''
-+++
-If you're following candidates in a campaign, you get on their plane, and what they're generally doing is they're dividing the cost of that charter flight by the number of reporters they're carrying aboard. In effect, the press is buying them that campaign flight.

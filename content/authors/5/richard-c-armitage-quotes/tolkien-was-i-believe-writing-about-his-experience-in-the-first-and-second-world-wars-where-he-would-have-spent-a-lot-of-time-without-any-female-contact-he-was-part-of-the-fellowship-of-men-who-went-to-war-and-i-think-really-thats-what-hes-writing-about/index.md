@@ -1,8 +1,0 @@
-+++
-author = "Richard C. Armitage"
-title = '''Tolkien was, I believe, writing about his experience in the First and Second World Wars, where he would have spent a lot of time without any female contact. He was part of the fellowship of men who went to war, and I think, really, that's what he's writing about.'''
-description = '''the best Richard C. Armitage Quote: Tolkien was, I believe, writing about his experience in the First and Second World Wars, where he would have spent a lot of time without any female contact. He was part of the fellowship of men who went to war, and I think, really, that's what he's writing about.'''
-slug = '''tolkien-was-i-believe-writing-about-his-experience-in-the-first-and-second-world-wars-where-he-would-have-spent-a-lot-of-time-without-any-female-contact-he-was-part-of-the-fellowship-of-men-who-went-to-war-and-i-think-really-thats-what-hes-writing-about'''
-keywords = '''Tolkien was, I believe, writing about his experience in the First and Second World Wars, where he would have spent a lot of time without any female contact. He was part of the fellowship of men who went to war, and I think, really, that's what he's writing about.,richard c. armitage,richard c. armitage quotes,richard c. armitage quote,richard c. armitage sayings,richard c. armitage saying,quotes, sayings,quote, saying, motivation'''
-+++
-Tolkien was, I believe, writing about his experience in the First and Second World Wars, where he would have spent a lot of time without any female contact. He was part of the fellowship of men who went to war, and I think, really, that's what he's writing about.

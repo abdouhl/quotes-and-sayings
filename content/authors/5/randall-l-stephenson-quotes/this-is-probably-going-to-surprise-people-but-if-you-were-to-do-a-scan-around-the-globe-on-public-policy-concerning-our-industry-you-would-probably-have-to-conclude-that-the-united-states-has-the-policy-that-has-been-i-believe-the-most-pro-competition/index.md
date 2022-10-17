@@ -1,8 +1,0 @@
-+++
-author = "Randall L. Stephenson"
-title = '''This is probably going to surprise people, but if you were to do a scan around the globe on public policy concerning our industry, you would probably have to conclude that the United States has the policy that has been, I believe, the most pro competition.'''
-description = '''the best Randall L. Stephenson Quote: This is probably going to surprise people, but if you were to do a scan around the globe on public policy concerning our industry, you would probably have to conclude that the United States has the policy that has been, I believe, the most pro competition.'''
-slug = '''this-is-probably-going-to-surprise-people-but-if-you-were-to-do-a-scan-around-the-globe-on-public-policy-concerning-our-industry-you-would-probably-have-to-conclude-that-the-united-states-has-the-policy-that-has-been-i-believe-the-most-pro-competition'''
-keywords = '''This is probably going to surprise people, but if you were to do a scan around the globe on public policy concerning our industry, you would probably have to conclude that the United States has the policy that has been, I believe, the most pro competition.,randall l. stephenson,randall l. stephenson quotes,randall l. stephenson quote,randall l. stephenson sayings,randall l. stephenson saying,quotes, sayings,quote, saying, motivation'''
-+++
-This is probably going to surprise people, but if you were to do a scan around the globe on public policy concerning our industry, you would probably have to conclude that the United States has the policy that has been, I believe, the most pro competition.
