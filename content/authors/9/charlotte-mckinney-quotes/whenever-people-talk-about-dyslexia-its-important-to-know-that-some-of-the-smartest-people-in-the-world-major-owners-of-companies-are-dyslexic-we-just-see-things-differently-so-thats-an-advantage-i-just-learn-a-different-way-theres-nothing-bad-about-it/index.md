@@ -1,8 +1,0 @@
-+++
-author = "Charlotte Mckinney"
-title = '''Whenever people talk about dyslexia, it's important to know that some of the smartest people in the world, major owners of companies, are dyslexic. We just see things differently, so that's an advantage. I just learn a different way; there's nothing bad about it.'''
-description = '''the best Charlotte Mckinney Quote: Whenever people talk about dyslexia, it's important to know that some of the smartest people in the world, major owners of companies, are dyslexic. We just see things differently, so that's an advantage. I just learn a different way; there's nothing bad about it.'''
-slug = '''whenever-people-talk-about-dyslexia-its-important-to-know-that-some-of-the-smartest-people-in-the-world-major-owners-of-companies-are-dyslexic-we-just-see-things-differently-so-thats-an-advantage-i-just-learn-a-different-way-theres-nothing-bad-about-it'''
-keywords = '''Whenever people talk about dyslexia, it's important to know that some of the smartest people in the world, major owners of companies, are dyslexic. We just see things differently, so that's an advantage. I just learn a different way; there's nothing bad about it.,charlotte mckinney,charlotte mckinney quotes,charlotte mckinney quote,charlotte mckinney sayings,charlotte mckinney saying,quotes, sayings,quote, saying, motivation'''
-+++
-Whenever people talk about dyslexia, it's important to know that some of the smartest people in the world, major owners of companies, are dyslexic. We just see things differently, so that's an advantage. I just learn a different way; there's nothing bad about it.

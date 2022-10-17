@@ -1,8 +1,0 @@
-+++
-author = "Cathy Mcmorris Rodgers"
-title = '''I do see women voters shifting to the Republican Party and doing so significantly. And the issue that's doing this is the fear the federal government will prevail in making the Affordable Health Care Act permanent law and how that will hurt small businesses.'''
-description = '''the best Cathy Mcmorris Rodgers Quote: I do see women voters shifting to the Republican Party and doing so significantly. And the issue that's doing this is the fear the federal government will prevail in making the Affordable Health Care Act permanent law and how that will hurt small businesses.'''
-slug = '''i-do-see-women-voters-shifting-to-the-republican-party-and-doing-so-significantly-and-the-issue-thats-doing-this-is-the-fear-the-federal-government-will-prevail-in-making-the-affordable-health-care-act-permanent-law-and-how-that-will-hurt-small-businesses'''
-keywords = '''I do see women voters shifting to the Republican Party and doing so significantly. And the issue that's doing this is the fear the federal government will prevail in making the Affordable Health Care Act permanent law and how that will hurt small businesses.,cathy mcmorris rodgers,cathy mcmorris rodgers quotes,cathy mcmorris rodgers quote,cathy mcmorris rodgers sayings,cathy mcmorris rodgers saying,quotes, sayings,quote, saying, motivation'''
-+++
-I do see women voters shifting to the Republican Party and doing so significantly. And the issue that's doing this is the fear the federal government will prevail in making the Affordable Health Care Act permanent law and how that will hurt small businesses.

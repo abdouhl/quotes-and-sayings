@@ -1,8 +1,0 @@
-+++
-author = "Cathy Mcmorris Rodgers"
-title = '''The American people, in their own families, they understand that you have to do that. You have to make the tough decisions. You have to get your budget. You have got to put it in order. And they expect their elected officials and their leaders to do likewise.'''
-description = '''the best Cathy Mcmorris Rodgers Quote: The American people, in their own families, they understand that you have to do that. You have to make the tough decisions. You have to get your budget. You have got to put it in order. And they expect their elected officials and their leaders to do likewise.'''
-slug = '''the-american-people-in-their-own-families-they-understand-that-you-have-to-do-that-you-have-to-make-the-tough-decisions-you-have-to-get-your-budget-you-have-got-to-put-it-in-order-and-they-expect-their-elected-officials-and-their-leaders-to-do-likewise'''
-keywords = '''The American people, in their own families, they understand that you have to do that. You have to make the tough decisions. You have to get your budget. You have got to put it in order. And they expect their elected officials and their leaders to do likewise.,cathy mcmorris rodgers,cathy mcmorris rodgers quotes,cathy mcmorris rodgers quote,cathy mcmorris rodgers sayings,cathy mcmorris rodgers saying,quotes, sayings,quote, saying, motivation'''
-+++
-The American people, in their own families, they understand that you have to do that. You have to make the tough decisions. You have to get your budget. You have got to put it in order. And they expect their elected officials and their leaders to do likewise.

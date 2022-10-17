@@ -1,8 +1,0 @@
-+++
-author = "Clemantine Wamariya"
-title = '''Labels and classifications of any type are not law, nor are they written in stone. It's up to us to be aware of this and confront it and break through it by doing things that shock and surprise people because they thought we could never achieve at that level.'''
-description = '''the best Clemantine Wamariya Quote: Labels and classifications of any type are not law, nor are they written in stone. It's up to us to be aware of this and confront it and break through it by doing things that shock and surprise people because they thought we could never achieve at that level.'''
-slug = '''labels-and-classifications-of-any-type-are-not-law-nor-are-they-written-in-stone-its-up-to-us-to-be-aware-of-this-and-confront-it-and-break-through-it-by-doing-things-that-shock-and-surprise-people-because-they-thought-we-could-never-achieve-at-that-level'''
-keywords = '''Labels and classifications of any type are not law, nor are they written in stone. It's up to us to be aware of this and confront it and break through it by doing things that shock and surprise people because they thought we could never achieve at that level.,clemantine wamariya,clemantine wamariya quotes,clemantine wamariya quote,clemantine wamariya sayings,clemantine wamariya saying,quotes, sayings,quote, saying, motivation'''
-+++
-Labels and classifications of any type are not law, nor are they written in stone. It's up to us to be aware of this and confront it and break through it by doing things that shock and surprise people because they thought we could never achieve at that level.

@@ -1,8 +1,0 @@
-+++
-author = "Clemantine Wamariya"
-title = '''After my final semester at Yale in December of 2013, I made a scary choice. Instead of looking for work - feeling over-read and underweight - that for a few months I would go wherever the wind carried me. I would become a student of the world, and I would eat.'''
-description = '''the best Clemantine Wamariya Quote: After my final semester at Yale in December of 2013, I made a scary choice. Instead of looking for work - feeling over-read and underweight - that for a few months I would go wherever the wind carried me. I would become a student of the world, and I would eat.'''
-slug = '''after-my-final-semester-at-yale-in-december-of-2013-i-made-a-scary-choice-instead-of-looking-for-work---feeling-over-read-and-underweight---that-for-a-few-months-i-would-go-wherever-the-wind-carried-me-i-would-become-a-student-of-the-world-and-i-would-eat'''
-keywords = '''After my final semester at Yale in December of 2013, I made a scary choice. Instead of looking for work - feeling over-read and underweight - that for a few months I would go wherever the wind carried me. I would become a student of the world, and I would eat.,clemantine wamariya,clemantine wamariya quotes,clemantine wamariya quote,clemantine wamariya sayings,clemantine wamariya saying,quotes, sayings,quote, saying, motivation'''
-+++
-After my final semester at Yale in December of 2013, I made a scary choice. Instead of looking for work - feeling over-read and underweight - that for a few months I would go wherever the wind carried me. I would become a student of the world, and I would eat.

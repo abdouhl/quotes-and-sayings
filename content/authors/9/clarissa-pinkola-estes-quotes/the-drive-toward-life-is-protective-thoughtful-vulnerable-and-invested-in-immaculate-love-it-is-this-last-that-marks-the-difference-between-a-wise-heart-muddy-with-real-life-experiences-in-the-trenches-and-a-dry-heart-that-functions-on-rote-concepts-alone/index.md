@@ -1,8 +1,0 @@
-+++
-author = "Clarissa Pinkola Estes"
-title = '''The drive toward Life is protective, thoughtful, vulnerable, and invested in immaculate love. It is this last that marks the difference between a wise heart muddy with real life experiences in the trenches and a dry heart that functions on rote concepts alone.'''
-description = '''the best Clarissa Pinkola Estes Quote: The drive toward Life is protective, thoughtful, vulnerable, and invested in immaculate love. It is this last that marks the difference between a wise heart muddy with real life experiences in the trenches and a dry heart that functions on rote concepts alone.'''
-slug = '''the-drive-toward-life-is-protective-thoughtful-vulnerable-and-invested-in-immaculate-love-it-is-this-last-that-marks-the-difference-between-a-wise-heart-muddy-with-real-life-experiences-in-the-trenches-and-a-dry-heart-that-functions-on-rote-concepts-alone'''
-keywords = '''The drive toward Life is protective, thoughtful, vulnerable, and invested in immaculate love. It is this last that marks the difference between a wise heart muddy with real life experiences in the trenches and a dry heart that functions on rote concepts alone.,clarissa pinkola estes,clarissa pinkola estes quotes,clarissa pinkola estes quote,clarissa pinkola estes sayings,clarissa pinkola estes saying,quotes, sayings,quote, saying, motivation'''
-+++
-The drive toward Life is protective, thoughtful, vulnerable, and invested in immaculate love. It is this last that marks the difference between a wise heart muddy with real life experiences in the trenches and a dry heart that functions on rote concepts alone.

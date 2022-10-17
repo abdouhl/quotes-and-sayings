@@ -1,8 +1,0 @@
-+++
-author = "Cyrus S. Poonawalla"
-title = '''As a teenager, I developed a great interest in not only horse breeding but also horse racing and used to bet based on red-hot tips. I realized that becoming a bookmaker would be very lucrative, but Dad put his foot down, saying it was an inappropriate career.'''
-description = '''the best Cyrus S. Poonawalla Quote: As a teenager, I developed a great interest in not only horse breeding but also horse racing and used to bet based on red-hot tips. I realized that becoming a bookmaker would be very lucrative, but Dad put his foot down, saying it was an inappropriate career.'''
-slug = '''as-a-teenager-i-developed-a-great-interest-in-not-only-horse-breeding-but-also-horse-racing-and-used-to-bet-based-on-red-hot-tips-i-realized-that-becoming-a-bookmaker-would-be-very-lucrative-but-dad-put-his-foot-down-saying-it-was-an-inappropriate-career'''
-keywords = '''As a teenager, I developed a great interest in not only horse breeding but also horse racing and used to bet based on red-hot tips. I realized that becoming a bookmaker would be very lucrative, but Dad put his foot down, saying it was an inappropriate career.,cyrus s. poonawalla,cyrus s. poonawalla quotes,cyrus s. poonawalla quote,cyrus s. poonawalla sayings,cyrus s. poonawalla saying,quotes, sayings,quote, saying, motivation'''
-+++
-As a teenager, I developed a great interest in not only horse breeding but also horse racing and used to bet based on red-hot tips. I realized that becoming a bookmaker would be very lucrative, but Dad put his foot down, saying it was an inappropriate career.

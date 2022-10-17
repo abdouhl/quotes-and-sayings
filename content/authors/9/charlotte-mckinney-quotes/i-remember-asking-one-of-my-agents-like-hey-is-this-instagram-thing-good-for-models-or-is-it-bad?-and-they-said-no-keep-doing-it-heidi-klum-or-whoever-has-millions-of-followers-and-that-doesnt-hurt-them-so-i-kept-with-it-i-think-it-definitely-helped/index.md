@@ -1,8 +1,0 @@
-+++
-author = "Charlotte Mckinney"
-title = '''I remember asking one of my agents, like, 'Hey, is this Instagram thing good for models, or is it bad?' And they said, 'No. Keep doing it. Heidi Klum, or whoever, has millions of followers, and that doesn't hurt them.' So, I kept with it. I think it definitely helped.'''
-description = '''the best Charlotte Mckinney Quote: I remember asking one of my agents, like, 'Hey, is this Instagram thing good for models, or is it bad?' And they said, 'No. Keep doing it. Heidi Klum, or whoever, has millions of followers, and that doesn't hurt them.' So, I kept with it. I think it definitely helped.'''
-slug = '''i-remember-asking-one-of-my-agents-like-hey-is-this-instagram-thing-good-for-models-or-is-it-bad?-and-they-said-no-keep-doing-it-heidi-klum-or-whoever-has-millions-of-followers-and-that-doesnt-hurt-them-so-i-kept-with-it-i-think-it-definitely-helped'''
-keywords = '''I remember asking one of my agents, like, 'Hey, is this Instagram thing good for models, or is it bad?' And they said, 'No. Keep doing it. Heidi Klum, or whoever, has millions of followers, and that doesn't hurt them.' So, I kept with it. I think it definitely helped.,charlotte mckinney,charlotte mckinney quotes,charlotte mckinney quote,charlotte mckinney sayings,charlotte mckinney saying,quotes, sayings,quote, saying, motivation'''
-+++
-I remember asking one of my agents, like, 'Hey, is this Instagram thing good for models, or is it bad?' And they said, 'No. Keep doing it. Heidi Klum, or whoever, has millions of followers, and that doesn't hurt them.' So, I kept with it. I think it definitely helped.
