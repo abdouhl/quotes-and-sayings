@@ -1,8 +1,0 @@
-+++
-author = "Robert Griffin Iii"
-title = '''My job is to build that belief in every coach and every owner, that they can put the franchise in my hands and I can take it uphill from there. Obviously, everyone wants to be No. 1, but I'm not going to campaign. I'm just going to go out and show what I've got.'''
-description = '''the best Robert Griffin Iii Quote: My job is to build that belief in every coach and every owner, that they can put the franchise in my hands and I can take it uphill from there. Obviously, everyone wants to be No. 1, but I'm not going to campaign. I'm just going to go out and show what I've got.'''
-slug = '''my-job-is-to-build-that-belief-in-every-coach-and-every-owner-that-they-can-put-the-franchise-in-my-hands-and-i-can-take-it-uphill-from-there-obviously-everyone-wants-to-be-no-1-but-im-not-going-to-campaign-im-just-going-to-go-out-and-show-what-ive-got'''
-keywords = '''My job is to build that belief in every coach and every owner, that they can put the franchise in my hands and I can take it uphill from there. Obviously, everyone wants to be No. 1, but I'm not going to campaign. I'm just going to go out and show what I've got.,robert griffin iii,robert griffin iii quotes,robert griffin iii quote,robert griffin iii sayings,robert griffin iii saying,quotes, sayings,quote, saying, motivation'''
-+++
-My job is to build that belief in every coach and every owner, that they can put the franchise in my hands and I can take it uphill from there. Obviously, everyone wants to be No. 1, but I'm not going to campaign. I'm just going to go out and show what I've got.

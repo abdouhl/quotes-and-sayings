@@ -1,8 +1,0 @@
-+++
-author = "Ricky Gervais"
-title = '''If I was a research scientist, I'd want people to say, 'You know what, he's a great research scientist, that Ricky Gervais. He's really good, really good.' You know, I'd go to award ceremonies for research scientists and go, 'Yeah, I really worked hard, yeah.' It's brilliant.'''
-description = '''the best Ricky Gervais Quote: If I was a research scientist, I'd want people to say, 'You know what, he's a great research scientist, that Ricky Gervais. He's really good, really good.' You know, I'd go to award ceremonies for research scientists and go, 'Yeah, I really worked hard, yeah.' It's brilliant.'''
-slug = '''if-i-was-a-research-scientist-id-want-people-to-say-you-know-what-hes-a-great-research-scientist-that-ricky-gervais-hes-really-good-really-good-you-know-id-go-to-award-ceremonies-for-research-scientists-and-go-yeah-i-really-worked-hard-yeah-its-brilliant'''
-keywords = '''If I was a research scientist, I'd want people to say, 'You know what, he's a great research scientist, that Ricky Gervais. He's really good, really good.' You know, I'd go to award ceremonies for research scientists and go, 'Yeah, I really worked hard, yeah.' It's brilliant.,ricky gervais,ricky gervais quotes,ricky gervais quote,ricky gervais sayings,ricky gervais saying,quotes, sayings,quote, saying, motivation'''
-+++
-If I was a research scientist, I'd want people to say, 'You know what, he's a great research scientist, that Ricky Gervais. He's really good, really good.' You know, I'd go to award ceremonies for research scientists and go, 'Yeah, I really worked hard, yeah.' It's brilliant.

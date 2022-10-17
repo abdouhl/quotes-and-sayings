@@ -1,8 +1,0 @@
-+++
-author = "Robert Griffin Iii"
-title = '''You don't have to go out there and fit the mold of what a quarterback is supposed to be. Make your own mold and do the best at each role. If you can run with the best and throw with the best, you can be the best quarterback in your own version of the position.'''
-description = '''the best Robert Griffin Iii Quote: You don't have to go out there and fit the mold of what a quarterback is supposed to be. Make your own mold and do the best at each role. If you can run with the best and throw with the best, you can be the best quarterback in your own version of the position.'''
-slug = '''you-dont-have-to-go-out-there-and-fit-the-mold-of-what-a-quarterback-is-supposed-to-be-make-your-own-mold-and-do-the-best-at-each-role-if-you-can-run-with-the-best-and-throw-with-the-best-you-can-be-the-best-quarterback-in-your-own-version-of-the-position'''
-keywords = '''You don't have to go out there and fit the mold of what a quarterback is supposed to be. Make your own mold and do the best at each role. If you can run with the best and throw with the best, you can be the best quarterback in your own version of the position.,robert griffin iii,robert griffin iii quotes,robert griffin iii quote,robert griffin iii sayings,robert griffin iii saying,quotes, sayings,quote, saying, motivation'''
-+++
-You don't have to go out there and fit the mold of what a quarterback is supposed to be. Make your own mold and do the best at each role. If you can run with the best and throw with the best, you can be the best quarterback in your own version of the position.
