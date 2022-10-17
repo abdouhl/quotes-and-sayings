@@ -1,8 +1,0 @@
-+++
-author = "Francis Ford Coppola"
-title = '''I don't go on set with an army of people because the most expensive elements of a movie production are the plane tickets, the hotel rooms, food and gasoline. If you're willing to discover new colleagues in the place that you are, you can save a ton of money.'''
-description = '''the best Francis Ford Coppola Quote: I don't go on set with an army of people because the most expensive elements of a movie production are the plane tickets, the hotel rooms, food and gasoline. If you're willing to discover new colleagues in the place that you are, you can save a ton of money.'''
-slug = '''i-dont-go-on-set-with-an-army-of-people-because-the-most-expensive-elements-of-a-movie-production-are-the-plane-tickets-the-hotel-rooms-food-and-gasoline-if-youre-willing-to-discover-new-colleagues-in-the-place-that-you-are-you-can-save-a-ton-of-money'''
-keywords = '''I don't go on set with an army of people because the most expensive elements of a movie production are the plane tickets, the hotel rooms, food and gasoline. If you're willing to discover new colleagues in the place that you are, you can save a ton of money.,francis ford coppola,francis ford coppola quotes,francis ford coppola quote,francis ford coppola sayings,francis ford coppola saying,quotes, sayings,quote, saying, motivation'''
-+++
-I don't go on set with an army of people because the most expensive elements of a movie production are the plane tickets, the hotel rooms, food and gasoline. If you're willing to discover new colleagues in the place that you are, you can save a ton of money.

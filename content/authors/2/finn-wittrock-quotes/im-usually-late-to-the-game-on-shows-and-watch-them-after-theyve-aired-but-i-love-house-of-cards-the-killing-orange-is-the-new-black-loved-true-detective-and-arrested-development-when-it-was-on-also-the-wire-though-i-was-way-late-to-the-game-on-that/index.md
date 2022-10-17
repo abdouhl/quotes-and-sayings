@@ -1,8 +1,0 @@
-+++
-author = "Finn Wittrock"
-title = '''I'm usually late to the game on shows and watch them after they've aired. But I love 'House of Cards,' 'The Killing,' 'Orange Is the New Black,' loved 'True Detective,' and 'Arrested Development' when it was on. Also 'The Wire,' though I was way late to the game on that.'''
-description = '''the best Finn Wittrock Quote: I'm usually late to the game on shows and watch them after they've aired. But I love 'House of Cards,' 'The Killing,' 'Orange Is the New Black,' loved 'True Detective,' and 'Arrested Development' when it was on. Also 'The Wire,' though I was way late to the game on that.'''
-slug = '''im-usually-late-to-the-game-on-shows-and-watch-them-after-theyve-aired-but-i-love-house-of-cards-the-killing-orange-is-the-new-black-loved-true-detective-and-arrested-development-when-it-was-on-also-the-wire-though-i-was-way-late-to-the-game-on-that'''
-keywords = '''I'm usually late to the game on shows and watch them after they've aired. But I love 'House of Cards,' 'The Killing,' 'Orange Is the New Black,' loved 'True Detective,' and 'Arrested Development' when it was on. Also 'The Wire,' though I was way late to the game on that.,finn wittrock,finn wittrock quotes,finn wittrock quote,finn wittrock sayings,finn wittrock saying,quotes, sayings,quote, saying, motivation'''
-+++
-I'm usually late to the game on shows and watch them after they've aired. But I love 'House of Cards,' 'The Killing,' 'Orange Is the New Black,' loved 'True Detective,' and 'Arrested Development' when it was on. Also 'The Wire,' though I was way late to the game on that.
