@@ -1,8 +1,0 @@
-+++
-author = "Alejandro Gonzalez Inarritu"
-title = ''''Babel' is about the point of view of others. It literally includes points of views as experienced from the other side. It is not about a hero. It is not about only one country. It is a prism that allows us to see the same reality from different angles.'''
-description = '''the best Alejandro Gonzalez Inarritu Quote: 'Babel' is about the point of view of others. It literally includes points of views as experienced from the other side. It is not about a hero. It is not about only one country. It is a prism that allows us to see the same reality from different angles.'''
-slug = '''babel-is-about-the-point-of-view-of-others-it-literally-includes-points-of-views-as-experienced-from-the-other-side-it-is-not-about-a-hero-it-is-not-about-only-one-country-it-is-a-prism-that-allows-us-to-see-the-same-reality-from-different-angles'''
-keywords = ''''Babel' is about the point of view of others. It literally includes points of views as experienced from the other side. It is not about a hero. It is not about only one country. It is a prism that allows us to see the same reality from different angles.,alejandro gonzalez inarritu,alejandro gonzalez inarritu quotes,alejandro gonzalez inarritu quote,alejandro gonzalez inarritu sayings,alejandro gonzalez inarritu saying,quotes, sayings,quote, saying, motivation'''
-+++
-'Babel' is about the point of view of others. It literally includes points of views as experienced from the other side. It is not about a hero. It is not about only one country. It is a prism that allows us to see the same reality from different angles.

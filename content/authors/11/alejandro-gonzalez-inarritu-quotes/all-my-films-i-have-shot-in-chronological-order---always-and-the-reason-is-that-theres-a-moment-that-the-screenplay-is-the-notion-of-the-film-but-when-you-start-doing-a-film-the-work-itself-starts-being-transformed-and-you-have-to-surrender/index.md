@@ -1,8 +1,0 @@
-+++
-author = "Alejandro Gonzalez Inarritu"
-title = '''All my films I have shot in chronological order - always. And the reason is that there's a moment that the screenplay is the notion of the film. But when you start doing a film... the work itself starts being transformed, and you have to surrender.'''
-description = '''the best Alejandro Gonzalez Inarritu Quote: All my films I have shot in chronological order - always. And the reason is that there's a moment that the screenplay is the notion of the film. But when you start doing a film... the work itself starts being transformed, and you have to surrender.'''
-slug = '''all-my-films-i-have-shot-in-chronological-order---always-and-the-reason-is-that-theres-a-moment-that-the-screenplay-is-the-notion-of-the-film-but-when-you-start-doing-a-film-the-work-itself-starts-being-transformed-and-you-have-to-surrender'''
-keywords = '''All my films I have shot in chronological order - always. And the reason is that there's a moment that the screenplay is the notion of the film. But when you start doing a film... the work itself starts being transformed, and you have to surrender.,alejandro gonzalez inarritu,alejandro gonzalez inarritu quotes,alejandro gonzalez inarritu quote,alejandro gonzalez inarritu sayings,alejandro gonzalez inarritu saying,quotes, sayings,quote, saying, motivation'''
-+++
-All my films I have shot in chronological order - always. And the reason is that there's a moment that the screenplay is the notion of the film. But when you start doing a film... the work itself starts being transformed, and you have to surrender.

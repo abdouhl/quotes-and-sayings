@@ -1,8 +1,0 @@
-+++
-author = "Alexander Volkanovski"
-title = '''You know, people are always asking, 'What's your brand?' and, 'What are you all about?' Then you get other people saying, 'You need to do what Connor McGregor does.' But that's not me. That's not who I am. I'm not going to talk trash and build off the bad boy image.'''
-description = '''the best Alexander Volkanovski Quote: You know, people are always asking, 'What's your brand?' and, 'What are you all about?' Then you get other people saying, 'You need to do what Connor McGregor does.' But that's not me. That's not who I am. I'm not going to talk trash and build off the bad boy image.'''
-slug = '''you-know-people-are-always-asking-whats-your-brand?-and-what-are-you-all-about?-then-you-get-other-people-saying-you-need-to-do-what-connor-mcgregor-does-but-thats-not-me-thats-not-who-i-am-im-not-going-to-talk-trash-and-build-off-the-bad-boy-image'''
-keywords = '''You know, people are always asking, 'What's your brand?' and, 'What are you all about?' Then you get other people saying, 'You need to do what Connor McGregor does.' But that's not me. That's not who I am. I'm not going to talk trash and build off the bad boy image.,alexander volkanovski,alexander volkanovski quotes,alexander volkanovski quote,alexander volkanovski sayings,alexander volkanovski saying,quotes, sayings,quote, saying, motivation'''
-+++
-You know, people are always asking, 'What's your brand?' and, 'What are you all about?' Then you get other people saying, 'You need to do what Connor McGregor does.' But that's not me. That's not who I am. I'm not going to talk trash and build off the bad boy image.

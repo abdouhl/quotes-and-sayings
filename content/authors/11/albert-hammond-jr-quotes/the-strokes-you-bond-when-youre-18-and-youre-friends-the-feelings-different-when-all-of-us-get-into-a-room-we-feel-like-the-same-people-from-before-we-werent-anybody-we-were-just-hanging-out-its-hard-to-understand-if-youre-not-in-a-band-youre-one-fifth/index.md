@@ -1,8 +1,0 @@
-+++
-author = "Albert Hammond, Jr."
-title = '''The Strokes, you bond when you're 18, and you're friends. The feeling's different. When all of us get into a room, we feel like the same people from before. We weren't anybody; we were just hanging out. It's hard to understand if you're not in a band. You're one-fifth.'''
-description = '''the best Albert Hammond, Jr. Quote: The Strokes, you bond when you're 18, and you're friends. The feeling's different. When all of us get into a room, we feel like the same people from before. We weren't anybody; we were just hanging out. It's hard to understand if you're not in a band. You're one-fifth.'''
-slug = '''the-strokes-you-bond-when-youre-18-and-youre-friends-the-feelings-different-when-all-of-us-get-into-a-room-we-feel-like-the-same-people-from-before-we-werent-anybody-we-were-just-hanging-out-its-hard-to-understand-if-youre-not-in-a-band-youre-one-fifth'''
-keywords = '''The Strokes, you bond when you're 18, and you're friends. The feeling's different. When all of us get into a room, we feel like the same people from before. We weren't anybody; we were just hanging out. It's hard to understand if you're not in a band. You're one-fifth.,albert hammond, jr.,albert hammond, jr. quotes,albert hammond, jr. quote,albert hammond, jr. sayings,albert hammond, jr. saying,quotes, sayings,quote, saying, motivation'''
-+++
-The Strokes, you bond when you're 18, and you're friends. The feeling's different. When all of us get into a room, we feel like the same people from before. We weren't anybody; we were just hanging out. It's hard to understand if you're not in a band. You're one-fifth.

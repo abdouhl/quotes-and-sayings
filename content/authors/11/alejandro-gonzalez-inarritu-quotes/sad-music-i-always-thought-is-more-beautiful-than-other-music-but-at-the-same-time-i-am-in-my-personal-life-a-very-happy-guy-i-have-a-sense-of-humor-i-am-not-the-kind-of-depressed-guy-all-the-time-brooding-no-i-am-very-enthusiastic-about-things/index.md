@@ -1,8 +1,0 @@
-+++
-author = "Alejandro Gonzalez Inarritu"
-title = '''Sad music, I always thought, is more beautiful than other music. But at the same time, I am in my personal life a very happy guy. I have a sense of humor. I am not the kind of depressed guy all the time brooding. No. I am very enthusiastic about things.'''
-description = '''the best Alejandro Gonzalez Inarritu Quote: Sad music, I always thought, is more beautiful than other music. But at the same time, I am in my personal life a very happy guy. I have a sense of humor. I am not the kind of depressed guy all the time brooding. No. I am very enthusiastic about things.'''
-slug = '''sad-music-i-always-thought-is-more-beautiful-than-other-music-but-at-the-same-time-i-am-in-my-personal-life-a-very-happy-guy-i-have-a-sense-of-humor-i-am-not-the-kind-of-depressed-guy-all-the-time-brooding-no-i-am-very-enthusiastic-about-things'''
-keywords = '''Sad music, I always thought, is more beautiful than other music. But at the same time, I am in my personal life a very happy guy. I have a sense of humor. I am not the kind of depressed guy all the time brooding. No. I am very enthusiastic about things.,alejandro gonzalez inarritu,alejandro gonzalez inarritu quotes,alejandro gonzalez inarritu quote,alejandro gonzalez inarritu sayings,alejandro gonzalez inarritu saying,quotes, sayings,quote, saying, motivation'''
-+++
-Sad music, I always thought, is more beautiful than other music. But at the same time, I am in my personal life a very happy guy. I have a sense of humor. I am not the kind of depressed guy all the time brooding. No. I am very enthusiastic about things.

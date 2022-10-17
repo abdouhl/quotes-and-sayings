@@ -1,8 +1,0 @@
-+++
-author = "Amruta Khanvilkar"
-title = '''I was born in Mumbai. We stayed in a joint family. But in 1994, my father had to shift to Pune for business. I started working at a very early stage. Immediately after my SSC board examination, I took up odd jobs in shops, as I wanted to contribute to my family.'''
-description = '''the best Amruta Khanvilkar Quote: I was born in Mumbai. We stayed in a joint family. But in 1994, my father had to shift to Pune for business. I started working at a very early stage. Immediately after my SSC board examination, I took up odd jobs in shops, as I wanted to contribute to my family.'''
-slug = '''i-was-born-in-mumbai-we-stayed-in-a-joint-family-but-in-1994-my-father-had-to-shift-to-pune-for-business-i-started-working-at-a-very-early-stage-immediately-after-my-ssc-board-examination-i-took-up-odd-jobs-in-shops-as-i-wanted-to-contribute-to-my-family'''
-keywords = '''I was born in Mumbai. We stayed in a joint family. But in 1994, my father had to shift to Pune for business. I started working at a very early stage. Immediately after my SSC board examination, I took up odd jobs in shops, as I wanted to contribute to my family.,amruta khanvilkar,amruta khanvilkar quotes,amruta khanvilkar quote,amruta khanvilkar sayings,amruta khanvilkar saying,quotes, sayings,quote, saying, motivation'''
-+++
-I was born in Mumbai. We stayed in a joint family. But in 1994, my father had to shift to Pune for business. I started working at a very early stage. Immediately after my SSC board examination, I took up odd jobs in shops, as I wanted to contribute to my family.

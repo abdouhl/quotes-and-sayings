@@ -1,8 +1,0 @@
-+++
-author = "Anders Fogh Rasmussen"
-title = '''The American people ask, and legitimately so, why should we carry the heavy burden to ensure international peace and stability. You also profit from it, so you should also take your share in the burden. That's Secretary Gates's message. I share that message.'''
-description = '''the best Anders Fogh Rasmussen Quote: The American people ask, and legitimately so, why should we carry the heavy burden to ensure international peace and stability. You also profit from it, so you should also take your share in the burden. That's Secretary Gates's message. I share that message.'''
-slug = '''the-american-people-ask-and-legitimately-so-why-should-we-carry-the-heavy-burden-to-ensure-international-peace-and-stability-you-also-profit-from-it-so-you-should-also-take-your-share-in-the-burden-thats-secretary-gatess-message-i-share-that-message'''
-keywords = '''The American people ask, and legitimately so, why should we carry the heavy burden to ensure international peace and stability. You also profit from it, so you should also take your share in the burden. That's Secretary Gates's message. I share that message.,anders fogh rasmussen,anders fogh rasmussen quotes,anders fogh rasmussen quote,anders fogh rasmussen sayings,anders fogh rasmussen saying,quotes, sayings,quote, saying, motivation'''
-+++
-The American people ask, and legitimately so, why should we carry the heavy burden to ensure international peace and stability. You also profit from it, so you should also take your share in the burden. That's Secretary Gates's message. I share that message.

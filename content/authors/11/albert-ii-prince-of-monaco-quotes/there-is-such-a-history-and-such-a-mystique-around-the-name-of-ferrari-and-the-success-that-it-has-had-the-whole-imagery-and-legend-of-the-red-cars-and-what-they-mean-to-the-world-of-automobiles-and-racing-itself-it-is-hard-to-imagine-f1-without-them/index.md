@@ -1,8 +1,0 @@
-+++
-author = "Albert Ii, Prince Of Monaco"
-title = '''There is such a history and such a mystique around the name of Ferrari and the success that it has had. The whole imagery and legend of the red cars and what they mean to the world of automobiles and racing itself. It is hard to imagine F1 without them.'''
-description = '''the best Albert Ii, Prince Of Monaco Quote: There is such a history and such a mystique around the name of Ferrari and the success that it has had. The whole imagery and legend of the red cars and what they mean to the world of automobiles and racing itself. It is hard to imagine F1 without them.'''
-slug = '''there-is-such-a-history-and-such-a-mystique-around-the-name-of-ferrari-and-the-success-that-it-has-had-the-whole-imagery-and-legend-of-the-red-cars-and-what-they-mean-to-the-world-of-automobiles-and-racing-itself-it-is-hard-to-imagine-f1-without-them'''
-keywords = '''There is such a history and such a mystique around the name of Ferrari and the success that it has had. The whole imagery and legend of the red cars and what they mean to the world of automobiles and racing itself. It is hard to imagine F1 without them.,albert ii, prince of monaco,albert ii, prince of monaco quotes,albert ii, prince of monaco quote,albert ii, prince of monaco sayings,albert ii, prince of monaco saying,quotes, sayings,quote, saying, motivation'''
-+++
-There is such a history and such a mystique around the name of Ferrari and the success that it has had. The whole imagery and legend of the red cars and what they mean to the world of automobiles and racing itself. It is hard to imagine F1 without them.

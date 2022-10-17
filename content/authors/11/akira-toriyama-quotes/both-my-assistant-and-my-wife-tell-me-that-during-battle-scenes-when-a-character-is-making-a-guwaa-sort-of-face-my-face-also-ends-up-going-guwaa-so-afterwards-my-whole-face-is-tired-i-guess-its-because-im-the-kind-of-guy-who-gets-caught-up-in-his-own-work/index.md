@@ -1,8 +1,0 @@
-+++
-author = "Akira Toriyama"
-title = '''Both my assistant and my wife tell me that during battle scenes, when a character is making a 'guwaa' sort of face, my face also ends up going 'guwaa.' So afterwards, my whole face is tired. I guess it's because I'm the kind of guy who gets caught up in his own work.'''
-description = '''the best Akira Toriyama Quote: Both my assistant and my wife tell me that during battle scenes, when a character is making a 'guwaa' sort of face, my face also ends up going 'guwaa.' So afterwards, my whole face is tired. I guess it's because I'm the kind of guy who gets caught up in his own work.'''
-slug = '''both-my-assistant-and-my-wife-tell-me-that-during-battle-scenes-when-a-character-is-making-a-guwaa-sort-of-face-my-face-also-ends-up-going-guwaa-so-afterwards-my-whole-face-is-tired-i-guess-its-because-im-the-kind-of-guy-who-gets-caught-up-in-his-own-work'''
-keywords = '''Both my assistant and my wife tell me that during battle scenes, when a character is making a 'guwaa' sort of face, my face also ends up going 'guwaa.' So afterwards, my whole face is tired. I guess it's because I'm the kind of guy who gets caught up in his own work.,akira toriyama,akira toriyama quotes,akira toriyama quote,akira toriyama sayings,akira toriyama saying,quotes, sayings,quote, saying, motivation'''
-+++
-Both my assistant and my wife tell me that during battle scenes, when a character is making a 'guwaa' sort of face, my face also ends up going 'guwaa.' So afterwards, my whole face is tired. I guess it's because I'm the kind of guy who gets caught up in his own work.

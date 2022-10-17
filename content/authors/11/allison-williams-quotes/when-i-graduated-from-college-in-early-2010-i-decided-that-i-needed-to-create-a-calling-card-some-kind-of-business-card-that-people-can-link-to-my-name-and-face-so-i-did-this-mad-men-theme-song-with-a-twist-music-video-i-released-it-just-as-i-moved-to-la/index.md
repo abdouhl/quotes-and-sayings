@@ -1,8 +1,0 @@
-+++
-author = "Allison Williams"
-title = '''When I graduated from college in early 2010, I decided that I needed to create a calling card, some kind of business card that people can link to my name and face. So I did this 'Mad Men Theme Song... With a Twist' music video. I released it just as I moved to L.A.'''
-description = '''the best Allison Williams Quote: When I graduated from college in early 2010, I decided that I needed to create a calling card, some kind of business card that people can link to my name and face. So I did this 'Mad Men Theme Song... With a Twist' music video. I released it just as I moved to L.A.'''
-slug = '''when-i-graduated-from-college-in-early-2010-i-decided-that-i-needed-to-create-a-calling-card-some-kind-of-business-card-that-people-can-link-to-my-name-and-face-so-i-did-this-mad-men-theme-song-with-a-twist-music-video-i-released-it-just-as-i-moved-to-la'''
-keywords = '''When I graduated from college in early 2010, I decided that I needed to create a calling card, some kind of business card that people can link to my name and face. So I did this 'Mad Men Theme Song... With a Twist' music video. I released it just as I moved to L.A.,allison williams,allison williams quotes,allison williams quote,allison williams sayings,allison williams saying,quotes, sayings,quote, saying, motivation'''
-+++
-When I graduated from college in early 2010, I decided that I needed to create a calling card, some kind of business card that people can link to my name and face. So I did this 'Mad Men Theme Song... With a Twist' music video. I released it just as I moved to L.A.

@@ -1,8 +1,0 @@
-+++
-author = "Alejandro Gonzalez Inarritu"
-title = '''The problem with the screenplay is that it's not literature, and it's not a film. It's a very weird, technical kind of blueprint that will be absolutely transformed into something else that is not that, you know? Honestly, a screenplay is no literature.'''
-description = '''the best Alejandro Gonzalez Inarritu Quote: The problem with the screenplay is that it's not literature, and it's not a film. It's a very weird, technical kind of blueprint that will be absolutely transformed into something else that is not that, you know? Honestly, a screenplay is no literature.'''
-slug = '''the-problem-with-the-screenplay-is-that-its-not-literature-and-its-not-a-film-its-a-very-weird-technical-kind-of-blueprint-that-will-be-absolutely-transformed-into-something-else-that-is-not-that-you-know?-honestly-a-screenplay-is-no-literature'''
-keywords = '''The problem with the screenplay is that it's not literature, and it's not a film. It's a very weird, technical kind of blueprint that will be absolutely transformed into something else that is not that, you know? Honestly, a screenplay is no literature.,alejandro gonzalez inarritu,alejandro gonzalez inarritu quotes,alejandro gonzalez inarritu quote,alejandro gonzalez inarritu sayings,alejandro gonzalez inarritu saying,quotes, sayings,quote, saying, motivation'''
-+++
-The problem with the screenplay is that it's not literature, and it's not a film. It's a very weird, technical kind of blueprint that will be absolutely transformed into something else that is not that, you know? Honestly, a screenplay is no literature.

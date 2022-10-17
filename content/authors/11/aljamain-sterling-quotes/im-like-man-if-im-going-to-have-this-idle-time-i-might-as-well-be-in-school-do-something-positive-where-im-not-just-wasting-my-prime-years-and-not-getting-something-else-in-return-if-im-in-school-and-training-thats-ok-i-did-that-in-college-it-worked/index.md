@@ -1,8 +1,0 @@
-+++
-author = "Aljamain Sterling"
-title = '''I'm like, 'Man, if I'm going to have this idle time, I might as well be in school, do something positive where I'm not just wasting my prime years and not getting something else in return.' If I'm in school and training, that's OK. I did that in college. It worked.'''
-description = '''the best Aljamain Sterling Quote: I'm like, 'Man, if I'm going to have this idle time, I might as well be in school, do something positive where I'm not just wasting my prime years and not getting something else in return.' If I'm in school and training, that's OK. I did that in college. It worked.'''
-slug = '''im-like-man-if-im-going-to-have-this-idle-time-i-might-as-well-be-in-school-do-something-positive-where-im-not-just-wasting-my-prime-years-and-not-getting-something-else-in-return-if-im-in-school-and-training-thats-ok-i-did-that-in-college-it-worked'''
-keywords = '''I'm like, 'Man, if I'm going to have this idle time, I might as well be in school, do something positive where I'm not just wasting my prime years and not getting something else in return.' If I'm in school and training, that's OK. I did that in college. It worked.,aljamain sterling,aljamain sterling quotes,aljamain sterling quote,aljamain sterling sayings,aljamain sterling saying,quotes, sayings,quote, saying, motivation'''
-+++
-I'm like, 'Man, if I'm going to have this idle time, I might as well be in school, do something positive where I'm not just wasting my prime years and not getting something else in return.' If I'm in school and training, that's OK. I did that in college. It worked.
