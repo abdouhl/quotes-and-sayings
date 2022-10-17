@@ -1,8 +1,0 @@
-+++
-author = "Ricki-Lee Coulter"
-title = '''I'm so proud to be a real woman, a size 14 woman on the cover of a magazine like 'Ralph.' Women's publications rarely put size 14 women on the cover, let alone men's, so I'm really honoured and proud to be on the cover and representing curvy, sexy women out there.'''
-description = '''the best Ricki-Lee Coulter Quote: I'm so proud to be a real woman, a size 14 woman on the cover of a magazine like 'Ralph.' Women's publications rarely put size 14 women on the cover, let alone men's, so I'm really honoured and proud to be on the cover and representing curvy, sexy women out there.'''
-slug = '''im-so-proud-to-be-a-real-woman-a-size-14-woman-on-the-cover-of-a-magazine-like-ralph-womens-publications-rarely-put-size-14-women-on-the-cover-let-alone-mens-so-im-really-honoured-and-proud-to-be-on-the-cover-and-representing-curvy-sexy-women-out-there'''
-keywords = '''I'm so proud to be a real woman, a size 14 woman on the cover of a magazine like 'Ralph.' Women's publications rarely put size 14 women on the cover, let alone men's, so I'm really honoured and proud to be on the cover and representing curvy, sexy women out there.,ricki-lee coulter,ricki-lee coulter quotes,ricki-lee coulter quote,ricki-lee coulter sayings,ricki-lee coulter saying,quotes, sayings,quote, saying, motivation'''
-+++
-I'm so proud to be a real woman, a size 14 woman on the cover of a magazine like 'Ralph.' Women's publications rarely put size 14 women on the cover, let alone men's, so I'm really honoured and proud to be on the cover and representing curvy, sexy women out there.

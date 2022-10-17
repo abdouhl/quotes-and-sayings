@@ -1,8 +1,0 @@
-+++
-author = "Robert Ben Garant"
-title = '''Writing a screenplay's not rocket science, but I was in a bar, and the bartender came up to me and said, 'I saw 'Night at the Museum,' and the thing about him and his kid brought me and my kid together.' Something like that... it's like, 'Oh, right. That's why we're doing it.''''
-description = '''the best Robert Ben Garant Quote: Writing a screenplay's not rocket science, but I was in a bar, and the bartender came up to me and said, 'I saw 'Night at the Museum,' and the thing about him and his kid brought me and my kid together.' Something like that... it's like, 'Oh, right. That's why we're doing it.''''
-slug = '''writing-a-screenplays-not-rocket-science-but-i-was-in-a-bar-and-the-bartender-came-up-to-me-and-said-i-saw-night-at-the-museum-and-the-thing-about-him-and-his-kid-brought-me-and-my-kid-together-something-like-that-its-like-oh-right-thats-why-were-doing-it'''
-keywords = '''Writing a screenplay's not rocket science, but I was in a bar, and the bartender came up to me and said, 'I saw 'Night at the Museum,' and the thing about him and his kid brought me and my kid together.' Something like that... it's like, 'Oh, right. That's why we're doing it.',robert ben garant,robert ben garant quotes,robert ben garant quote,robert ben garant sayings,robert ben garant saying,quotes, sayings,quote, saying, motivation'''
-+++
-Writing a screenplay's not rocket science, but I was in a bar, and the bartender came up to me and said, 'I saw 'Night at the Museum,' and the thing about him and his kid brought me and my kid together.' Something like that... it's like, 'Oh, right. That's why we're doing it.'

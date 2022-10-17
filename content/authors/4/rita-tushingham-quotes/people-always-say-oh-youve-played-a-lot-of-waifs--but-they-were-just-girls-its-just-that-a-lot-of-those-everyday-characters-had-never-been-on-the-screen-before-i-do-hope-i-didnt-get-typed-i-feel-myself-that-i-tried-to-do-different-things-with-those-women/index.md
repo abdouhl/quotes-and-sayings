@@ -1,8 +1,0 @@
-+++
-author = "Rita Tushingham"
-title = '''People always say, 'Oh, you've played a lot of waifs... ' but they were just girls. It's just that a lot of those everyday characters had never been on the screen before. I do hope I didn't get typed. I feel myself that I tried to do different things with those women.'''
-description = '''the best Rita Tushingham Quote: People always say, 'Oh, you've played a lot of waifs... ' but they were just girls. It's just that a lot of those everyday characters had never been on the screen before. I do hope I didn't get typed. I feel myself that I tried to do different things with those women.'''
-slug = '''people-always-say-oh-youve-played-a-lot-of-waifs--but-they-were-just-girls-its-just-that-a-lot-of-those-everyday-characters-had-never-been-on-the-screen-before-i-do-hope-i-didnt-get-typed-i-feel-myself-that-i-tried-to-do-different-things-with-those-women'''
-keywords = '''People always say, 'Oh, you've played a lot of waifs... ' but they were just girls. It's just that a lot of those everyday characters had never been on the screen before. I do hope I didn't get typed. I feel myself that I tried to do different things with those women.,rita tushingham,rita tushingham quotes,rita tushingham quote,rita tushingham sayings,rita tushingham saying,quotes, sayings,quote, saying, motivation'''
-+++
-People always say, 'Oh, you've played a lot of waifs... ' but they were just girls. It's just that a lot of those everyday characters had never been on the screen before. I do hope I didn't get typed. I feel myself that I tried to do different things with those women.

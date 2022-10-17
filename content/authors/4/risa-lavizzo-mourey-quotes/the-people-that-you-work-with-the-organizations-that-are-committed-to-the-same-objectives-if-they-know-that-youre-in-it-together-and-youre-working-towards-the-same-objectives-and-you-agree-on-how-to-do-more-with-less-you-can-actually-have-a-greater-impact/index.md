@@ -1,8 +1,0 @@
-+++
-author = "Risa Lavizzo-Mourey"
-title = '''The people that you work with, the organizations that are committed to the same objectives. If they know that you're in it together, and you're working towards the same objectives, and you agree on how to do more with less, you can actually have a greater impact.'''
-description = '''the best Risa Lavizzo-Mourey Quote: The people that you work with, the organizations that are committed to the same objectives. If they know that you're in it together, and you're working towards the same objectives, and you agree on how to do more with less, you can actually have a greater impact.'''
-slug = '''the-people-that-you-work-with-the-organizations-that-are-committed-to-the-same-objectives-if-they-know-that-youre-in-it-together-and-youre-working-towards-the-same-objectives-and-you-agree-on-how-to-do-more-with-less-you-can-actually-have-a-greater-impact'''
-keywords = '''The people that you work with, the organizations that are committed to the same objectives. If they know that you're in it together, and you're working towards the same objectives, and you agree on how to do more with less, you can actually have a greater impact.,risa lavizzo-mourey,risa lavizzo-mourey quotes,risa lavizzo-mourey quote,risa lavizzo-mourey sayings,risa lavizzo-mourey saying,quotes, sayings,quote, saying, motivation'''
-+++
-The people that you work with, the organizations that are committed to the same objectives. If they know that you're in it together, and you're working towards the same objectives, and you agree on how to do more with less, you can actually have a greater impact.

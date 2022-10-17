@@ -1,8 +1,0 @@
-+++
-author = "Rich Froning Jr."
-title = '''I'd, you know, I'd believed in God my whole life. And then started thinking about it. I was like, 'Am I living like - this stuff I'm reading - am living like we are called to live; to put Christ first, and to live for Christ? Maybe I'm not living like I'm supposed to.''''
-description = '''the best Rich Froning Jr. Quote: I'd, you know, I'd believed in God my whole life. And then started thinking about it. I was like, 'Am I living like - this stuff I'm reading - am living like we are called to live; to put Christ first, and to live for Christ? Maybe I'm not living like I'm supposed to.''''
-slug = '''id-you-know-id-believed-in-god-my-whole-life-and-then-started-thinking-about-it-i-was-like-am-i-living-like---this-stuff-im-reading---am-living-like-we-are-called-to-live-to-put-christ-first-and-to-live-for-christ?-maybe-im-not-living-like-im-supposed-to'''
-keywords = '''I'd, you know, I'd believed in God my whole life. And then started thinking about it. I was like, 'Am I living like - this stuff I'm reading - am living like we are called to live; to put Christ first, and to live for Christ? Maybe I'm not living like I'm supposed to.',rich froning jr.,rich froning jr. quotes,rich froning jr. quote,rich froning jr. sayings,rich froning jr. saying,quotes, sayings,quote, saying, motivation'''
-+++
-I'd, you know, I'd believed in God my whole life. And then started thinking about it. I was like, 'Am I living like - this stuff I'm reading - am living like we are called to live; to put Christ first, and to live for Christ? Maybe I'm not living like I'm supposed to.'
