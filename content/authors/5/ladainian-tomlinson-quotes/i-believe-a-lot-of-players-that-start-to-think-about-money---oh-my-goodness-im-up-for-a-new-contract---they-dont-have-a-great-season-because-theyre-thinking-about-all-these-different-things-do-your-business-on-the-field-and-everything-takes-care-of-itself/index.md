@@ -1,8 +1,0 @@
-+++
-author = "Ladainian Tomlinson"
-title = '''I believe a lot of players that start to think about money - 'Oh my goodness; I'm up for a new contract' - they don't have a great season because they're thinking about all these different things. Do your business on the field, and everything takes care of itself.'''
-description = '''the best Ladainian Tomlinson Quote: I believe a lot of players that start to think about money - 'Oh my goodness; I'm up for a new contract' - they don't have a great season because they're thinking about all these different things. Do your business on the field, and everything takes care of itself.'''
-slug = '''i-believe-a-lot-of-players-that-start-to-think-about-money---oh-my-goodness-im-up-for-a-new-contract---they-dont-have-a-great-season-because-theyre-thinking-about-all-these-different-things-do-your-business-on-the-field-and-everything-takes-care-of-itself'''
-keywords = '''I believe a lot of players that start to think about money - 'Oh my goodness; I'm up for a new contract' - they don't have a great season because they're thinking about all these different things. Do your business on the field, and everything takes care of itself.,ladainian tomlinson,ladainian tomlinson quotes,ladainian tomlinson quote,ladainian tomlinson sayings,ladainian tomlinson saying,quotes, sayings,quote, saying, motivation'''
-+++
-I believe a lot of players that start to think about money - 'Oh my goodness; I'm up for a new contract' - they don't have a great season because they're thinking about all these different things. Do your business on the field, and everything takes care of itself.

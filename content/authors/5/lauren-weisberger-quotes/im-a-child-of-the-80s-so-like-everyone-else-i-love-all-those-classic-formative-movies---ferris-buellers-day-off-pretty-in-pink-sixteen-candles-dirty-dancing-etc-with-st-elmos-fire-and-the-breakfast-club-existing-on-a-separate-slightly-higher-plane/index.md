@@ -1,8 +1,0 @@
-+++
-author = "Lauren Weisberger"
-title = '''I'm a child of the '80s, so like everyone else, I love all those classic, formative movies - 'Ferris Bueller's Day Off,' 'Pretty in Pink,' 'Sixteen Candles,' 'Dirty Dancing,' etc., with 'St. Elmo's Fire' and 'The Breakfast Club' existing on a separate, slightly higher plane.'''
-description = '''the best Lauren Weisberger Quote: I'm a child of the '80s, so like everyone else, I love all those classic, formative movies - 'Ferris Bueller's Day Off,' 'Pretty in Pink,' 'Sixteen Candles,' 'Dirty Dancing,' etc., with 'St. Elmo's Fire' and 'The Breakfast Club' existing on a separate, slightly higher plane.'''
-slug = '''im-a-child-of-the-80s-so-like-everyone-else-i-love-all-those-classic-formative-movies---ferris-buellers-day-off-pretty-in-pink-sixteen-candles-dirty-dancing-etc-with-st-elmos-fire-and-the-breakfast-club-existing-on-a-separate-slightly-higher-plane'''
-keywords = '''I'm a child of the '80s, so like everyone else, I love all those classic, formative movies - 'Ferris Bueller's Day Off,' 'Pretty in Pink,' 'Sixteen Candles,' 'Dirty Dancing,' etc., with 'St. Elmo's Fire' and 'The Breakfast Club' existing on a separate, slightly higher plane.,lauren weisberger,lauren weisberger quotes,lauren weisberger quote,lauren weisberger sayings,lauren weisberger saying,quotes, sayings,quote, saying, motivation'''
-+++
-I'm a child of the '80s, so like everyone else, I love all those classic, formative movies - 'Ferris Bueller's Day Off,' 'Pretty in Pink,' 'Sixteen Candles,' 'Dirty Dancing,' etc., with 'St. Elmo's Fire' and 'The Breakfast Club' existing on a separate, slightly higher plane.
