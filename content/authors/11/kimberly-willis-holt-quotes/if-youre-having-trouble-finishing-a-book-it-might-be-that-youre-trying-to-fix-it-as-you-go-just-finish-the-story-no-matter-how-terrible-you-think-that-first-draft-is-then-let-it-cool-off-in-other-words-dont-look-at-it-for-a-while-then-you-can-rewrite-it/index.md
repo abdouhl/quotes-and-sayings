@@ -1,8 +1,0 @@
-+++
-author = "Kimberly Willis Holt"
-title = '''If you're having trouble finishing a book, it might be that you're trying to fix it as you go. Just finish the story, no matter how terrible you think that first draft is. Then let it cool off. In other words, don't look at it for a while. Then you can rewrite it.'''
-description = '''the best Kimberly Willis Holt Quote: If you're having trouble finishing a book, it might be that you're trying to fix it as you go. Just finish the story, no matter how terrible you think that first draft is. Then let it cool off. In other words, don't look at it for a while. Then you can rewrite it.'''
-slug = '''if-youre-having-trouble-finishing-a-book-it-might-be-that-youre-trying-to-fix-it-as-you-go-just-finish-the-story-no-matter-how-terrible-you-think-that-first-draft-is-then-let-it-cool-off-in-other-words-dont-look-at-it-for-a-while-then-you-can-rewrite-it'''
-keywords = '''If you're having trouble finishing a book, it might be that you're trying to fix it as you go. Just finish the story, no matter how terrible you think that first draft is. Then let it cool off. In other words, don't look at it for a while. Then you can rewrite it.,kimberly willis holt,kimberly willis holt quotes,kimberly willis holt quote,kimberly willis holt sayings,kimberly willis holt saying,quotes, sayings,quote, saying, motivation'''
-+++
-If you're having trouble finishing a book, it might be that you're trying to fix it as you go. Just finish the story, no matter how terrible you think that first draft is. Then let it cool off. In other words, don't look at it for a while. Then you can rewrite it.

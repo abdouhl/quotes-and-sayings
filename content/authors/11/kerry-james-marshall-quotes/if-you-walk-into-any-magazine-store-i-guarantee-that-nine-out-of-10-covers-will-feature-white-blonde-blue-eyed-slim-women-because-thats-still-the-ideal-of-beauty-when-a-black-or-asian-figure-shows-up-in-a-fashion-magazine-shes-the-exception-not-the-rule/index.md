@@ -1,8 +1,0 @@
-+++
-author = "Kerry James Marshall"
-title = '''If you walk into any magazine store, I guarantee that nine out of 10 covers will feature white, blonde, blue-eyed, slim women because that's still the ideal of beauty. When a black or Asian figure shows up in a fashion magazine, she's the exception, not the rule.'''
-description = '''the best Kerry James Marshall Quote: If you walk into any magazine store, I guarantee that nine out of 10 covers will feature white, blonde, blue-eyed, slim women because that's still the ideal of beauty. When a black or Asian figure shows up in a fashion magazine, she's the exception, not the rule.'''
-slug = '''if-you-walk-into-any-magazine-store-i-guarantee-that-nine-out-of-10-covers-will-feature-white-blonde-blue-eyed-slim-women-because-thats-still-the-ideal-of-beauty-when-a-black-or-asian-figure-shows-up-in-a-fashion-magazine-shes-the-exception-not-the-rule'''
-keywords = '''If you walk into any magazine store, I guarantee that nine out of 10 covers will feature white, blonde, blue-eyed, slim women because that's still the ideal of beauty. When a black or Asian figure shows up in a fashion magazine, she's the exception, not the rule.,kerry james marshall,kerry james marshall quotes,kerry james marshall quote,kerry james marshall sayings,kerry james marshall saying,quotes, sayings,quote, saying, motivation'''
-+++
-If you walk into any magazine store, I guarantee that nine out of 10 covers will feature white, blonde, blue-eyed, slim women because that's still the ideal of beauty. When a black or Asian figure shows up in a fashion magazine, she's the exception, not the rule.

@@ -1,8 +1,0 @@
-+++
-author = "Katherine Jenkins"
-title = '''I've been lucky that I've performed with a lot of the classical people I've wanted to work with so I'd like to do something that people didn't see coming. Like Madonna, or being Welsh - the Tom Jones thing. Or somebody suggested N-Dubz - that would be brilliant!'''
-description = '''the best Katherine Jenkins Quote: I've been lucky that I've performed with a lot of the classical people I've wanted to work with so I'd like to do something that people didn't see coming. Like Madonna, or being Welsh - the Tom Jones thing. Or somebody suggested N-Dubz - that would be brilliant!'''
-slug = '''ive-been-lucky-that-ive-performed-with-a-lot-of-the-classical-people-ive-wanted-to-work-with-so-id-like-to-do-something-that-people-didnt-see-coming-like-madonna-or-being-welsh---the-tom-jones-thing-or-somebody-suggested-n-dubz---that-would-be-brilliant!'''
-keywords = '''I've been lucky that I've performed with a lot of the classical people I've wanted to work with so I'd like to do something that people didn't see coming. Like Madonna, or being Welsh - the Tom Jones thing. Or somebody suggested N-Dubz - that would be brilliant!,katherine jenkins,katherine jenkins quotes,katherine jenkins quote,katherine jenkins sayings,katherine jenkins saying,quotes, sayings,quote, saying, motivation'''
-+++
-I've been lucky that I've performed with a lot of the classical people I've wanted to work with so I'd like to do something that people didn't see coming. Like Madonna, or being Welsh - the Tom Jones thing. Or somebody suggested N-Dubz - that would be brilliant!

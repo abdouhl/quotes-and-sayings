@@ -1,8 +1,0 @@
-+++
-author = "Kimberly Guilfoyle"
-title = ''''The Five' is so special is because we all have such diverse backgrounds. It's such a nice mix of men, of women, and the variety of where we come from, different walks of life, different occupations, and certainly different viewpoints. That's what makes it so unique.'''
-description = '''the best Kimberly Guilfoyle Quote: 'The Five' is so special is because we all have such diverse backgrounds. It's such a nice mix of men, of women, and the variety of where we come from, different walks of life, different occupations, and certainly different viewpoints. That's what makes it so unique.'''
-slug = '''the-five-is-so-special-is-because-we-all-have-such-diverse-backgrounds-its-such-a-nice-mix-of-men-of-women-and-the-variety-of-where-we-come-from-different-walks-of-life-different-occupations-and-certainly-different-viewpoints-thats-what-makes-it-so-unique'''
-keywords = ''''The Five' is so special is because we all have such diverse backgrounds. It's such a nice mix of men, of women, and the variety of where we come from, different walks of life, different occupations, and certainly different viewpoints. That's what makes it so unique.,kimberly guilfoyle,kimberly guilfoyle quotes,kimberly guilfoyle quote,kimberly guilfoyle sayings,kimberly guilfoyle saying,quotes, sayings,quote, saying, motivation'''
-+++
-'The Five' is so special is because we all have such diverse backgrounds. It's such a nice mix of men, of women, and the variety of where we come from, different walks of life, different occupations, and certainly different viewpoints. That's what makes it so unique.

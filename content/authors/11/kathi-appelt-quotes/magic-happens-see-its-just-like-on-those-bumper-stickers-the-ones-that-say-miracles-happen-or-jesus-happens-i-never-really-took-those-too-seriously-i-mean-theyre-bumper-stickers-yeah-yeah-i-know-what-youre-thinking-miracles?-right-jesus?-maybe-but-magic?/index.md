@@ -1,8 +1,0 @@
-+++
-author = "Kathi Appelt"
-title = '''Magic happens, see. It's just like on those bumper stickers, the ones that say, 'Miracles Happen', or 'Jesus Happens'. I never really took those too seriously. I mean, they're bumper stickers. Yeah, yeah, I know what you're thinking. Miracles? Right. Jesus? Maybe. But magic?'''
-description = '''the best Kathi Appelt Quote: Magic happens, see. It's just like on those bumper stickers, the ones that say, 'Miracles Happen', or 'Jesus Happens'. I never really took those too seriously. I mean, they're bumper stickers. Yeah, yeah, I know what you're thinking. Miracles? Right. Jesus? Maybe. But magic?'''
-slug = '''magic-happens-see-its-just-like-on-those-bumper-stickers-the-ones-that-say-miracles-happen-or-jesus-happens-i-never-really-took-those-too-seriously-i-mean-theyre-bumper-stickers-yeah-yeah-i-know-what-youre-thinking-miracles?-right-jesus?-maybe-but-magic?'''
-keywords = '''Magic happens, see. It's just like on those bumper stickers, the ones that say, 'Miracles Happen', or 'Jesus Happens'. I never really took those too seriously. I mean, they're bumper stickers. Yeah, yeah, I know what you're thinking. Miracles? Right. Jesus? Maybe. But magic?,kathi appelt,kathi appelt quotes,kathi appelt quote,kathi appelt sayings,kathi appelt saying,quotes, sayings,quote, saying, motivation'''
-+++
-Magic happens, see. It's just like on those bumper stickers, the ones that say, 'Miracles Happen', or 'Jesus Happens'. I never really took those too seriously. I mean, they're bumper stickers. Yeah, yeah, I know what you're thinking. Miracles? Right. Jesus? Maybe. But magic?

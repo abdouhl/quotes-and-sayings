@@ -1,8 +1,0 @@
-+++
-author = "Katherine Schwarzenegger"
-title = '''I love traveling around and talking to women in groups like the Girl Scouts, and being able to work with them is such an honor. For me, it's always about working really hard and being able to help other people, which is what I've done with both of my books.'''
-description = '''the best Katherine Schwarzenegger Quote: I love traveling around and talking to women in groups like the Girl Scouts, and being able to work with them is such an honor. For me, it's always about working really hard and being able to help other people, which is what I've done with both of my books.'''
-slug = '''i-love-traveling-around-and-talking-to-women-in-groups-like-the-girl-scouts-and-being-able-to-work-with-them-is-such-an-honor-for-me-its-always-about-working-really-hard-and-being-able-to-help-other-people-which-is-what-ive-done-with-both-of-my-books'''
-keywords = '''I love traveling around and talking to women in groups like the Girl Scouts, and being able to work with them is such an honor. For me, it's always about working really hard and being able to help other people, which is what I've done with both of my books.,katherine schwarzenegger,katherine schwarzenegger quotes,katherine schwarzenegger quote,katherine schwarzenegger sayings,katherine schwarzenegger saying,quotes, sayings,quote, saying, motivation'''
-+++
-I love traveling around and talking to women in groups like the Girl Scouts, and being able to work with them is such an honor. For me, it's always about working really hard and being able to help other people, which is what I've done with both of my books.
