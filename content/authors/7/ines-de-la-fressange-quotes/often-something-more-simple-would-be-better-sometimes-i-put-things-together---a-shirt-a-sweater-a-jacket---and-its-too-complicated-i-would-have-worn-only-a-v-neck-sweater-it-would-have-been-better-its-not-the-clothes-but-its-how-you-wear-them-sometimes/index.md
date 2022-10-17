@@ -1,8 +1,0 @@
-+++
-author = "Ines De La Fressange"
-title = '''Often something more simple would be better. Sometimes I put things together - a shirt, a sweater, a jacket - and it's too complicated. I would have worn only a v-neck sweater, it would have been better. It's not the clothes but it's how you wear them sometimes.'''
-description = '''the best Ines De La Fressange Quote: Often something more simple would be better. Sometimes I put things together - a shirt, a sweater, a jacket - and it's too complicated. I would have worn only a v-neck sweater, it would have been better. It's not the clothes but it's how you wear them sometimes.'''
-slug = '''often-something-more-simple-would-be-better-sometimes-i-put-things-together---a-shirt-a-sweater-a-jacket---and-its-too-complicated-i-would-have-worn-only-a-v-neck-sweater-it-would-have-been-better-its-not-the-clothes-but-its-how-you-wear-them-sometimes'''
-keywords = '''Often something more simple would be better. Sometimes I put things together - a shirt, a sweater, a jacket - and it's too complicated. I would have worn only a v-neck sweater, it would have been better. It's not the clothes but it's how you wear them sometimes.,ines de la fressange,ines de la fressange quotes,ines de la fressange quote,ines de la fressange sayings,ines de la fressange saying,quotes, sayings,quote, saying, motivation'''
-+++
-Often something more simple would be better. Sometimes I put things together - a shirt, a sweater, a jacket - and it's too complicated. I would have worn only a v-neck sweater, it would have been better. It's not the clothes but it's how you wear them sometimes.
