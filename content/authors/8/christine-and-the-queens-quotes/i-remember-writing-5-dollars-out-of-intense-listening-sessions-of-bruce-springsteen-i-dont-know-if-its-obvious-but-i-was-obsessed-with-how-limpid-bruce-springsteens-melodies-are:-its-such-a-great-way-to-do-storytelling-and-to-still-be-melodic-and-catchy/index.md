@@ -1,8 +1,0 @@
-+++
-author = "Christine And The Queens"
-title = '''I remember writing '5 Dollars' out of intense listening sessions of Bruce Springsteen. I don't know if it's obvious, but I was obsessed with how limpid Bruce Springsteen's melodies are: It's such a great way to do storytelling and to still be melodic and catchy.'''
-description = '''the best Christine And The Queens Quote: I remember writing '5 Dollars' out of intense listening sessions of Bruce Springsteen. I don't know if it's obvious, but I was obsessed with how limpid Bruce Springsteen's melodies are: It's such a great way to do storytelling and to still be melodic and catchy.'''
-slug = '''i-remember-writing-5-dollars-out-of-intense-listening-sessions-of-bruce-springsteen-i-dont-know-if-its-obvious-but-i-was-obsessed-with-how-limpid-bruce-springsteens-melodies-are:-its-such-a-great-way-to-do-storytelling-and-to-still-be-melodic-and-catchy'''
-keywords = '''I remember writing '5 Dollars' out of intense listening sessions of Bruce Springsteen. I don't know if it's obvious, but I was obsessed with how limpid Bruce Springsteen's melodies are: It's such a great way to do storytelling and to still be melodic and catchy.,christine and the queens,christine and the queens quotes,christine and the queens quote,christine and the queens sayings,christine and the queens saying,quotes, sayings,quote, saying, motivation'''
-+++
-I remember writing '5 Dollars' out of intense listening sessions of Bruce Springsteen. I don't know if it's obvious, but I was obsessed with how limpid Bruce Springsteen's melodies are: It's such a great way to do storytelling and to still be melodic and catchy.

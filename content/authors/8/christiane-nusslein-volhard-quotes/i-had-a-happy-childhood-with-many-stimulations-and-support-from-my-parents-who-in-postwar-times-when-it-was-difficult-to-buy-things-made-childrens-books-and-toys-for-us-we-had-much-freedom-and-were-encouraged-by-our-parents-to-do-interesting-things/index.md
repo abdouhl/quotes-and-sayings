@@ -1,8 +1,0 @@
-+++
-author = "Christiane Nusslein-Volhard"
-title = '''I had a happy childhood, with many stimulations and support from my parents who, in postwar times, when it was difficult to buy things, made children's books and toys for us. We had much freedom and were encouraged by our parents to do interesting things.'''
-description = '''the best Christiane Nusslein-Volhard Quote: I had a happy childhood, with many stimulations and support from my parents who, in postwar times, when it was difficult to buy things, made children's books and toys for us. We had much freedom and were encouraged by our parents to do interesting things.'''
-slug = '''i-had-a-happy-childhood-with-many-stimulations-and-support-from-my-parents-who-in-postwar-times-when-it-was-difficult-to-buy-things-made-childrens-books-and-toys-for-us-we-had-much-freedom-and-were-encouraged-by-our-parents-to-do-interesting-things'''
-keywords = '''I had a happy childhood, with many stimulations and support from my parents who, in postwar times, when it was difficult to buy things, made children's books and toys for us. We had much freedom and were encouraged by our parents to do interesting things.,christiane nusslein-volhard,christiane nusslein-volhard quotes,christiane nusslein-volhard quote,christiane nusslein-volhard sayings,christiane nusslein-volhard saying,quotes, sayings,quote, saying, motivation'''
-+++
-I had a happy childhood, with many stimulations and support from my parents who, in postwar times, when it was difficult to buy things, made children's books and toys for us. We had much freedom and were encouraged by our parents to do interesting things.

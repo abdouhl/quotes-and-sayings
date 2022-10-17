@@ -1,8 +1,0 @@
-+++
-author = "Christine And The Queens"
-title = '''The success of the first album was almost an anomaly, and it could remain a fantastic anomaly. It was not crafted for commercial success. I remember meetings with my label saying it had no radio singles. For me, the second album was a gesture of independence.'''
-description = '''the best Christine And The Queens Quote: The success of the first album was almost an anomaly, and it could remain a fantastic anomaly. It was not crafted for commercial success. I remember meetings with my label saying it had no radio singles. For me, the second album was a gesture of independence.'''
-slug = '''the-success-of-the-first-album-was-almost-an-anomaly-and-it-could-remain-a-fantastic-anomaly-it-was-not-crafted-for-commercial-success-i-remember-meetings-with-my-label-saying-it-had-no-radio-singles-for-me-the-second-album-was-a-gesture-of-independence'''
-keywords = '''The success of the first album was almost an anomaly, and it could remain a fantastic anomaly. It was not crafted for commercial success. I remember meetings with my label saying it had no radio singles. For me, the second album was a gesture of independence.,christine and the queens,christine and the queens quotes,christine and the queens quote,christine and the queens sayings,christine and the queens saying,quotes, sayings,quote, saying, motivation'''
-+++
-The success of the first album was almost an anomaly, and it could remain a fantastic anomaly. It was not crafted for commercial success. I remember meetings with my label saying it had no radio singles. For me, the second album was a gesture of independence.

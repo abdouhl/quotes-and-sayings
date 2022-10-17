@@ -1,8 +1,0 @@
-+++
-author = "Clayton M. Christensen"
-title = '''From my first year on the faculty, there was always so much more I wanted to impart to the students. I decided that, rather than waste the last day of class summarizing the semester, I'd spend my time talking about what I'd learned in life that was useful.'''
-description = '''the best Clayton M. Christensen Quote: From my first year on the faculty, there was always so much more I wanted to impart to the students. I decided that, rather than waste the last day of class summarizing the semester, I'd spend my time talking about what I'd learned in life that was useful.'''
-slug = '''from-my-first-year-on-the-faculty-there-was-always-so-much-more-i-wanted-to-impart-to-the-students-i-decided-that-rather-than-waste-the-last-day-of-class-summarizing-the-semester-id-spend-my-time-talking-about-what-id-learned-in-life-that-was-useful'''
-keywords = '''From my first year on the faculty, there was always so much more I wanted to impart to the students. I decided that, rather than waste the last day of class summarizing the semester, I'd spend my time talking about what I'd learned in life that was useful.,clayton m. christensen,clayton m. christensen quotes,clayton m. christensen quote,clayton m. christensen sayings,clayton m. christensen saying,quotes, sayings,quote, saying, motivation'''
-+++
-From my first year on the faculty, there was always so much more I wanted to impart to the students. I decided that, rather than waste the last day of class summarizing the semester, I'd spend my time talking about what I'd learned in life that was useful.

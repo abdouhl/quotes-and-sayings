@@ -1,8 +1,0 @@
-+++
-author = "Christopher Mintz-Plasse"
-title = '''There's no real downside to any sort of work that I do. I'm all so grateful for it, but I wouldn't say that animated work is just a walk in the park. It is easy, it's really fun, but I don't know why I really stress myself out every time I'm about to go in.'''
-description = '''the best Christopher Mintz-Plasse Quote: There's no real downside to any sort of work that I do. I'm all so grateful for it, but I wouldn't say that animated work is just a walk in the park. It is easy, it's really fun, but I don't know why I really stress myself out every time I'm about to go in.'''
-slug = '''theres-no-real-downside-to-any-sort-of-work-that-i-do-im-all-so-grateful-for-it-but-i-wouldnt-say-that-animated-work-is-just-a-walk-in-the-park-it-is-easy-its-really-fun-but-i-dont-know-why-i-really-stress-myself-out-every-time-im-about-to-go-in'''
-keywords = '''There's no real downside to any sort of work that I do. I'm all so grateful for it, but I wouldn't say that animated work is just a walk in the park. It is easy, it's really fun, but I don't know why I really stress myself out every time I'm about to go in.,christopher mintz-plasse,christopher mintz-plasse quotes,christopher mintz-plasse quote,christopher mintz-plasse sayings,christopher mintz-plasse saying,quotes, sayings,quote, saying, motivation'''
-+++
-There's no real downside to any sort of work that I do. I'm all so grateful for it, but I wouldn't say that animated work is just a walk in the park. It is easy, it's really fun, but I don't know why I really stress myself out every time I'm about to go in.

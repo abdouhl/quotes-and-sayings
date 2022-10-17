@@ -1,8 +1,0 @@
-+++
-author = "Christopher Hitchens"
-title = '''Well look, I mean, I think that prayer and holy water, and things like that are all fine. They don't do any good, but they don't necessarily do any harm. It's touching to be thought of in that way. It makes up for those who tell me that I've got my just desserts.'''
-description = '''the best Christopher Hitchens Quote: Well look, I mean, I think that prayer and holy water, and things like that are all fine. They don't do any good, but they don't necessarily do any harm. It's touching to be thought of in that way. It makes up for those who tell me that I've got my just desserts.'''
-slug = '''well-look-i-mean-i-think-that-prayer-and-holy-water-and-things-like-that-are-all-fine-they-dont-do-any-good-but-they-dont-necessarily-do-any-harm-its-touching-to-be-thought-of-in-that-way-it-makes-up-for-those-who-tell-me-that-ive-got-my-just-desserts'''
-keywords = '''Well look, I mean, I think that prayer and holy water, and things like that are all fine. They don't do any good, but they don't necessarily do any harm. It's touching to be thought of in that way. It makes up for those who tell me that I've got my just desserts.,christopher hitchens,christopher hitchens quotes,christopher hitchens quote,christopher hitchens sayings,christopher hitchens saying,quotes, sayings,quote, saying, motivation'''
-+++
-Well look, I mean, I think that prayer and holy water, and things like that are all fine. They don't do any good, but they don't necessarily do any harm. It's touching to be thought of in that way. It makes up for those who tell me that I've got my just desserts.
