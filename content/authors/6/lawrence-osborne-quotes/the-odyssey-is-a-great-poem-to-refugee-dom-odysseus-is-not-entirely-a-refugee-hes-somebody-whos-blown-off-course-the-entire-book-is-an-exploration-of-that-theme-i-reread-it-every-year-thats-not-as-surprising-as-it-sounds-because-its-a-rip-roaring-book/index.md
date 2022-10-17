@@ -1,8 +1,0 @@
-+++
-author = "Lawrence Osborne"
-title = ''''The Odyssey' is a great poem to refugee-dom... Odysseus is not entirely a refugee... he's somebody who's blown off course. The entire book is an exploration of that theme... I reread it every year... That's not as surprising as it sounds, because it's a rip-roaring book.'''
-description = '''the best Lawrence Osborne Quote: 'The Odyssey' is a great poem to refugee-dom... Odysseus is not entirely a refugee... he's somebody who's blown off course. The entire book is an exploration of that theme... I reread it every year... That's not as surprising as it sounds, because it's a rip-roaring book.'''
-slug = '''the-odyssey-is-a-great-poem-to-refugee-dom-odysseus-is-not-entirely-a-refugee-hes-somebody-whos-blown-off-course-the-entire-book-is-an-exploration-of-that-theme-i-reread-it-every-year-thats-not-as-surprising-as-it-sounds-because-its-a-rip-roaring-book'''
-keywords = ''''The Odyssey' is a great poem to refugee-dom... Odysseus is not entirely a refugee... he's somebody who's blown off course. The entire book is an exploration of that theme... I reread it every year... That's not as surprising as it sounds, because it's a rip-roaring book.,lawrence osborne,lawrence osborne quotes,lawrence osborne quote,lawrence osborne sayings,lawrence osborne saying,quotes, sayings,quote, saying, motivation'''
-+++
-'The Odyssey' is a great poem to refugee-dom... Odysseus is not entirely a refugee... he's somebody who's blown off course. The entire book is an exploration of that theme... I reread it every year... That's not as surprising as it sounds, because it's a rip-roaring book.

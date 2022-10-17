@@ -1,8 +1,0 @@
-+++
-author = "Letitia Baldrige"
-title = '''Backpacks are obtrusive. They're great for school kids and mountaineers, but a woman is supposed to look enticing and glamorous at night. They obscure one of a woman's most erogenous zones, the nape of her neck. I suppose they're good if you want to keep men away.'''
-description = '''the best Letitia Baldrige Quote: Backpacks are obtrusive. They're great for school kids and mountaineers, but a woman is supposed to look enticing and glamorous at night. They obscure one of a woman's most erogenous zones, the nape of her neck. I suppose they're good if you want to keep men away.'''
-slug = '''backpacks-are-obtrusive-theyre-great-for-school-kids-and-mountaineers-but-a-woman-is-supposed-to-look-enticing-and-glamorous-at-night-they-obscure-one-of-a-womans-most-erogenous-zones-the-nape-of-her-neck-i-suppose-theyre-good-if-you-want-to-keep-men-away'''
-keywords = '''Backpacks are obtrusive. They're great for school kids and mountaineers, but a woman is supposed to look enticing and glamorous at night. They obscure one of a woman's most erogenous zones, the nape of her neck. I suppose they're good if you want to keep men away.,letitia baldrige,letitia baldrige quotes,letitia baldrige quote,letitia baldrige sayings,letitia baldrige saying,quotes, sayings,quote, saying, motivation'''
-+++
-Backpacks are obtrusive. They're great for school kids and mountaineers, but a woman is supposed to look enticing and glamorous at night. They obscure one of a woman's most erogenous zones, the nape of her neck. I suppose they're good if you want to keep men away.
