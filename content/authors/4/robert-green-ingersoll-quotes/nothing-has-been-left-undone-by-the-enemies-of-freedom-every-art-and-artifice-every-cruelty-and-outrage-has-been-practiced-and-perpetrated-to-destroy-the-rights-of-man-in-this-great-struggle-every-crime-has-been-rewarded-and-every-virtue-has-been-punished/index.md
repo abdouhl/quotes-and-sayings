@@ -1,8 +1,0 @@
-+++
-author = "Robert Green Ingersoll"
-title = '''Nothing has been left undone by the enemies of freedom. Every art and artifice, every cruelty and outrage has been practiced and perpetrated to destroy the rights of man. In this great struggle, every crime has been rewarded and every virtue has been punished.'''
-description = '''the best Robert Green Ingersoll Quote: Nothing has been left undone by the enemies of freedom. Every art and artifice, every cruelty and outrage has been practiced and perpetrated to destroy the rights of man. In this great struggle, every crime has been rewarded and every virtue has been punished.'''
-slug = '''nothing-has-been-left-undone-by-the-enemies-of-freedom-every-art-and-artifice-every-cruelty-and-outrage-has-been-practiced-and-perpetrated-to-destroy-the-rights-of-man-in-this-great-struggle-every-crime-has-been-rewarded-and-every-virtue-has-been-punished'''
-keywords = '''Nothing has been left undone by the enemies of freedom. Every art and artifice, every cruelty and outrage has been practiced and perpetrated to destroy the rights of man. In this great struggle, every crime has been rewarded and every virtue has been punished.,robert green ingersoll,robert green ingersoll quotes,robert green ingersoll quote,robert green ingersoll sayings,robert green ingersoll saying,quotes, sayings,quote, saying, motivation'''
-+++
-Nothing has been left undone by the enemies of freedom. Every art and artifice, every cruelty and outrage has been practiced and perpetrated to destroy the rights of man. In this great struggle, every crime has been rewarded and every virtue has been punished.
