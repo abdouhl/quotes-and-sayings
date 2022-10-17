@@ -1,8 +1,0 @@
-+++
-author = "Anita Hassanandani Reddy"
-title = ''''Gutur Gu' is a silent comedy, which I had never done. I wanted to do something out of the box. It's exciting, tough, and fun. Dialogues are very important for actors, and to emote without them took some getting used to. It's giving me scope to learn a lot.'''
-description = '''the best Anita Hassanandani Reddy Quote: 'Gutur Gu' is a silent comedy, which I had never done. I wanted to do something out of the box. It's exciting, tough, and fun. Dialogues are very important for actors, and to emote without them took some getting used to. It's giving me scope to learn a lot.'''
-slug = '''gutur-gu-is-a-silent-comedy-which-i-had-never-done-i-wanted-to-do-something-out-of-the-box-its-exciting-tough-and-fun-dialogues-are-very-important-for-actors-and-to-emote-without-them-took-some-getting-used-to-its-giving-me-scope-to-learn-a-lot'''
-keywords = ''''Gutur Gu' is a silent comedy, which I had never done. I wanted to do something out of the box. It's exciting, tough, and fun. Dialogues are very important for actors, and to emote without them took some getting used to. It's giving me scope to learn a lot.,anita hassanandani reddy,anita hassanandani reddy quotes,anita hassanandani reddy quote,anita hassanandani reddy sayings,anita hassanandani reddy saying,quotes, sayings,quote, saying, motivation'''
-+++
-'Gutur Gu' is a silent comedy, which I had never done. I wanted to do something out of the box. It's exciting, tough, and fun. Dialogues are very important for actors, and to emote without them took some getting used to. It's giving me scope to learn a lot.
