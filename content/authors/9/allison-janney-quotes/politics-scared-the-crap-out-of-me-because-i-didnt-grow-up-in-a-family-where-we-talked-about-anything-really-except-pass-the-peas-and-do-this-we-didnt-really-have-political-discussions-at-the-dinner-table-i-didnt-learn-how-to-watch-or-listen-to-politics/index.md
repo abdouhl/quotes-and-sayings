@@ -1,8 +1,0 @@
-+++
-author = "Allison Janney"
-title = '''Politics scared the crap out of me because I didn't grow up in a family where we talked about anything, really, except, 'Pass the peas, and do this.'... We didn't really have political discussions at the dinner table. I didn't learn how to watch or listen to politics.'''
-description = '''the best Allison Janney Quote: Politics scared the crap out of me because I didn't grow up in a family where we talked about anything, really, except, 'Pass the peas, and do this.'... We didn't really have political discussions at the dinner table. I didn't learn how to watch or listen to politics.'''
-slug = '''politics-scared-the-crap-out-of-me-because-i-didnt-grow-up-in-a-family-where-we-talked-about-anything-really-except-pass-the-peas-and-do-this-we-didnt-really-have-political-discussions-at-the-dinner-table-i-didnt-learn-how-to-watch-or-listen-to-politics'''
-keywords = '''Politics scared the crap out of me because I didn't grow up in a family where we talked about anything, really, except, 'Pass the peas, and do this.'... We didn't really have political discussions at the dinner table. I didn't learn how to watch or listen to politics.,allison janney,allison janney quotes,allison janney quote,allison janney sayings,allison janney saying,quotes, sayings,quote, saying, motivation'''
-+++
-Politics scared the crap out of me because I didn't grow up in a family where we talked about anything, really, except, 'Pass the peas, and do this.'... We didn't really have political discussions at the dinner table. I didn't learn how to watch or listen to politics.

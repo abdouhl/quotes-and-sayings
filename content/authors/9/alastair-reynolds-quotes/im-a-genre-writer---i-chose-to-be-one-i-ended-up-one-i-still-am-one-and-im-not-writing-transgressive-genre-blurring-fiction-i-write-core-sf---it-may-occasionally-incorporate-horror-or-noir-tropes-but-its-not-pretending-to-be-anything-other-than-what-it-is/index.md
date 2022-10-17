@@ -1,8 +1,0 @@
-+++
-author = "Alastair Reynolds"
-title = '''I'm a genre writer - I chose to be one, I ended up one, I still am one, and I'm not writing transgressive, genre-blurring fiction. I write 'core SF' - it may occasionally incorporate horror or noir tropes, but it's not pretending to be anything other than what it is.'''
-description = '''the best Alastair Reynolds Quote: I'm a genre writer - I chose to be one, I ended up one, I still am one, and I'm not writing transgressive, genre-blurring fiction. I write 'core SF' - it may occasionally incorporate horror or noir tropes, but it's not pretending to be anything other than what it is.'''
-slug = '''im-a-genre-writer---i-chose-to-be-one-i-ended-up-one-i-still-am-one-and-im-not-writing-transgressive-genre-blurring-fiction-i-write-core-sf---it-may-occasionally-incorporate-horror-or-noir-tropes-but-its-not-pretending-to-be-anything-other-than-what-it-is'''
-keywords = '''I'm a genre writer - I chose to be one, I ended up one, I still am one, and I'm not writing transgressive, genre-blurring fiction. I write 'core SF' - it may occasionally incorporate horror or noir tropes, but it's not pretending to be anything other than what it is.,alastair reynolds,alastair reynolds quotes,alastair reynolds quote,alastair reynolds sayings,alastair reynolds saying,quotes, sayings,quote, saying, motivation'''
-+++
-I'm a genre writer - I chose to be one, I ended up one, I still am one, and I'm not writing transgressive, genre-blurring fiction. I write 'core SF' - it may occasionally incorporate horror or noir tropes, but it's not pretending to be anything other than what it is.

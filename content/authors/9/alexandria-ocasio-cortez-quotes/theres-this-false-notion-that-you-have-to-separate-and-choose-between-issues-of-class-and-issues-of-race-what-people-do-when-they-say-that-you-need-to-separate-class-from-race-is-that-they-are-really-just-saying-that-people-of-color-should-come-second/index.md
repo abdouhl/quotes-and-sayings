@@ -1,8 +1,0 @@
-+++
-author = "Alexandria Ocasio-Cortez"
-title = '''There's this false notion that you have to separate and choose between issues of class and issues of race. What people do when they say that you need to separate class from race is that they are really just saying that people of color should come second.'''
-description = '''the best Alexandria Ocasio-Cortez Quote: There's this false notion that you have to separate and choose between issues of class and issues of race. What people do when they say that you need to separate class from race is that they are really just saying that people of color should come second.'''
-slug = '''theres-this-false-notion-that-you-have-to-separate-and-choose-between-issues-of-class-and-issues-of-race-what-people-do-when-they-say-that-you-need-to-separate-class-from-race-is-that-they-are-really-just-saying-that-people-of-color-should-come-second'''
-keywords = '''There's this false notion that you have to separate and choose between issues of class and issues of race. What people do when they say that you need to separate class from race is that they are really just saying that people of color should come second.,alexandria ocasio-cortez,alexandria ocasio-cortez quotes,alexandria ocasio-cortez quote,alexandria ocasio-cortez sayings,alexandria ocasio-cortez saying,quotes, sayings,quote, saying, motivation'''
-+++
-There's this false notion that you have to separate and choose between issues of class and issues of race. What people do when they say that you need to separate class from race is that they are really just saying that people of color should come second.
