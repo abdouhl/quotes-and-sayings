@@ -1,8 +1,0 @@
-+++
-author = "Carlo Ancelotti"
-title = '''I have never seen a talent like Ronaldo. He always scores, scores, scores. The first game he played for Milan, Sienna away, I said to him, 'I can't put you on the pitch. You are 100kg.' 'Mister,' he said, 'don't worry, I will score.' I put him in, and he scored twice.'''
-description = '''the best Carlo Ancelotti Quote: I have never seen a talent like Ronaldo. He always scores, scores, scores. The first game he played for Milan, Sienna away, I said to him, 'I can't put you on the pitch. You are 100kg.' 'Mister,' he said, 'don't worry, I will score.' I put him in, and he scored twice.'''
-slug = '''i-have-never-seen-a-talent-like-ronaldo-he-always-scores-scores-scores-the-first-game-he-played-for-milan-sienna-away-i-said-to-him-i-cant-put-you-on-the-pitch-you-are-100kg-mister-he-said-dont-worry-i-will-score-i-put-him-in-and-he-scored-twice'''
-keywords = '''I have never seen a talent like Ronaldo. He always scores, scores, scores. The first game he played for Milan, Sienna away, I said to him, 'I can't put you on the pitch. You are 100kg.' 'Mister,' he said, 'don't worry, I will score.' I put him in, and he scored twice.,carlo ancelotti,carlo ancelotti quotes,carlo ancelotti quote,carlo ancelotti sayings,carlo ancelotti saying,quotes, sayings,quote, saying, motivation'''
-+++
-I have never seen a talent like Ronaldo. He always scores, scores, scores. The first game he played for Milan, Sienna away, I said to him, 'I can't put you on the pitch. You are 100kg.' 'Mister,' he said, 'don't worry, I will score.' I put him in, and he scored twice.

@@ -1,8 +1,0 @@
-+++
-author = "Carine Roitfeld"
-title = '''I am not a celebrity. I work with celebrities, and it is very difficult. When a celebrity wears a dress, it's good for business, so brands fight for the red carpet. Me? I don't like it, because fashion becomes a job about dressing celebrities. And it's a bit boring.'''
-description = '''the best Carine Roitfeld Quote: I am not a celebrity. I work with celebrities, and it is very difficult. When a celebrity wears a dress, it's good for business, so brands fight for the red carpet. Me? I don't like it, because fashion becomes a job about dressing celebrities. And it's a bit boring.'''
-slug = '''i-am-not-a-celebrity-i-work-with-celebrities-and-it-is-very-difficult-when-a-celebrity-wears-a-dress-its-good-for-business-so-brands-fight-for-the-red-carpet-me?-i-dont-like-it-because-fashion-becomes-a-job-about-dressing-celebrities-and-its-a-bit-boring'''
-keywords = '''I am not a celebrity. I work with celebrities, and it is very difficult. When a celebrity wears a dress, it's good for business, so brands fight for the red carpet. Me? I don't like it, because fashion becomes a job about dressing celebrities. And it's a bit boring.,carine roitfeld,carine roitfeld quotes,carine roitfeld quote,carine roitfeld sayings,carine roitfeld saying,quotes, sayings,quote, saying, motivation'''
-+++
-I am not a celebrity. I work with celebrities, and it is very difficult. When a celebrity wears a dress, it's good for business, so brands fight for the red carpet. Me? I don't like it, because fashion becomes a job about dressing celebrities. And it's a bit boring.

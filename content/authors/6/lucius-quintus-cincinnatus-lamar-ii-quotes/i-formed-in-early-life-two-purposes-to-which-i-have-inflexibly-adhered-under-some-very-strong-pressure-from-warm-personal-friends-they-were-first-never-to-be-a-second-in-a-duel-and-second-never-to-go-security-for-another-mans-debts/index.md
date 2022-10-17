@@ -1,8 +1,0 @@
-+++
-author = "Lucius Quintus Cincinnatus Lamar Ii"
-title = '''I formed, in early life, two purposes to which I have inflexibly adhered, under some very strong pressure from warm personal friends. They were, first, never to be a second in a duel; and, second, never to go security for another man's debts.'''
-description = '''the best Lucius Quintus Cincinnatus Lamar Ii Quote: I formed, in early life, two purposes to which I have inflexibly adhered, under some very strong pressure from warm personal friends. They were, first, never to be a second in a duel; and, second, never to go security for another man's debts.'''
-slug = '''i-formed-in-early-life-two-purposes-to-which-i-have-inflexibly-adhered-under-some-very-strong-pressure-from-warm-personal-friends-they-were-first-never-to-be-a-second-in-a-duel-and-second-never-to-go-security-for-another-mans-debts'''
-keywords = '''I formed, in early life, two purposes to which I have inflexibly adhered, under some very strong pressure from warm personal friends. They were, first, never to be a second in a duel; and, second, never to go security for another man's debts.,lucius quintus cincinnatus lamar ii,lucius quintus cincinnatus lamar ii quotes,lucius quintus cincinnatus lamar ii quote,lucius quintus cincinnatus lamar ii sayings,lucius quintus cincinnatus lamar ii saying,quotes, sayings,quote, saying, motivation'''
-+++
-I formed, in early life, two purposes to which I have inflexibly adhered, under some very strong pressure from warm personal friends. They were, first, never to be a second in a duel; and, second, never to go security for another man's debts.

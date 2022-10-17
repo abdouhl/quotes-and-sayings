@@ -1,8 +1,0 @@
-+++
-author = "Ludwig Mies Van Der Rohe"
-title = '''We must understand the motives and forces of our time and analyze their structure from three points of view: the material, the functional, and the spiritual. We must make clear in what respects our epoch differs from others and in what respects it is similar.'''
-description = '''the best Ludwig Mies Van Der Rohe Quote: We must understand the motives and forces of our time and analyze their structure from three points of view: the material, the functional, and the spiritual. We must make clear in what respects our epoch differs from others and in what respects it is similar.'''
-slug = '''we-must-understand-the-motives-and-forces-of-our-time-and-analyze-their-structure-from-three-points-of-view:-the-material-the-functional-and-the-spiritual-we-must-make-clear-in-what-respects-our-epoch-differs-from-others-and-in-what-respects-it-is-similar'''
-keywords = '''We must understand the motives and forces of our time and analyze their structure from three points of view: the material, the functional, and the spiritual. We must make clear in what respects our epoch differs from others and in what respects it is similar.,ludwig mies van der rohe,ludwig mies van der rohe quotes,ludwig mies van der rohe quote,ludwig mies van der rohe sayings,ludwig mies van der rohe saying,quotes, sayings,quote, saying, motivation'''
-+++
-We must understand the motives and forces of our time and analyze their structure from three points of view: the material, the functional, and the spiritual. We must make clear in what respects our epoch differs from others and in what respects it is similar.

@@ -1,8 +1,0 @@
-+++
-author = "Carine Roitfeld"
-title = '''One time, a burglar came to my apartment, so we called the police. My son was here, so I think they left before they tried to steal something. So the police come to my apartment, and they say, 'Oh my God, did they steal everything?' I was like, 'No, it was like that!''''
-description = '''the best Carine Roitfeld Quote: One time, a burglar came to my apartment, so we called the police. My son was here, so I think they left before they tried to steal something. So the police come to my apartment, and they say, 'Oh my God, did they steal everything?' I was like, 'No, it was like that!''''
-slug = '''one-time-a-burglar-came-to-my-apartment-so-we-called-the-police-my-son-was-here-so-i-think-they-left-before-they-tried-to-steal-something-so-the-police-come-to-my-apartment-and-they-say-oh-my-god-did-they-steal-everything?-i-was-like-no-it-was-like-that!'''
-keywords = '''One time, a burglar came to my apartment, so we called the police. My son was here, so I think they left before they tried to steal something. So the police come to my apartment, and they say, 'Oh my God, did they steal everything?' I was like, 'No, it was like that!',carine roitfeld,carine roitfeld quotes,carine roitfeld quote,carine roitfeld sayings,carine roitfeld saying,quotes, sayings,quote, saying, motivation'''
-+++
-One time, a burglar came to my apartment, so we called the police. My son was here, so I think they left before they tried to steal something. So the police come to my apartment, and they say, 'Oh my God, did they steal everything?' I was like, 'No, it was like that!'
