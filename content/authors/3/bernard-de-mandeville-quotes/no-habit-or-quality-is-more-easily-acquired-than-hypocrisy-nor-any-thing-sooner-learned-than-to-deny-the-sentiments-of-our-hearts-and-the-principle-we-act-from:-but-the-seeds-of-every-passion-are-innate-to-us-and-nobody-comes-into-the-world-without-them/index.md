@@ -1,8 +1,0 @@
-+++
-author = "Bernard De Mandeville"
-title = '''No habit or quality is more easily acquired than hypocrisy, nor any thing sooner learned than to deny the sentiments of our hearts and the principle we act from: but the seeds of every passion are innate to us, and nobody comes into the world without them.'''
-description = '''the best Bernard De Mandeville Quote: No habit or quality is more easily acquired than hypocrisy, nor any thing sooner learned than to deny the sentiments of our hearts and the principle we act from: but the seeds of every passion are innate to us, and nobody comes into the world without them.'''
-slug = '''no-habit-or-quality-is-more-easily-acquired-than-hypocrisy-nor-any-thing-sooner-learned-than-to-deny-the-sentiments-of-our-hearts-and-the-principle-we-act-from:-but-the-seeds-of-every-passion-are-innate-to-us-and-nobody-comes-into-the-world-without-them'''
-keywords = '''No habit or quality is more easily acquired than hypocrisy, nor any thing sooner learned than to deny the sentiments of our hearts and the principle we act from: but the seeds of every passion are innate to us, and nobody comes into the world without them.,bernard de mandeville,bernard de mandeville quotes,bernard de mandeville quote,bernard de mandeville sayings,bernard de mandeville saying,quotes, sayings,quote, saying, motivation'''
-+++
-No habit or quality is more easily acquired than hypocrisy, nor any thing sooner learned than to deny the sentiments of our hearts and the principle we act from: but the seeds of every passion are innate to us, and nobody comes into the world without them.

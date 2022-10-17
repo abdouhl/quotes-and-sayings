@@ -1,8 +1,0 @@
-+++
-author = "Billie Eilish"
-title = '''I don't even call them fans. I don't like that. They're literally just a part of my life; they're a part of my family. I don't think of them as on a lower level than me. I don't think I'm anything but equal to all of them. So yeah, they're basically all of my siblings.'''
-description = '''the best Billie Eilish Quote: I don't even call them fans. I don't like that. They're literally just a part of my life; they're a part of my family. I don't think of them as on a lower level than me. I don't think I'm anything but equal to all of them. So yeah, they're basically all of my siblings.'''
-slug = '''i-dont-even-call-them-fans-i-dont-like-that-theyre-literally-just-a-part-of-my-life-theyre-a-part-of-my-family-i-dont-think-of-them-as-on-a-lower-level-than-me-i-dont-think-im-anything-but-equal-to-all-of-them-so-yeah-theyre-basically-all-of-my-siblings'''
-keywords = '''I don't even call them fans. I don't like that. They're literally just a part of my life; they're a part of my family. I don't think of them as on a lower level than me. I don't think I'm anything but equal to all of them. So yeah, they're basically all of my siblings.,billie eilish,billie eilish quotes,billie eilish quote,billie eilish sayings,billie eilish saying,quotes, sayings,quote, saying, motivation'''
-+++
-I don't even call them fans. I don't like that. They're literally just a part of my life; they're a part of my family. I don't think of them as on a lower level than me. I don't think I'm anything but equal to all of them. So yeah, they're basically all of my siblings.

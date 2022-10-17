@@ -1,8 +1,0 @@
-+++
-author = "Beth Ostrosky Stern"
-title = '''I had two cats growing up that were indoor/outdoor and both of them died from being hit by a car. One of them, she didn't have an ID tag on, so someone just thought it was a stray cat I highly recommend to keep your cats indoors. Their lives end up a lot longer.'''
-description = '''the best Beth Ostrosky Stern Quote: I had two cats growing up that were indoor/outdoor and both of them died from being hit by a car. One of them, she didn't have an ID tag on, so someone just thought it was a stray cat I highly recommend to keep your cats indoors. Their lives end up a lot longer.'''
-slug = '''i-had-two-cats-growing-up-that-were-indooroutdoor-and-both-of-them-died-from-being-hit-by-a-car-one-of-them-she-didnt-have-an-id-tag-on-so-someone-just-thought-it-was-a-stray-cat-i-highly-recommend-to-keep-your-cats-indoors-their-lives-end-up-a-lot-longer'''
-keywords = '''I had two cats growing up that were indoor/outdoor and both of them died from being hit by a car. One of them, she didn't have an ID tag on, so someone just thought it was a stray cat I highly recommend to keep your cats indoors. Their lives end up a lot longer.,beth ostrosky stern,beth ostrosky stern quotes,beth ostrosky stern quote,beth ostrosky stern sayings,beth ostrosky stern saying,quotes, sayings,quote, saying, motivation'''
-+++
-I had two cats growing up that were indoor/outdoor and both of them died from being hit by a car. One of them, she didn't have an ID tag on, so someone just thought it was a stray cat I highly recommend to keep your cats indoors. Their lives end up a lot longer.
