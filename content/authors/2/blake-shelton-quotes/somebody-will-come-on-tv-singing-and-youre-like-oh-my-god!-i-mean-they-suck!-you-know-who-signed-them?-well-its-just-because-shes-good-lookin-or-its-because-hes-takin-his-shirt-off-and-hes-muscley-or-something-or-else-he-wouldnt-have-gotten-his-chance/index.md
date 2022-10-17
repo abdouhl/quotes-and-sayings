@@ -1,8 +1,0 @@
-+++
-author = "Blake Shelton"
-title = '''Somebody will come on TV singing, and you're like, 'Oh my God! I mean, they suck! You know, who signed them?' Well, it's just because she's good lookin', or it's because he's takin' his shirt off and he's muscley or something, or else he wouldn't have gotten his chance.'''
-description = '''the best Blake Shelton Quote: Somebody will come on TV singing, and you're like, 'Oh my God! I mean, they suck! You know, who signed them?' Well, it's just because she's good lookin', or it's because he's takin' his shirt off and he's muscley or something, or else he wouldn't have gotten his chance.'''
-slug = '''somebody-will-come-on-tv-singing-and-youre-like-oh-my-god!-i-mean-they-suck!-you-know-who-signed-them?-well-its-just-because-shes-good-lookin-or-its-because-hes-takin-his-shirt-off-and-hes-muscley-or-something-or-else-he-wouldnt-have-gotten-his-chance'''
-keywords = '''Somebody will come on TV singing, and you're like, 'Oh my God! I mean, they suck! You know, who signed them?' Well, it's just because she's good lookin', or it's because he's takin' his shirt off and he's muscley or something, or else he wouldn't have gotten his chance.,blake shelton,blake shelton quotes,blake shelton quote,blake shelton sayings,blake shelton saying,quotes, sayings,quote, saying, motivation'''
-+++
-Somebody will come on TV singing, and you're like, 'Oh my God! I mean, they suck! You know, who signed them?' Well, it's just because she's good lookin', or it's because he's takin' his shirt off and he's muscley or something, or else he wouldn't have gotten his chance.
