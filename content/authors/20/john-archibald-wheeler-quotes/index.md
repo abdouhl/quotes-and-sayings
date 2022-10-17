@@ -1,0 +1,8 @@
++++
+author = "John Archibald Wheeler"
+title = "John Archibald Wheeler Quotes"
+quotes_len = "10"
+description = "the best 10 John Archibald Wheeler Quotes"
+keywords = "john archibald wheeler,john archibald wheeler quotes,john archibald wheeler quote,john archibald wheeler sayings,john archibald wheeler saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''If you haven't found something strange during the day, it hasn't been much of a day.''' ,'''In any field, find the strangest thing and then explore it.''' ,'''No phenomenon is a real phenomenon until it is an observed phenomenon.''' ,'''To hate is to study, to study is to understand, to understand is to appreciate, to appreciate is to love. So maybe I'll end up loving your theory.''' ,'''Time is what prevents everything from happening at once.''' ,'''Behind it all is surely an idea so simple, so beautiful, that when we grasp it - in a decade, a century, or a millennium - we will all say to each other, how could it have been otherwise? How could we have been so stupid?''' ,'''We live on an island surrounded by a sea of ignorance. As our island of knowledge grows, so does the shore of our ignorance.''' ,'''It is my opinion that everything must be based on a simple idea. And it is my opinion that this idea, once we have finally discovered it, will be so compelling, so beautiful, that we will say to one another, yes, how could it have been any different.''' ,'''In order to more fully understand this reality, we must take into account other dimensions of a broader reality.''' ,'''Time is nature's way of keeping everything from happening at once.''' ,]
++++

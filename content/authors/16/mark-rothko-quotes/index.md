@@ -1,0 +1,8 @@
++++
+author = "Mark Rothko"
+title = "Mark Rothko Quotes"
+quotes_len = "10"
+description = "the best 10 Mark Rothko Quotes"
+keywords = "mark rothko,mark rothko quotes,mark rothko quote,mark rothko sayings,mark rothko saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''Silence is so accurate.''' ,'''That is why we profess a spiritual kinship with primitive and archaic art.''' ,'''I also hang the pictures low rather than high, and particularly in the case of the largest ones, often as close to the floor as is feasible, for that is the way they are painted.''' ,'''And last, it may be worthwhile trying to hang something beyond the partial wall because some of the pictures do very well in a confined space.''' ,'''Art to me is an anecdote of the spirit, and the only means of making concrete the purpose of its varied quickness and stillness.''' ,'''If our titles recall the known myths of antiquity, we have used them again because they are the eternal symbols upon which we must fall back to express basic psychological ideas.''' ,'''This would be a distortion of their meaning, since the pictures are intimate and intense, and are the opposite of what is decorative; and have been painted in a scale of normal living rather than an institutional scale.''' ,'''There is no such thing as good painting about nothing.''' ,'''We assert that the subject is crucial and only that subject matter is valid which is tragic and timeless.''' ,'''It is a widely accepted notion among painters that it does not matter what one paints as long as it is well painted. This is the essence of academicism.''' ,]
++++

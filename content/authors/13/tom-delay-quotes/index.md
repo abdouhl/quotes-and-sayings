@@ -1,0 +1,8 @@
++++
+author = "Tom Delay"
+title = "Tom Delay Quotes"
+quotes_len = "10"
+description = "the best 10 Tom Delay Quotes"
+keywords = "tom delay,tom delay quotes,tom delay quote,tom delay sayings,tom delay saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''I don't believe there is a separation of church and state. I think the Constitution is very clear. The only separation is that there will not be a government church.''' ,'''Nothing is more important in the face of a war than cutting taxes.''' ,'''Nothing's worse than a woman know-it-all.''' ,'''The causes of youth violence are working parents who put their kids into daycare, the teaching of evolution in the schools, and working mothers who take birth control pills.''' ,'''I am the Federal Government.''' ,'''A woman can take care of the family. It takes a man to provide structure, to provide stability.''' ,'''You know, the Democrats want to balance the budget by raising spending and raising taxes. The Soviet Union had a balanced budget.''' ,'''I am not a federal employee. I am a constitutional officer. My job is the Constitution of the United States, I am not a government employee. I am in the Constitution.''' ,'''My friends, there is no Palestinian-Israeli conflict. There is only the global war on terrorism.''' ,'''In short, it is the position of the people of the United States, as expressed by their representatives in Congress, that Israel's fight is our fight. And so shall it be until the last terrorist on earth is in a cell or a cemetery.''' ,]
++++

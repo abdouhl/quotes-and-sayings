@@ -1,0 +1,8 @@
++++
+author = "Jacob Zachar"
+title = "Jacob Zachar Quotes"
+quotes_len = "11"
+description = "the best 11 Jacob Zachar Quotes"
+keywords = "jacob zachar,jacob zachar quotes,jacob zachar quote,jacob zachar sayings,jacob zachar saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''It's better to take sobriety with you when you work.''' ,'''I think the reason I got into it is because you get to be someone else. There are, like, two percent of people in the actors' union who actually make money off of it, so I feel very blessed to be here.''' ,'''I have a lot of traditional values I follow personally, which was hard to deal with when I first moved to L.A.''' ,'''I want to shoot some indies, some independent features that give me some space to play a little bit.''' ,'''I'd love to shoot some of these bigger movies as they come, and I'll go back to theater at some point again.''' ,'''I was really into theater, really into music a lot.''' ,'''There are so many talented actors in Chicago, I have to go see shows when I'm there. A lot of these actors, who I've seen when I'm in Chicago in theaters, are technically amazing and never have an opportunity to showcase it on a bigger medium.''' ,'''In Chicago, I'd audition 3-4 times a week, but when I got out to L.A., there were, like, 4-5 a day, and my skin got really thick.''' ,'''Sometimes I sneak out into the streets alone, like Princess Jasmine in 'Aladdin.'''' ,'''I'm a White Sox fan, and the Blackhawks.''' ,'''I'm a fan of, like, the Coen Brothers, with the darker humor in it.''' ,]
++++

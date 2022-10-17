@@ -1,0 +1,8 @@
++++
+author = "John Buchan"
+title = "John Buchan Quotes"
+quotes_len = "15"
+description = "the best 15 John Buchan Quotes"
+keywords = "john buchan,john buchan quotes,john buchan quote,john buchan sayings,john buchan saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''The charm of fishing is that it is the pursuit of what is elusive but attainable, a perpetual series of occasions for hope.''' ,'''Peace is that state in which fear of any kind is unknown.''' ,'''The task of leadership is not to put greatness into humanity, but to elicit it, for the greatness is already there.''' ,'''The robe of flesh wears thin, and with the years God shines through all things.''' ,'''Prayer opens the heart to God, and it is the means by which the soul, though empty, is filled by God.''' ,'''Without humility there can be no humanity.''' ,'''You think that a wall as solid as the earth separates civilization from barbarism. I tell you the division is a thread, a sheet of glass. A touch here, a push there, and you bring back the reign of Saturn.''' ,'''There may be Peace without Joy, and Joy without Peace, but the two combined make Happiness.''' ,'''Every man at the bottom of his heart believes that he is a born detective.''' ,'''Civilization is a conspiracy. Modern life is the silent compact of comfortable folk to keep up pretences.''' ,'''We can pay our debts to the past by putting the future in debt to ourselves.''' ,'''To live for a time close to great minds is the best kind of education.''' ,'''The true definition of a snob is one who craves for what separates men rather than for what unites them.''' ,'''The best prayers have often more groans than words.''' ,'''He disliked emotion, not because he felt lightly, but because he felt deeply.''' ,]
++++

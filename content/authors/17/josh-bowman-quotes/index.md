@@ -1,0 +1,8 @@
++++
+author = "Josh Bowman"
+title = "Josh Bowman Quotes"
+quotes_len = "13"
+description = "the best 13 Josh Bowman Quotes"
+keywords = "josh bowman,josh bowman quotes,josh bowman quote,josh bowman sayings,josh bowman saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''My workout regimen at the moment is nonexistent. I wake up in the morning and brush my teeth. My toothbrush and deodorant are my only dumbbells. That's about it.''' ,'''Everyone wants to escape, everyone's drawn to escapism to leave their lives for an hour or two, and we're all so curious as human beings.''' ,'''I want to do films that challenge me. I want to do what the actors I look up to are doing - the Gary Oldmans and Daniel Day-Lewises.''' ,'''In relationships, you want to be secure but not know what's coming next. Everyone has to have secrets, but if I'm asked a question, I'll answer honestly.''' ,'''The first thing I've learned is to trust nobody.''' ,'''Women like men who listen. We have two ears and one mouth, so we should listen twice as much as we speak.''' ,'''I wouldn't agree with some of the things that the press writes about and that's all I have to say about that.''' ,'''It's true to say that I'm a budding young actor. But I'd rather get my name out there because of my acting rather than who I'm being photographed with.''' ,'''We all, as actors, have to fight these battles, where it's like, 'OK, that's a little far-fetched.'''' ,'''A good sense of humor will get you everywhere.''' ,'''March on. Don't look in the rearview, just the windshield.''' ,'''I love films, I love the way they make me feel.''' ,'''I'm not a typical public school boy.''' ,]
++++

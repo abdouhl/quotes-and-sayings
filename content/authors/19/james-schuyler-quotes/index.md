@@ -1,0 +1,8 @@
++++
+author = "James Schuyler"
+title = "James Schuyler Quotes"
+quotes_len = "10"
+description = "the best 10 James Schuyler Quotes"
+keywords = "james schuyler,james schuyler quotes,james schuyler quote,james schuyler sayings,james schuyler saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''In the past I have declined to comment on my own work: because, it seems to me, a poem is what it is; because a poem is itself a definition, and to try to redefine it is to be apt to falsify it; and because the author is the person least able to consider his work objectively.''' ,'''However, intention needn't enter in, and if a reader sees things in a religious way, and the work is dogmatically acceptable, then I don't see why it should not be interpreted in that way, as well as in others.''' ,'''It is always pleasant to learn that someone takes an interest in a work which one enjoyed writing.''' ,'''One tends to write beyond what's needed.''' ,'''It seems to me that readers sometimes make the genesis of a poem more mysterious than it is (by that I perhaps mean, think of it as something outside their own experience).''' ,'''Well, if this is poetry, I'm certainly never going to write any myself.''' ,'''The aim of the poet, or other artist, is first to make something; and it's impossible to make something out of words and not communicate.''' ,'''To change your phrase somewhat, I know that I like an art where disparate elements form an entity.''' ,'''I do not usually revise much, though I often cut, particularly the end or toward the end of a poem.''' ,'''However, if a poem can be reduced to a prose sentence, there can't be much to it.''' ,]
++++

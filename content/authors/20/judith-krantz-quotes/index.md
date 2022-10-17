@@ -1,0 +1,8 @@
++++
+author = "Judith Krantz"
+title = "Judith Krantz Quotes"
+quotes_len = "8"
+description = "the best 8 Judith Krantz Quotes"
+keywords = "judith krantz,judith krantz quotes,judith krantz quote,judith krantz sayings,judith krantz saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''Surely the whole point of writing your own life story is to be as honest as you possibly can, revealing everything about yourself that is most private and probably most interesting for that very reason.''' ,'''Heaven knows, I've exposed myself in my novels through the use of fantasy and imagination... now my new book is about what really happened to me... not my heroines.''' ,'''I got that experience through dating dozens of men for six years after college, getting an entry level magazine job at 21, working in the fiction department at Good Housekeeping and then working as a fashion editor there as well as writing many articles for the magazine.''' ,'''I would, however, start writing fiction about 10 years before I actually did, because it's such great fun to do, many times more creative than nonfiction.''' ,'''You can browse to your heart's content but it's hard work and not easy on the feet unless you do it through catalogs or the Internet, and I like to touch and try on the things I buy.''' ,'''It can't possibly last for years and browsing has its limits. Only a certain amount is healthy or wise.''' ,'''On the one hand, shopping is dependable: You can do it alone, if you lose your heart to something that is wrong for you, you can return it; it's instant gratification and yet something you buy may well last for years.''' ,'''My work caused me to interview hundreds of women about their lives and their problems.''' ,]
++++

@@ -1,0 +1,8 @@
++++
+author = "Nancy Cartwright"
+title = "Nancy Cartwright Quotes"
+quotes_len = "12"
+description = "the best 12 Nancy Cartwright Quotes"
+keywords = "nancy cartwright,nancy cartwright quotes,nancy cartwright quote,nancy cartwright sayings,nancy cartwright saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''I will not get very far with this attitude.''' ,'''The Good Humor man can only be pushed so far.''' ,'''Remember, you can always find East by staring directly at the sun.''' ,'''The fundamental laws of physics do not describe true facts about reality. Rendered as descriptions of facts, they are false; amended to be true, they lose their explanatory force.''' ,'''Adding 'just kidding' doesn't make it okay to insult the Principal.''' ,'''Cursive writing does not mean what I think it does.''' ,'''I am not authorized to fire substitute teachers.''' ,'''The Pledge of Allegiance does not end with Hail Satan.''' ,'''I didn't do it, nobody saw me do it, there's no way you can prove anything!''' ,'''I will not expose the ignorance of the faculty.''' ,'''Since September 11, security has been increased everywhere, and we have new IDs to get on to the Fox lot. I drove to the security gate, but realized I'd left my ID in my other car. I just broke into that voice - 'Hey, man, I'm Bart Simpson. Who else sounds like this?' The guard waved me through.''' ,'''I don't use the voice of Bart when I'm making love to my husband, but Marge's voice turns him on a little.''' ,]
++++

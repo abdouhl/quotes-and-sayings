@@ -1,0 +1,8 @@
++++
+author = "Mordecai Richler"
+title = "Mordecai Richler Quotes"
+quotes_len = "10"
+description = "the best 10 Mordecai Richler Quotes"
+keywords = "mordecai richler,mordecai richler quotes,mordecai richler quote,mordecai richler sayings,mordecai richler saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''In Canada, nobody is ever overthrown because nobody gives a damn.''' ,'''I obviously prefer writing novels but I take my journalism very seriously, and I enjoy doing it between novels. It gives me an opportunity to move in the outside world.''' ,'''The process hasn't changed, but the writer has developed. I still get up every morning and go to work.''' ,'''We live in the country, and I have a huge library there. When we go to London for the winter I never know which books to take. I never know what I am going to need. That's the only disadvantage.''' ,'''I'm criticized by the feminists, by the Jewish establishment, by Canadian nationalists. And why not? I've had my pot shots at them. I'm fair game.''' ,'''If you're writing a novel, you're in a room for three or four years. There's not much coming in from the outside.''' ,'''Everybody writes a book too many.''' ,'''Coming from Canada, being a writer and Jewish as well, I have impeccable paranoia credentials.''' ,'''Fundamentally, all writing is about the same thing; it's about dying, about the brief flicker of time we have here, and the frustration that it creates.''' ,'''Some of the attitudes of Barney are certainly attitudes I share, but not all.''' ,]
++++

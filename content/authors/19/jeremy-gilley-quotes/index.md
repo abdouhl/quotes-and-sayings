@@ -1,0 +1,8 @@
++++
+author = "Jeremy Gilley"
+title = "Jeremy Gilley Quotes"
+quotes_len = "8"
+description = "the best 8 Jeremy Gilley Quotes"
+keywords = "jeremy gilley,jeremy gilley quotes,jeremy gilley quote,jeremy gilley sayings,jeremy gilley saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''When it comes to the fundamental issues that humanity faces, I think that solutions involve shifting consciousness towards cooperation.''' ,'''World Peace Day is envisioned to become a moment of global unity - it is up to each and every one of us to make this a reality.''' ,'''When I was younger, I read a book by Frank Barnaby, this wonderful nuclear physicist - he said that media had a responsibility, that all sectors of society had a responsibility to try and progress things and move things forward. And that fascinated me, because I'd been messing around with a camera most of my life.''' ,'''We all want a world without war, without conflict, without human suffering.''' ,'''Everything starts with one step, or one brick, or one word or one day.''' ,'''I always thought I was really thick.''' ,'''I think there's a number of pillars to success. One is you've got to have a great idea. The other is you've got to have a constituency, you've got to have finance, and you've got to be able to raise awareness.''' ,'''Together we can decrease the level of violence, raise awareness of our activities and save lives around the world. The impact of a day of global ceasefire and non-violence cannot be underestimated.''' ,]
++++

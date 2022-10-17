@@ -1,0 +1,8 @@
++++
+author = "John Greenleaf Whittier"
+title = "John Greenleaf Whittier Quotes"
+quotes_len = "17"
+description = "the best 17 John Greenleaf Whittier Quotes"
+keywords = "john greenleaf whittier,john greenleaf whittier quotes,john greenleaf whittier quote,john greenleaf whittier sayings,john greenleaf whittier saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''Peace hath higher tests of manhood, than battle ever knew.''' ,'''One brave deed makes no hero.''' ,'''I'll lift you and you lift me, and we'll both ascend together.''' ,'''The smile of God is victory.''' ,'''You don't always win your battles, but it's good to know you fought.''' ,'''From the death of the old the new proceeds, and the life of truth from the death of creeds.''' ,'''As a small businessperson, you have no greater leverage than the truth.''' ,'''The best of a book is not the thought which it contains, but the thought which it suggests; just as the charm of music dwells not in the tones but in the echoes of our hearts.''' ,'''For all sad words of tongue and pen, The saddest are these, 'It might have been'.''' ,'''Give fools their gold, and knaves their power; let fortune's bubbles rise and fall; who sows a field, or trains a flower, or plants a tree, is more than all.''' ,'''Tradition wears a snowy beard, romance is always young.''' ,'''Beauty seen is never lost, God's colors all are fast.''' ,'''Before me, even as behind, God is, and all is well.''' ,'''All the windows of my heart I open to the day.''' ,'''It is no use trying to sum people up. One must follow hints, not exactly what is said, nor yet entirely what is done.''' ,'''When faith is lost, when honor dies, the man is dead.''' ,'''God's colors all are fast.''' ,]
++++

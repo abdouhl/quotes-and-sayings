@@ -1,0 +1,8 @@
++++
+author = "Juvenal"
+title = "Juvenal Quotes"
+quotes_len = "17"
+description = "the best 17 Juvenal Quotes"
+keywords = "juvenal,juvenal quotes,juvenal quote,juvenal sayings,juvenal saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''The traveller with empty pockets will sing in the thief 's face.''' ,'''One globe seemed all too small for the youthful Alexander.''' ,'''Rare is the union of beauty and purity.''' ,'''It is difficult not to write satire.''' ,'''Our virtues are most frequently but vices disguised.''' ,'''It is not easy for men to rise whose qualities are thwarted by poverty.''' ,'''No one ever became extremely wicked suddenly.''' ,'''No one ever reached the worst of a vice at one leap.''' ,'''For women's tears are but the sweat of eyes.''' ,'''Never does nature say one thing and wisdom another.''' ,'''I wish it, I command it. Let my will take the place of a reason.''' ,'''There is hardly a case in which the dispute was not caused by a woman.''' ,'''All wish to possess knowledge, but few, comparatively speaking, are willing to pay the price.''' ,'''A child is owed the greatest respect; if you have ever have something disgraceful in mind, don't ignore your son's tender years.''' ,'''Censure acquits the raven, but pursues the dove.''' ,'''This is his first punishment, that by the verdict of his own heart no guilty man is acquitted.''' ,'''Many individuals have, like uncut diamonds, shining qualities beneath a rough exterior.''' ,]
++++

@@ -1,0 +1,8 @@
++++
+author = "James Langevin"
+title = "James Langevin Quotes"
+quotes_len = "9"
+description = "the best 9 James Langevin Quotes"
+keywords = "james langevin,james langevin quotes,james langevin quote,james langevin sayings,james langevin saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''My work in government has flowed from the fundamental idea of personal empowerment. It's about giving people the tools they need to pave their own way.''' ,'''I don't want someone else to go through and live through the life that I have had to live through in terms of the challenges that I face.''' ,'''To me, that's the role of government: not to give people a hand out, but a hand up... giving people the tools to pave their own way to success.''' ,'''More guns are not the answer to keeping our kids and our communities safer.''' ,'''I was so affected by the tragic shootings that took place in Newtown, Connecticut, as we all were.''' ,'''I'd like to see a comprehensive gun control bill brought to the floor, but if we have to do it in several votes, that's fine, too. But give us the vote. Let us make our case to our colleagues on the floor and have a vote.''' ,'''Growing up in Rhode Island, I dreamed of a career in law enforcement. That hasn't worked out exactly as I had planned, but life seldom does.''' ,'''I am fortunate to have access to an array support and services, and I certainly could not do my job without them. But sadly, not everyone has access to the same resources.''' ,'''My accident happened in what should have been one of the safest places to be: in a police station, at the hands of trained police officers. So more guns are not the answer.''' ,]
++++

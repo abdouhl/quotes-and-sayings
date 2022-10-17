@@ -1,0 +1,8 @@
++++
+author = "Kenny Ortega"
+title = "Kenny Ortega Quotes"
+quotes_len = "9"
+description = "the best 9 Kenny Ortega Quotes"
+keywords = "kenny ortega,kenny ortega quotes,kenny ortega quote,kenny ortega sayings,kenny ortega saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''I like to know who I'm working with, and it's important because they've got to be able to bring something to the party.''' ,'''To want to be an actor is enough - you don't need to tell us about it. The interesting person who comes with some life experience is always the person who is going to be chosen by me.''' ,'''Patrick Swayze reminded me a lot of Gene Kelly. Patrick had that Everyman quality. Gene made dancing sort of an accessible idea for the regular guy out there.''' ,'''There's an old Fred Astaire movie where the stage becomes bigger and deeper and more complex. Moments like that really did impact on me and influence me.''' ,'''Whenever you went into any place where there was Michael Jackson footage at Sony, it was like going through Homeland Security.''' ,'''If you're a young person who wants to become an actor, it's really important to walk into a casting room with a sense of yourself and some life experience. You can really delight a room and have them already choose you before you've even said a word!''' ,'''I grew up in a wonderful blend of a lot of old culture.''' ,'''I was working in theater, so I didn't get to go to my prom.''' ,'''I felt Michael Jackson was inspired a little bit more from the elegance of a Fred Astaire. Michael loved Sammy Davis, Jr. and James Brown and Judy Garland and Fred Astaire. But he wasn't any of those people. To be inspired is one thing, but he made it all his own.''' ,]
++++

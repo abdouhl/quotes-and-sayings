@@ -1,0 +1,8 @@
++++
+author = "Matthew Yglesias"
+title = "Matthew Yglesias Quotes"
+quotes_len = "8"
+description = "the best 8 Matthew Yglesias Quotes"
+keywords = "matthew yglesias,matthew yglesias quotes,matthew yglesias quote,matthew yglesias sayings,matthew yglesias saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''A normal recession disrupts people's lives, but a long recession destroys them. You lose output, prosperity, family stability, self-esteem, and many other qualities on what looks to be a semi-permanent basis.''' ,'''I'm against government-subsidized parking and government-mandated parking.''' ,'''Your time as a manager is finite and valuable.''' ,'''I'm trying to inform people, so I try to present them with accurate information.''' ,'''The environmental movement's focus on the Keystone XL pipeline issue really used to baffle me.''' ,'''I'm a liberal - I believe in subsidies for public goods and in regulations to curb harmful externalities, but neither of those things exist when it comes to parking.''' ,'''The United States Postal Service has a problem. People aren't sending as much mail as they used to. That means less postage revenue and difficulty paying the bills.''' ,'''It's rare that you have a policy issue that can be solved by throwing more money at the problem, but the technology to make bus service more frequent and equip buses with GPS systems that provide real-time schedule updates to bus stops exists and operates in many parts of the world. We should be installing it in our major cities.''' ,]
++++

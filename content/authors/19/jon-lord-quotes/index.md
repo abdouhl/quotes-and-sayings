@@ -1,0 +1,8 @@
++++
+author = "Jon Lord"
+title = "Jon Lord Quotes"
+quotes_len = "7"
+description = "the best 7 Jon Lord Quotes"
+keywords = "jon lord,jon lord quotes,jon lord quote,jon lord sayings,jon lord saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''At the moment we're trying to keep what we've learnt. Because we learnt a terrific amount with 'Deep Purple In Rock,' it took six months to make that album: we think it paid off, really. I can honestly say that it's the first album we've been 100 percent satisfied with; it gave us a hell of a lot of confidence.''' ,'''Working against a restriction - for me - often produces greater things than getting rid of all boundaries.''' ,'''I love classical music; I love the way it's worked... all those chord sequences so I often use that sort of effect in my solos.''' ,'''I would like all my friends, followers, fans and fellow travelers to know that I am fighting cancer and will therefore be taking a break from performing while getting the treatment and cure. I shall of course be continuing to write music - in my world it just has to be part of the therapy - and I fully expect to be back in good shape next year.''' ,'''Deep Purple is a damn good band and we've made a niche in rock 'n' roll history. Maybe not a huge one but enough to be very proud of.''' ,'''Free form jazz means absolutely nothing to me. Because there are no boundaries.''' ,'''I don't think the Bonzo Dog could have evolved in America, nor could the old Nice: because of their musical discipline. This is one thing that British groups do have, a sort of discipline. Sometimes it can get a bit soulless, but on the whole I think it's preferable to the American alternative.''' ,]
++++

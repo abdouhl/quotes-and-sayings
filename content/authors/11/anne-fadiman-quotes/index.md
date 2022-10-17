@@ -1,0 +1,8 @@
++++
+author = "Anne Fadiman"
+title = "Anne Fadiman Quotes"
+quotes_len = "6"
+description = "the best 6 Anne Fadiman Quotes"
+keywords = "anne fadiman,anne fadiman quotes,anne fadiman quote,anne fadiman sayings,anne fadiman saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''I would like to attribute my range of interests to being an independent intellectual, but although I'm independent, I'm not sure I qualify as an intellectual. Basically, I'm an old-fashioned amateur.''' ,'''I am very grateful to the electronic world for making my life easier, but there is something about holding a book - the smell and the world of association. Even when e-books are perfected, as they surely will be, it will be like being in bed with a very well-made robot rather than a warm, soft, human being whom you love.''' ,'''The most important thing when starting out with essay writing is to find a voice with which you're comfortable. You need to find a persona that is very much like you, but slightly caricatured.''' ,'''The problem with the literary hothouse of New York City is that people spend so much time looking in the mirror. They go to parties with people who are just like them, and they write novels about people who are just like them. It's limiting.''' ,'''For me, literature is a way of enlarging myself by learning about people who are not like me.''' ,'''I always wanted to be a writer, and I did want to be a novelist. In college I took a couple of classes that taught me I would never be a novelist. I discovered I had no imagination. My short stories were always thinly veiled memoir.''' ,]
++++

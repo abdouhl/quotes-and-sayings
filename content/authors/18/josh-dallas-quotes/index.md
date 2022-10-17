@@ -1,0 +1,8 @@
++++
+author = "Josh Dallas"
+title = "Josh Dallas Quotes"
+quotes_len = "11"
+description = "the best 11 Josh Dallas Quotes"
+keywords = "josh dallas,josh dallas quotes,josh dallas quote,josh dallas sayings,josh dallas saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''I did a lot of musicals when I first started my career, so I can carry a tune well.''' ,'''To work with Ken Branagh was amazing; it was always a dream of mine to work with a man as creative and talented as that.''' ,'''I trained as an actor in London and went to Mountview Conservatory, as it was called then, and lived there for eleven years.''' ,'''If you're lucky enough to work with great actors and creative people, they're always just going to be who they are, so I don't think there's a difference between the Brits and the Americans.''' ,'''People ask what it's like playing Prince Charming, but it's not something you really think about when you go to work.''' ,'''British acting is undoubtedly based in text, and American acting relies more on behavior. That's speaking very generally.''' ,'''I think falling in love is always a surprise, right?''' ,'''I was involved with my theater program in high school, and I was involved in a festival where I could audition for a lot of different schools.''' ,'''It's weird to have people just calling me Prince Charming in the street. It's a lot of pressure to walk around sometimes.''' ,'''I look for fun and smarts - a witty, strong sexy woman.''' ,'''It's always a great day going to work with Ginnifer Goodwin; she's a fantastic actress and I learn so much from her.''' ,]
++++

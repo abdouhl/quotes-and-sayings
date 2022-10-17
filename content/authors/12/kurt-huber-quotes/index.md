@@ -1,0 +1,8 @@
++++
+author = "Kurt Huber"
+title = "Kurt Huber Quotes"
+quotes_len = "7"
+description = "the best 7 Kurt Huber Quotes"
+keywords = "kurt huber,kurt huber quotes,kurt huber quote,kurt huber sayings,kurt huber saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''A state that suppresses all freedom of speech, and which by imposing the most terrible punishments, treats each and every attempt at criticism, however morally justified, and every suggestion for improvement as plotting to high treason, is a state that breaks an unwritten law.''' ,'''There is a point at which the law becomes immoral and unethical. That point is reached when it becomes a cloak for the cowardice that dares not stand up against blatant violations of justice.''' ,'''As a German citizen, as a German professor, and as a political person, I hold it to be not only my right but also my moral duty to take part in the shaping of our German destiny, to expose and oppose obvious wrongs.''' ,'''What I intended to accomplish was to rouse the student body, not by means of an organization, but solely by my simple words; to urge them, not to violence, but to moral insight into the existing serious deficiencies of our political system.''' ,'''I hope to God that the inner strength that will vindicate my deeds will in good time spring forth from my own people. I have done as I had to on the prompting of my inner voice.''' ,'''In spite of everything, I still believe that people are truly good at heart.''' ,'''You have stripped from me the rank and privileges of the professorship and the doctoral degree which I earned, and you have set me at the level of the lowest criminal.''' ,]
++++

@@ -1,0 +1,8 @@
++++
+author = "Julie Gonzalo"
+title = "Julie Gonzalo Quotes"
+quotes_len = "12"
+description = "the best 12 Julie Gonzalo Quotes"
+keywords = "julie gonzalo,julie gonzalo quotes,julie gonzalo quote,julie gonzalo sayings,julie gonzalo saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''I admire a lot of Spanish filmmakers and actors. I grew up watching a lot of Spanish films and novellas, and there's just so much talent out there.''' ,'''I do a chimichurri sauce with garlic, parsley, olive oil, and red and black pepper. You just mince the garlic and the parsley and mix it all together. Brush a little of that on a steak and it kicks it up, like, 10 notches.''' ,'''I hope to get my name out there more in the Spanish-language business side of the world.''' ,'''It would be a dream to do a film with Pedro Almodovar and that whole crew of Spaniards. There's this Argentinian actor who's one of my favorite actors in the whole wide world. His name is Ricardo Darin, and he's a brilliant actor. He does a lot of Argentinian films, and I know he does a lot of European films, as a Spanish actor.''' ,'''I'm very passionate in life, and I'm very determined.''' ,'''To be honest, I've never been a huge fan of American soap operas. I grew up Spanish, so I grew up watching a lot of novellas.''' ,'''I am very picky about my food, and I'm very healthy-oriented, so I always try to cook.''' ,'''Dallas is a huge city. Great shopping, great restaurants, great museums.''' ,'''I consider myself to be a very strong, independent woman.''' ,'''I am very picky about my food, and I'm very health oriented, so I always try to cook.''' ,'''I'm not a big fan of remakes. I never wanted to do a remake.''' ,'''I grew up Spanish, so I grew up watching a lot of novellas.''' ,]
++++

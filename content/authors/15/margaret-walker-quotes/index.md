@@ -1,0 +1,8 @@
++++
+author = "Margaret Walker"
+title = "Margaret Walker Quotes"
+quotes_len = "8"
+description = "the best 8 Margaret Walker Quotes"
+keywords = "margaret walker,margaret walker quotes,margaret walker quote,margaret walker sayings,margaret walker saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''I want my careless song to strike no minor key; no fiend to stand between my body's Southern song - the fusion of the South, my body's song and me.''' ,'''My grandmothers are full of memories, smelling of soap and onions and wet clay, with veins rolling roughly over quick hands, they have many clean words to say, my grandmothers were strong.''' ,'''Friends and good manners will carry you where money won't go.''' ,'''The poetry of a people comes from the deep recesses of the unconscious, the irrational and the collective body of our ancestral memories.''' ,'''Now when you hates you shrinks up inside and gets littler and you squeezes your heart tight and you stays so mad with peoples you feels sick all the time like you needs the doctor.''' ,'''When I was about eight, I decided that the most wonderful thing, next to a human being, was a book.''' ,'''The Word of fire burns today On the lips of our prophets in an evil age.''' ,'''Let a new earth rise. Let another world be born. Let a bloody peace be written in the sky. Let a second generation full of courage issue forth; let a people loving freedom come to growth.''' ,]
++++

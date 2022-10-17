@@ -1,0 +1,8 @@
++++
+author = "Karen Carpenter"
+title = "Karen Carpenter Quotes"
+quotes_len = "10"
+description = "the best 10 Karen Carpenter Quotes"
+keywords = "karen carpenter,karen carpenter quotes,karen carpenter quote,karen carpenter sayings,karen carpenter saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''I feel like the health industry is getting nothing but stronger every day.''' ,'''I'm determined to be contented, and having plenty of money from working makes it easier for me.''' ,'''Not enough people in this world are happy.''' ,'''The image we have would be impossible for Mickey Mouse to maintain. We're just... normal people.''' ,'''I'm just afraid I'm gonna miss it all... being married... being a mother.''' ,'''I enjoy money. Not enough people in this world are happy. I'm determined to be contented, and having plenty of money from working makes it easier for me.''' ,'''I enjoy money.''' ,'''I have a harder time finding somebody. The problem is we were growing professionally during the years most people were concentrating on being a person.''' ,'''It's kinda nice to be remembered by your peers and your fans, because you can achieve a lot of success and be a creep too! But we try to be nice, just normal people.''' ,'''People never think of entertainers as being human. When you walk out on stage, the audience think, 'Nothing can go wrong with them.' We get sick and we have headaches just like they do. When we are cut, we bleed.''' ,]
++++

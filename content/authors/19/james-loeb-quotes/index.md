@@ -1,0 +1,8 @@
++++
+author = "James Loeb"
+title = "James Loeb Quotes"
+quotes_len = "6"
+description = "the best 6 James Loeb Quotes"
+keywords = "james loeb,james loeb quotes,james loeb quote,james loeb sayings,james loeb saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''The mechanical and social achievements of our day must not blind our eyes to the fact that, in all that relates to man, his nature and aspirations, we have added little or nothing to what has been so finely said by the great men of old.''' ,'''The day is past when schools could afford to give sufficient time and attention to the teaching of the ancient languages to enable the student to get that enjoyment out of classical literature that made the lives of our grandfathers so rich.''' ,'''Before venturing on so large an undertaking as is involved in the task I had set myself I consulted a number of distinguished scholars as to the desirability of such a series.''' ,'''It has always seemed to me a pity that the young people of our generation should grow up with such scant knowledge of Greek and Latin literature, its wealth and variety, its freshness and its imperishable quality.''' ,'''Wherever modern translations of marked excellence were already in existence efforts were made to secure them for the Library, but in a number of instances copyright could not be obtained.''' ,'''I therefore set to work, and after two and a half years of not inconsiderable labour I now have the privilege and the satisfaction of accompanying the early volumes of the series with this preface.''' ,]
++++

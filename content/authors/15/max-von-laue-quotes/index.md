@@ -1,0 +1,8 @@
++++
+author = "Max Von Laue"
+title = "Max Von Laue Quotes"
+quotes_len = "6"
+description = "the best 6 Max Von Laue Quotes"
+keywords = "max von laue,max von laue quotes,max von laue quote,max von laue sayings,max von laue saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''For in 1900 all electromagnetic radiation of longer wavelengths was already known at least to the extent that one could not seek in it the more striking characteristics of X-rays such as, for example, the strong penetrating power.''' ,'''If diffraction or interference phenomena were to be sought it was therefore necessary, in accordance with the basic principles of wave theory, to select for the test arrangement far smaller decisive dimensions than those employed in corresponding tests with visible light.''' ,'''For both reasons, owing to the thermal motion and to the working together of various wavelengths, factors arise which, in a similar manner to the structural factor, exert some influence upon the brightness of the interference points but not upon their location.''' ,'''For as long as one has no further point of reference, apart from the position of the maximum, the wavelength thus remains uncertain by an integral factor.''' ,'''There is no doubt that I, also, had long been aware of the problem, i.e. producing X-ray interferences, before the inherent difficulties had finally been surmounted.''' ,'''Notwithstanding these major arguments the wave theory initially did not meet with complete acceptance.''' ,]
++++

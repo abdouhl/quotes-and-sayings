@@ -1,0 +1,8 @@
++++
+author = "Kurt Schrader"
+title = "Kurt Schrader Quotes"
+quotes_len = "6"
+description = "the best 6 Kurt Schrader Quotes"
+keywords = "kurt schrader,kurt schrader quotes,kurt schrader quote,kurt schrader sayings,kurt schrader saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''I'm for fighting a war on terrorism, not a war in Southwest Asia that Alexander the Great couldn't win, the British Empire couldn't win, the Soviet Union couldn't win. That's stupid. It's a waste of resources; a waste of America's best and brightest.''' ,'''At the end of the day, if it looks like you're not going to get paid, you might be willing to compromise to make sure that budget actually comes out. It's not all about your extreme point of view.''' ,'''I'm big on this 'no budget, no pay.' I think that's important. Let's get right at the heart of the issue. Even when I was in the state legislature, the most important function we had was to pass the bloody budget.''' ,'''I am open and willing to work with my colleagues on both sides of the aisle on a variety of appropriate measures we can take to prevent firearms from getting into the wrong hands and mitigate future tragedies.''' ,'''I firmly believe that if members of Congress fail to perform their most basic duty in passing a budget, then they do not deserve to be paid.''' ,'''In the ever-evolving society we live in, it is the responsibility of all of us, as individuals and as Americans, to rid ourselves of this culture of violence.''' ,]
++++

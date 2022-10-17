@@ -1,0 +1,8 @@
++++
+author = "Monica Horan"
+title = "Monica Horan Quotes"
+quotes_len = "12"
+description = "the best 12 Monica Horan Quotes"
+keywords = "monica horan,monica horan quotes,monica horan quote,monica horan sayings,monica horan saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''My favorite line to Phil is, 'You can say the right thing on TV, but why can't you do it in real life?'''' ,'''Children stay in school, and perform better, when arts is part of the curriculum.''' ,'''All of us here in Los Angeles, because we've had some success as a result of our life in the arts, need to get on board with helping L.A. Unified, the public school system, really reach the mandate to make arts part of the Common Core curriculum.''' ,'''We don't own any restaurants, we did once and that's not something we want to do, because then it's work.''' ,'''That's right, I do make good matza ball soup; I don't use a mix; I make it from the actual chicken.''' ,'''Phil is a child of Holocaust survivors.''' ,'''I'm on the best show in television and I get to be home most of the time.''' ,'''I consider myself a glass-half-full kind of girl.''' ,'''I always used to joke that I'm the Tipper Gore of television.''' ,'''I feel a part of it, watching my husband the genius be a genius. So when he does something annoying, I can forgive him much more easily.''' ,'''I wanted to do work that elevated. Otherwise, it's cheap funny. It's dirty funny. It's degrading funny.''' ,'''Our whole family has a similar sense of humor. We get over things by laughing at ourselves.''' ,]
++++

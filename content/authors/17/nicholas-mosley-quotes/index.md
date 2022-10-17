@@ -1,0 +1,8 @@
++++
+author = "Nicholas Mosley"
+title = "Nicholas Mosley Quotes"
+quotes_len = "10"
+description = "the best 10 Nicholas Mosley Quotes"
+keywords = "nicholas mosley,nicholas mosley quotes,nicholas mosley quote,nicholas mosley sayings,nicholas mosley saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''I don't think I've ever read an old book through from start to finish. Not after more than six months after writing it, that is.''' ,'''There is curiously little art concerning the efficacy of reason - perhaps simply because reason is not noticeably efficacious.''' ,'''Not only the style, but the way in which you don't exactly know what on earth has happened or is happening till about page two hundred - then it all becomes apparent in a blinding flash.''' ,'''After these three novels I gave up writing novels for a time; I was dissatisfied with romantic doom, yet didn't see much way around it.''' ,'''It connects with the theologians' point that you can say what God is not, but not (easily) what He is.''' ,'''If they tell the police, the police will find out she was driving, and her career will be put into hell.''' ,'''The mark of a living thing is to be involved in opposites (impossibilities): the living cell that has to be continually adapting itself to stay alive, with its identity.''' ,'''It always strikes me how almost unbelievably bad are the early versions of my novels.''' ,'''To say a poem is absolute is saying nothing, because an ink blot can be absolute. Yet you put into it what you like. So it becomes totally relative.''' ,'''I did not think much what I was writing them for, except that I knew I wanted my next novel to be in some less conventional form than straight narrative.''' ,]
++++

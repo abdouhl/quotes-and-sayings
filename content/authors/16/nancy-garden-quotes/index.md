@@ -1,0 +1,8 @@
++++
+author = "Nancy Garden"
+title = "Nancy Garden Quotes"
+quotes_len = "5"
+description = "the best 5 Nancy Garden Quotes"
+keywords = "nancy garden,nancy garden quotes,nancy garden quote,nancy garden sayings,nancy garden saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''I write for young people because I like them and because I think they are important. Children's books can be mind-stretchers and imagination-ticklers and builders of good taste in a way that adult books cannot, because young people usually come to books with more open minds. It's exciting to be able to contribute to that in a small way.''' ,'''I think kids in every minority need to see people like themselves in books; that's an acknowledgment of their existence on this planet and in this society.''' ,'''My coming out, like most people's, was and is a gradual process - for no matter how out one is, there are always situations when one's with people who don't know, and one has the choice or, sometimes, the necessity of coming out to them.''' ,'''My writing books with positive gay characters has come more out of anger than anything else: anger at not having been able to find honest, accurate books about people like myself as a teen, books that show we're as diverse as straight people and that we can lead happy, healthy, productive lives just as straight people can.''' ,'''When I was growing up as a young lesbian in the '50s, I looked in vain for books about my people. I did find some paperbacks with lurid covers in the local bus station, but they ended with the gay character's committing suicide, dying in a car crash, being sent to a mental hospital, or 'turning' heterosexual.''' ,]
++++

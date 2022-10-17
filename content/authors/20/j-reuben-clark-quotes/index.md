@@ -1,0 +1,8 @@
++++
+author = "J. Reuben Clark"
+title = "J. Reuben Clark Quotes"
+quotes_len = "5"
+description = "the best 5 J. Reuben Clark Quotes"
+keywords = "j. reuben clark,j. reuben clark quotes,j. reuben clark quote,j. reuben clark sayings,j. reuben clark saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''I say to you that the price of liberty is and always has been blood, human blood, and if our liberties are lost, we shall never regain them except at the price of blood. They must not be lost.''' ,'''Reduced to its lowest terms, the great struggle which now rocks the whole earth more and more takes on the character of a struggle of the individual versus the state.''' ,'''May He who holds in his hands the destinies of nations, make you worthy of the favors He has bestowed, and enabled you with pure hearts and hands and sleepless vigilance, to guard and defend to the end of time, the great charge He has committed to your keeping.''' ,'''You have the highest of human trusts committed to your care. Providence has showered on this favored land blessings without number, and has chosen you as the guardians of freedom, to preserve it for the benefit of the human race.''' ,'''It is the union of independence and dependence of these branches - legislative, executive and judicial - and of the governmental functions possessed by each of them, that constitutes the marvellous genius of this unrivalled document.''' ,]
++++

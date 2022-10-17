@@ -1,0 +1,8 @@
++++
+author = "Theodore Parker"
+title = "Theodore Parker Quotes"
+quotes_len = "15"
+description = "the best 15 Theodore Parker Quotes"
+keywords = "theodore parker,theodore parker quotes,theodore parker quote,theodore parker sayings,theodore parker saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''The miser, starving his brother's body, starves also his own soul, and at death shall creep out of his great estate of injustice, poor and naked and miserable.''' ,'''No man is so great as mankind.''' ,'''Politics is the science of urgencies.''' ,'''Let others laugh when you sacrifice desire to duty, if they will. You have time and eternity to rejoice in.''' ,'''Self-denial is indispensable to a strong character, and the highest kind comes from a religious stock.''' ,'''As society advances the standard of poverty rises.''' ,'''The books that help you the most are those which make you think the most.''' ,'''Truth never yet fell dead in the streets; it has such affinity with the soul of man, the seed however broadcast will catch somewhere and produce its hundredfold.''' ,'''Never violate the sacredness of your individual self-respect.''' ,'''Outward judgment often fails, inward judgment never.''' ,'''Remorse is the pain of sin.''' ,'''Wealth and want equally harden the human heart.''' ,'''Humanity is the sin of God.''' ,'''Cities have always been the fireplaces of civilization, whence light and heat radiated out into the dark.''' ,'''It is very sad for a man to make himself servant to a single thing; his manhood all taken out of him by the hydraulic pressure of excessive business.''' ,]
++++

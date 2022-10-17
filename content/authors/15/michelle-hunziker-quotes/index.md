@@ -1,0 +1,8 @@
++++
+author = "Michelle Hunziker"
+title = "Michelle Hunziker Quotes"
+quotes_len = "8"
+description = "the best 8 Michelle Hunziker Quotes"
+keywords = "michelle hunziker,michelle hunziker quotes,michelle hunziker quote,michelle hunziker sayings,michelle hunziker saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''I had the luck that my parents educated me in three languages. With my mother I spoke Dutch, with my father Italian, and in the school I learned German. But my host language is Italian.''' ,'''One says also, it is one of the most faithful men in Hollywood, and makes again more interesting it equal.''' ,'''We look in... Germany for a superstar. We began with 10,000 people, which applied. From these 10,000, 100 was selected. The jury is unbelievably competent.''' ,'''I had hoped that he has mouth smell or something other repelling, but nothing! It was even charming.''' ,'''I have had only two men in four years while he appears every week on the newspapers with another woman.''' ,'''I find it very beautiful to work in different countries because I see the mentality differences there. It is so rich, one always carries forward something.''' ,'''If I go to Germany, I learn something in addition. The German television is very precise and respectable. One has never stress. In Italy it is more dynamic. But I amuse myself madly in both countries.''' ,'''I find that one must accept the people in such a way as they are.''' ,]
++++

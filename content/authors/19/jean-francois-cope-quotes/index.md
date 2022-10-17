@@ -1,0 +1,8 @@
++++
+author = "Jean-Francois Cope"
+title = "Jean-Francois Cope Quotes"
+quotes_len = "9"
+description = "the best 9 Jean-Francois Cope Quotes"
+keywords = "jean-francois cope,jean-francois cope quotes,jean-francois cope quote,jean-francois cope sayings,jean-francois cope saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''People are afraid of everything.''' ,'''There are a certain number of extreme behaviours led by fundamentalists who are using their religion for political ends and use extremist techniques.''' ,'''I have a thought for Nicolas Sarkozy, you know my loyalty on his account, but I profess it too for Jacques Chirac.''' ,'''Antiwhite racism is developing in sections of our cities where individuals - some of whom have French nationality - contemptuously designate French people as gaulois on the pretext they don't share the same religion, color or origins.''' ,'''If you meet a woman in a burqa, she can't reply to your smile. It's a denial of identity.''' ,'''I know I'm breaking a taboo by using the term antiwhite racism, but I do so intentionally, because it's the reality some of our fellow citizens live with, and remaining quiet about it only aggravates their trauma.''' ,'''I invite everyone to chose forgiveness rather than division, teamwork over personal ambition.''' ,'''There has been a banking crisis, a financial crisis, an economic crisis, a social crisis, a geostrategic crisis and an environmental crisis. That's considerable in a country that's used to being protected.''' ,'''There is no winner or loser - just one family, the U.M.P. The time for internal squabbles is behind us.''' ,]
++++

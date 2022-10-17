@@ -1,0 +1,8 @@
++++
+author = "T. Harv Eker"
+title = "T. Harv Eker Quotes"
+quotes_len = "9"
+description = "the best 9 T. Harv Eker Quotes"
+keywords = "t. harv eker,t. harv eker quotes,t. harv eker quote,t. harv eker sayings,t. harv eker saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''The biggest obstacle to wealth is fear. People are afraid to think big, but if you think small, you'll only achieve small things.''' ,'''Now more than ever is the time to really work on learning a money management system that can work, no matter how low things seem right now.''' ,'''You must acquire the habits and skills of managing a small amount of money before you can have a large amount. Remember, we are creatures of habit and, therefore, the habit of managing your money is more important than the amount.''' ,''''Secrets Of The Millionaire Mind' was born out of my own journey of self-discovery within both my personal and professional life.''' ,'''For the rich, it's not about getting more stuff. It's about having the freedom to make almost any decision you want.''' ,'''If you don't have the money management skills yet, using a debit card will ensure you don't overspend and rack up debt on a credit card.''' ,'''Remember, either you control your money or it will control you.''' ,'''The only way to permanently change the temperature in the room is to reset the thermostat. In the same way, the only way to change your level of financial success 'permanently' is to reset your financial thermostat. But it is your choice whether you choose to change.''' ,'''Try paying the bills with love. The idea I am trying to espouse is that you can have both love and money, and be rich and generous.''' ,]
++++

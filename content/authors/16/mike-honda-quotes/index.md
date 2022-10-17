@@ -1,0 +1,8 @@
++++
+author = "Mike Honda"
+title = "Mike Honda Quotes"
+quotes_len = "10"
+description = "the best 10 Mike Honda Quotes"
+keywords = "mike honda,mike honda quotes,mike honda quote,mike honda sayings,mike honda saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''Equal pay isn't just a women's issue; when women get equal pay, their family incomes rise and the whole family benefits.''' ,'''Everyone in America likely has a bullying story, whether as the victim, bully or as a witness.''' ,'''In America, we take care of each other, we support one another, and we look out for our neighbors.''' ,'''The Patriot Act addresses various subjects. Some sections are beneficial and enhance our national security.''' ,'''The need for raising the awareness of this shameful chapter in U.S. history is more apparent than ever.''' ,'''In America, the dreamers, the disabled and the disadvantaged are not left to defend themselves, alone in their struggles.''' ,'''My own family and thousands of other Japanese Americans were interned during World War II. It took our nation over 40 years to apologize.''' ,'''It's amazing to me that, in the 42 years since President Kennedy signed the Equal Pay Act into law, women today still receive fewer wages than men for the same work.''' ,'''The Constitution is never tested during times of tranquility; it is during times of tension, turmoil, tragedy, trauma, and terrorism that it is sorely tested.''' ,'''My own mother always taught me that fairness was a family value - I think equal pay is about fairness for everyone.''' ,]
++++

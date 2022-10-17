@@ -1,0 +1,8 @@
++++
+author = "Jack Harrison"
+title = "Jack Harrison Quotes"
+quotes_len = "8"
+description = "the best 8 Jack Harrison Quotes"
+keywords = "jack harrison,jack harrison quotes,jack harrison quote,jack harrison sayings,jack harrison saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''Everyone dreams of playing in the top leagues in Europe and the Premier League is obviously up there. Growing up in England, it's always been a dream of mine to play in the Prem.''' ,'''I've really enjoyed my time with New York City and I'd like to thank Patrick Vieira and his coaching staff for helping me to develop as a player.''' ,'''Once I wrapped my head around the idea of going and ignored a lot of people that were saying a lot of bad things about going to the US to play football, it was a great decision for me.''' ,'''I've benefitted a lot from coming back to the UK, but mainly playing for a club like Leeds where it is a pressure cooker environment.''' ,'''I don't think I understand the significance yet, as many Americans do, of being in Yankee Stadium. But it's a great place to play. Look around - the stadium is fantastic.''' ,'''You don't get these types of opportunities in England. I have tried different sports, met people from all over the world and have travelled all across the US with football.''' ,'''Football is a small world and you can meet people from all over the world and stay in touch.''' ,'''Obviously, it would be great to represent my country, England, but if the interest is not there, I'd be happy to represent America, and I'd be open to that.''' ,]
++++

@@ -1,0 +1,8 @@
++++
+author = "Kelli Williams"
+title = "Kelli Williams Quotes"
+quotes_len = "7"
+description = "the best 7 Kelli Williams Quotes"
+keywords = "kelli williams,kelli williams quotes,kelli williams quote,kelli williams sayings,kelli williams saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''I had a ton of animals; I had a goat growing up, a bunch of rabbits, a vegetable garden.''' ,'''I love that time when all you want to do is cocoon with your baby in your own little world, when you carry them around all the time in a little pouch or sling.''' ,'''I do prenatal yoga and walk a lot.''' ,'''I'm convinced that I've been hired for jobs because I can cry on cue.''' ,''''The Practice' I was on for seven years and it was a law show, so I really - a lot of objections and things like that, lots of long, long monologues that David Kelly used to write me, which were great. I was really lucky to have my first show go that long.''' ,'''In a first pregnancy, you don't have a child yet, so you can nap and see movies and exercise. The notion of 'baby' is abstract. You look at the ultrasound and don't really understand that the creature you're seeing is soon going to be your roommate.''' ,'''We go to the opening arguments or the closing arguments of a case, and we'd see which actor got the big one. I had a seven-page one once which just about killed me, and I thought, 'Oh, I'm going to get fired, that's it, I can't do it.' It was like a one-act play, and I had a few weeks to learn it, luckily. But it's terrifying.''' ,]
++++

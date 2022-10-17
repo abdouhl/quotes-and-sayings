@@ -1,0 +1,8 @@
++++
+author = "Jimmy Rushing"
+title = "Jimmy Rushing Quotes"
+quotes_len = "10"
+description = "the best 10 Jimmy Rushing Quotes"
+keywords = "jimmy rushing,jimmy rushing quotes,jimmy rushing quote,jimmy rushing sayings,jimmy rushing saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''I'm more relaxed when I can hear the beat clearly all the time I'm singing.''' ,'''It's dangerous to get too far from what they identify you with.''' ,'''The blues tells a story in itself. It can make you happy or give you a feeling to swing.''' ,'''I liked roaming around by myself.''' ,'''There's a difference between the blues of the New Orleans guys and anyone else and the difference is in a chord, but I can't figure the name of it. It's a different chord, and they all make it.''' ,'''When I go in front of an audience, I'll admit I sometimes have a certain amount of fear in me, because maybe the people are not going to accept what I'm doing today. That's bad for any artist, especially if what you're doing is not in line with what's happening today.''' ,'''The blues comes right back to a person's feelings, to his daily activities in life. But rich people don't know nothing about the blues, please believe me.''' ,'''The music business used to carry a certain amount of brotherly love, but it isn't that way now.''' ,'''If I'm going to do blues, it's going to be a typical Jimmy Rushing record.''' ,'''This business switching styles can't be done honestly by one man. As soon as he can play his instrument well, he can express himself, and all his life he has only one self.''' ,]
++++

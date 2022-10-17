@@ -1,0 +1,8 @@
++++
+author = "Manu Bennett"
+title = "Manu Bennett Quotes"
+quotes_len = "10"
+description = "the best 10 Manu Bennett Quotes"
+keywords = "manu bennett,manu bennett quotes,manu bennett quote,manu bennett sayings,manu bennett saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''To me, Darth Vader is the epitome of evil.''' ,'''I've always been really inspired by watching top athletes putting in peak performances.''' ,'''The best physique I ever had was when I was ballet dancing.''' ,'''I lost my mother and my brother when I was 15 in two separate car accidents. I was doing well at school. I was a good sportsperson, but at that point, I gave up on all of those things that were there to be done. I couldn't deal with them.''' ,'''Anyone can train to be a gladiator. What marks you out is having the mindset of a champion.''' ,'''If I see someone doing a new sport, I usually like to throw myself into it, and I never look at it and think, 'That's something I can't do.'''' ,'''The fitness builds the foundation for me as an actor to have clarity. Fitness has always been the base of where I start off as a performer.''' ,'''I was a breakdancer as a kid. I was on one of the top break dancing teams in Australia.''' ,'''The world is slowly evolving into a place where the things that we have seen as being taboo are starting to open up a bit more.''' ,'''Food is the essential thing to gaining weight. Protein, you know, that's basically it - protein.''' ,]
++++

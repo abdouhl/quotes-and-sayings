@@ -1,0 +1,8 @@
++++
+author = "James Mccloughan"
+title = "James Mccloughan Quotes"
+quotes_len = "10"
+description = "the best 10 James Mccloughan Quotes"
+keywords = "james mccloughan,james mccloughan quotes,james mccloughan quote,james mccloughan sayings,james mccloughan saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''This group, DAR, is probably one of the finest groups there is, not only in the State of Michigan but also in the United States of America, and to be recognized by this group here in Kalamazoo, and I believe statewide too, I'm very honored.''' ,'''I held 18, 19, or 20-year-old men in my arms, and I heard their last words, and I saw them take their last breath.''' ,'''My advice to anyone is, have confidence, sit back, wait for the process to happen. And when it does, whatever the good Lord has in mind, he has in mind.''' ,'''Any time I can spend time with my brothers and sisters who fight for this country and fight for freedom, it's a positive thing.''' ,'''As a combat medic, I heard a lot of last words; I saw a lot of last breaths taken.''' ,'''I wasn't going to leave my men, and they were going to protect me.''' ,'''They called me 'Doc.' You know... it's probably one of the best titles I've ever had.''' ,'''I got into the right frame of mind that I will serve my country. I didn't volunteer to do it, but they've asked me, so that's what I'll do.''' ,'''I don't think I was a hero. I was just doing my job.''' ,'''I would have rather been dead and laying on the battlefield dead than to find out later on that one of my men were killed and didn't have me, their medic, to somehow get them out of the danger and into the safety of the perimeter.''' ,]
++++

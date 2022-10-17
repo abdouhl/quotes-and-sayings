@@ -1,0 +1,8 @@
++++
+author = "Teresita Sy-Coson"
+title = "Teresita Sy-Coson Quotes"
+quotes_len = "8"
+description = "the best 8 Teresita Sy-Coson Quotes"
+keywords = "teresita sy-coson,teresita sy-coson quotes,teresita sy-coson quote,teresita sy-coson sayings,teresita sy-coson saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''We grew up in a very demanding environment. Dad expects us to prove ourselves... so my siblings and I worked hard to reach what we have today, and I guess we have to continue working hard to maintain it.''' ,'''I learned by example. ...As a kid you think you are just the same as other adults.''' ,'''I was just born into a business family. It is really a destiny.''' ,'''In the Philippines, we don't have that much of a problem. There's not much difference between the men and the women. In our business, we always have a good mixture of the men and the women.''' ,'''I was always told I had to be an example to my siblings. I was told to toe the line. So I had to behave.''' ,'''Sometimes, of course, I could not belong to the boys club, but that's OK. There are always ways to do what I wanted to do. It doesn't really matter so much to me.''' ,'''For the men, they are more of a risk taker, and for the women, they are more nurturing and more details. So the combination of the men and women is very good for business.''' ,'''I belong to a family where I think we're all fairly treated, boys or girls. Although I have to work doubly hard just to be able to be recognised. That meant long hours, but the hard work paid off.''' ,]
++++

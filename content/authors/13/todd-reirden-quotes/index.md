@@ -1,0 +1,8 @@
++++
+author = "Todd Reirden"
+title = "Todd Reirden Quotes"
+quotes_len = "8"
+description = "the best 8 Todd Reirden Quotes"
+keywords = "todd reirden,todd reirden quotes,todd reirden quote,todd reirden sayings,todd reirden saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''You can't a put a value on experience and going through things.''' ,'''We break down every element of the game, shift by shift and within the shift. And maybe sometimes we are over-the-top on that, but love our detail on the staff and how we do things.''' ,'''Every day, I'm journaling and making sure things I do wrong I change or try to fix and make better and things I do right I continue to do those more often.''' ,'''What I need to remember is that there are a lot worse days out there for other people, and I'm living a dream that I had. Regardless of whether it goes well or it doesn't, I'm living a dream, and my family is right there with me.''' ,'''I am confident that I am a young coach that continues to improve and continues to get better and have been able to find success in the regular season and haven't been able to find it in two completely different circumstances in the playoffs.''' ,'''One of my strengths is being able to relate to all different types of players, and I think that the players know that I make the effort.''' ,'''For some reason, I never get sick. I don't know why, but I just don't. I have never missed a day of work or practice.''' ,'''When you don't come up on the winning end of it, it is disappointing and you have to look at why that has happened.''' ,]
++++

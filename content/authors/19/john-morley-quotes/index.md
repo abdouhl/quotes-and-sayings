@@ -1,0 +1,8 @@
++++
+author = "John Morley"
+title = "John Morley Quotes"
+quotes_len = "15"
+description = "the best 15 John Morley Quotes"
+keywords = "john morley,john morley quotes,john morley quote,john morley sayings,john morley saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''No man can climb out beyond the limitations of his own character.''' ,'''Evolution is not a force but a process. Not a cause but a law.''' ,'''A proverb is good sense brought to a point.''' ,'''They act as if they supposed that to be very sanguine about the general improvement of mankind is a virtue that relieves them from taking trouble about any improvement in particular.''' ,'''They are the guiding oracles which man has found out for himself in that great business of ours, of learning how to be, to do, to do without, and to depart.''' ,'''The great business of life is to be, to do, to do without and to depart.''' ,'''Where it is a duty to worship the sun it is pretty sure to be a crime to examine the laws of heat.''' ,'''Literature, the most seductive, the most deceiving, the most dangerous of professions.''' ,'''Even good opinions are worth very little unless we hold them in the broad, intelligent, and spacious way.''' ,'''You cannot demonstrate an emotion or prove an aspiration.''' ,'''A great interpreter of life ought not himself to need interpretation.''' ,'''You have not converted a man because you have silenced him.''' ,'''He who hates vice hates men.''' ,'''Politics is a field where the choice lies constantly between two blunders.''' ,'''In politics the choice is constantly between two evils.''' ,]
++++

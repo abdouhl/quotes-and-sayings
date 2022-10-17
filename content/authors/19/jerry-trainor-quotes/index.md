@@ -1,0 +1,8 @@
++++
+author = "Jerry Trainor"
+title = "Jerry Trainor Quotes"
+quotes_len = "5"
+description = "the best 5 Jerry Trainor Quotes"
+keywords = "jerry trainor,jerry trainor quotes,jerry trainor quote,jerry trainor sayings,jerry trainor saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''I would love to do a small indie comedy, like a Wes Anderson movie or, like, an ensemble comedy like 'The Royal Tenenbaums' or 'Little Miss Sunshine.' I like comedies like that, that have a lot of heart and are about family dynamics.''' ,'''I think my fans would probably be surprised to know I'm not insane - I'm not a crazy person in real life. I'm a pretty low-key dude. I like chilling at home and playing with my dog.''' ,'''I definitely knew I wanted to be an actor in high school. I was doing plays and musicals, and I loved 'Saturday Night Live' and thought that was what I wanted to do - funny sketches and comedies. So I knew then, but I didn't know how to go about it, but I found my way.''' ,'''It was hard saying goodbye to the 'iCarly' family just because we have become such a family, but I do get to see them all the time, and I stay in touch with them.''' ,'''That's not part of me that I have to do something dark to prove to people that I'm an actor. The fuel for me is the laugh. Maybe later I'll want to show people the darker side... But right now, I'm having too much fan making people laugh. And it really makes me feel good.''' ,]
++++

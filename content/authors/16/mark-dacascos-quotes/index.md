@@ -1,0 +1,8 @@
++++
+author = "Mark Dacascos"
+title = "Mark Dacascos Quotes"
+quotes_len = "6"
+description = "the best 6 Mark Dacascos Quotes"
+keywords = "mark dacascos,mark dacascos quotes,mark dacascos quote,mark dacascos sayings,mark dacascos saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''I do feel I'm being respectful to Buddhism and martial arts with 'Mortal Kombat.'''' ,'''My father is Chinese, Spanish, and Filipino; my mother is half-Irish and half-Japanese; Greek last name; born in Hawaii, raised in Germany.''' ,'''I consider myself a martial artist and an actor. They can work together or individually. I love to do action. I love having a good role in which I can act and fight. That's double happiness.''' ,'''A good choreographer is one that's going to collaborate, teach, guide - everything. The wonderful thing on 'Brotherhood of the Wolf' was that we had Philip Kwok - he choreographed John Woo's 'Hard Boiled,' and in the '70s, he was a martial arts actor, stunt man, fighter, choreographer in Hong Kong.''' ,'''I try to stay away from stuff that's just action, action, action, action, action, and you kind of fast-forward through the dialogue scenes. I'm not interested in doing that. Give me a reason to fight, and I'll go there. But don't just make it, 'You touched my pen! Haaa-yah!' I've done that before.''' ,'''The thing with 'Mortal Kombat' is we really deal with that: What is the right thing to do? When somebody does something bad, do you, then, in your mind, rectify the situation by doing something bad to them?''' ,]
++++

@@ -1,0 +1,8 @@
++++
+author = "Janos Kadar"
+title = "Janos Kadar Quotes"
+quotes_len = "7"
+description = "the best 7 Janos Kadar Quotes"
+keywords = "janos kadar,janos kadar quotes,janos kadar quote,janos kadar sayings,janos kadar saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''Those who joined us for selfish personal reasons, for a career or other motives will be the ones to leave.''' ,'''Bad leadership during the past years has cast on our Party the shadow of great and grave burdens.''' ,'''In these momentous hours of our history we call on every Hungarian worker who is led by devotion to the people and the country to join our Party, the name of which is the Hungarian Socialist Workers Party.''' ,'''I ask every Communist individually to set an example, by deeds and without pretense, a real example worthy of a man and a Communist, in restoring order, starting normal life, in resuming work and production, and in laying the foundations of an ordered life.''' ,'''I address myself to the Communists, to those Communists who were prompted to join the Party by the progressive ideas of mankind and socialism, and not by selfish personal interests - let us represent our pure and just ideas by pure and just means.''' ,'''Only with the honour thus acquired can we earn the respect of our other compatriots as well.''' ,'''It is only with burning anger that we can speak of this attack by counter-revolutionary reactionary elements against the capital of our country, against our people's democratic order and the power of the working class.''' ,]
++++

@@ -1,0 +1,8 @@
++++
+author = "Maripol"
+title = "Maripol Quotes"
+quotes_len = "9"
+description = "the best 9 Maripol Quotes"
+keywords = "maripol,maripol quotes,maripol quote,maripol sayings,maripol saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''I did go bankrupt because everybody copied me - every single industry. But genuinely, it doesn't matter. I swear I don't care.''' ,'''When I came to America, there was a lot of decadence in New York in the early '70s because the city was bankrupt and you could do whatever you want!''' ,'''Madonna had to break through; I knew she was going to make it big, because I could see how ambitious she was, in a very genuine and sweet way.''' ,'''At the beginning, Edo was a photographer, and I was more of a talent scout and doing styling and modelling. Then all of a sudden, in 1977, he gave me a Polaroid camera, and I discovered that instead of having to go to a lab and develop the film, I could just take a click and get a picture! It was genius, and I was very good at manipulating it.''' ,'''I would say there's always a movement of music and fashion in youth culture - every decade inspires the new one.''' ,'''When I was a child, I lived in Morocco, and I would always buy a lot of beads from the markets and to make jewellery for friends. Later, at 18, I would do my own clothes and make my own patterns. When I first came to New York, people just assumed I was a stylist because I was so into fashion.''' ,'''I became a freelance stylist to survive, and then I had a kid. I bankrupted in 1988 and had a kid in 1990.''' ,'''I think Madonna might have a multiple personality.''' ,'''Madonna and I worked very closely. I was more like the big sister to her.''' ,]
++++

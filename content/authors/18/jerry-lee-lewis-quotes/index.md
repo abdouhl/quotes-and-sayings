@@ -1,0 +1,8 @@
++++
+author = "Jerry Lee Lewis"
+title = "Jerry Lee Lewis Quotes"
+quotes_len = "12"
+description = "the best 12 Jerry Lee Lewis Quotes"
+keywords = "jerry lee lewis,jerry lee lewis quotes,jerry lee lewis quote,jerry lee lewis sayings,jerry lee lewis saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''When they look back on me I want 'em to remember me not for all my wives, although I've had a few, and certainly not for any mansions or high livin' money I made and spent. I want 'em to remember me simply for my music.''' ,'''I never set fire to a piano. I'd like to have got away with it, though. I pushed a couple of them in the river. They wasn't any good.''' ,'''If I'm going to Hell, I'm going there playing the piano.''' ,'''Y'know, there's nothin' like tearing up a good club now and then.''' ,'''Hippies? Why, I'm the original.''' ,'''Either be hot or cold. If you are lukewarm, the Lord will spew you forth from His mouth.''' ,'''I work to please my audience.''' ,'''I've learned to be one of the hardheadedest cats in the world. I've learned that.''' ,'''Other people - they practice and they practice... these fingers of mine, they got brains in 'em. You don't tell them what to do - they do it. God given talent.''' ,'''Normally, things are viewed in these little segmented boxes. There's classical, and then there's jazz; romantic, and then there's baroque. I find that very dissatisfying. I was trying to find the thread that connects one type of music - one type of musician - to another, and to follow that thread in some kind of natural, evolutionary way.''' ,'''I've always showed up. If I got paid.''' ,'''You've got to walk and talk with God to go to heaven... I have the devil in me! If I didn't have, I'd be Christian!''' ,]
++++

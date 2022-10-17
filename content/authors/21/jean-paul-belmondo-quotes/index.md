@@ -1,0 +1,8 @@
++++
+author = "Jean-Paul Belmondo"
+title = "Jean-Paul Belmondo Quotes"
+quotes_len = "14"
+description = "the best 14 Jean-Paul Belmondo Quotes"
+keywords = "jean-paul belmondo,jean-paul belmondo quotes,jean-paul belmondo quote,jean-paul belmondo sayings,jean-paul belmondo saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''I love the sun.''' ,'''When you're in a play like 'Kean,' you can't think of anything else. Love is too time-consuming.''' ,'''I insist on doing all my own film stunts, although they are often worked out in advance by a stunt man who then advises me on the best and safest method of performing it.''' ,'''After the liberation of France, I went to the movies all ihe time.''' ,'''Preparing for a stunt is like training for a sporting event.''' ,'''I would say I've done everything I wanted to.''' ,'''I had fun doing both types of roles. Both are good. One day you laugh, and the next day you cry. That's how it is.''' ,'''The actors I admired were Bogart, Cagney, Cooper, Tracy. Great personalities. Real stars.''' ,'''I've always liked to keep trim, and fortunately, I don't put on weight easily.''' ,'''No one manipulates me.''' ,'''It's terrible, a crutch, isn't it?''' ,'''The big French movie distributors are the Trojan horse of the American cinema.''' ,'''I hope to be an example for all. I hope.''' ,'''Not only do the Americans not defend our films, they buy them up just for remakes. It is shameful to kneel at their feet.''' ,]
++++

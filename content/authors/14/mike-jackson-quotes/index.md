@@ -1,0 +1,8 @@
++++
+author = "Mike Jackson"
+title = "Mike Jackson Quotes"
+quotes_len = "13"
+description = "the best 13 Mike Jackson Quotes"
+keywords = "mike jackson,mike jackson quotes,mike jackson quote,mike jackson sayings,mike jackson saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''Soldiering is a very important profession, is it not?''' ,'''You cannot expect soldiers to change people's minds. That has to be done in other ways.''' ,'''Nations, not least America, retain full command of their national forces.''' ,'''Not much over £1,000 a month for the private soldier on operations is hardly an impressive figure.''' ,'''Everything starts and finishes with the soldier.''' ,'''If you move between battalions, you are still within the same tribe.''' ,'''Intervention continues to be a prominent dimension of the post-cold war world.''' ,'''The Russians are a very sentimental people.''' ,'''I understand all the problems for the Ministry of Defence, of course I do; working within a budget and trying to do so many things is not easy.''' ,'''Well, the U.N. Security Council resolution 1973 is very clear. It says all necessary measures to be taken to protect civilians and civilian areas. I mean, that to me is very clear.''' ,'''Military operations cannot be tidy or free of friction - particularly in a coalition whose contributing nations see the campaign through national prisms.''' ,'''It is absolutely bedrock to the British Army's philosophy that a commanding officer is responsible for what goes on within his command.''' ,'''Missing your lunch is not exactly the end of the world.''' ,]
++++

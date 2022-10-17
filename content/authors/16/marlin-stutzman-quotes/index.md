@@ -1,0 +1,8 @@
++++
+author = "Marlin Stutzman"
+title = "Marlin Stutzman Quotes"
+quotes_len = "7"
+description = "the best 7 Marlin Stutzman Quotes"
+keywords = "marlin stutzman,marlin stutzman quotes,marlin stutzman quote,marlin stutzman sayings,marlin stutzman saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''Either we start cutting the government and shrinking the size of government, or else we're going to face the political wrath of the American people.''' ,'''The mentality in Washington is, 'Look what our government - what our government can do for the American people.' We've got to get away from that mentality, and realize it's too expensive. We can't afford it.''' ,'''Farm policy and food stamp policy should not be mixed. They should stand on their own merits.''' ,'''I think that's one thing that, you know, we all need to remember is that, you know, politics, even though it's been really rough, is that we are all human beings first. And that it is more important for us to have civil dialogue. And you know what? I'm conservative, but I'm not mad about it.''' ,'''We've got to start worrying about America. And if we don't start dealing with the debt we have and the deficit spending we have in Washington, politics doesn't matter, because the American people do realize that they have to balance their budgets.''' ,'''I grew up on a farm. I didn't have health insurance until I was 24 years old. So, I didn't even know I was poor until the government told me I was poor.''' ,'''Obamacare is a perfect tool to crush free enterprise and force all Americans into a socialist health care system.''' ,]
++++

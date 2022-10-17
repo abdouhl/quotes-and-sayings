@@ -1,0 +1,8 @@
++++
+author = "Margaret Halsey"
+title = "Margaret Halsey Quotes"
+quotes_len = "9"
+description = "the best 9 Margaret Halsey Quotes"
+keywords = "margaret halsey,margaret halsey quotes,margaret halsey quote,margaret halsey sayings,margaret halsey saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''In some circumstances, the refusal to be defeated is a refusal to be educated.''' ,'''I was well warned about English food, so it did not surprise me, but I do wonder sometimes, how they ever manage to prise it up long enough to get a plate under it.''' ,'''Bulldogs have been known to fall on their swords when confronted by my superior tenacity.''' ,'''He has the common feeling of his profession. He enjoys a statement twice as much if it appears in fine print, and anything that turns up in a footnote... takes on the character of divine revelation.''' ,'''Humility is not my forte, and whenever I dwell for any length of time on my own shortcomings, they gradually begin to seem mild, harmless, rather engaging little things, not at all like the staring defects in other people's characters.''' ,'''Some persons talk simply because they think sound is more manageable than silence.''' ,'''The English never smash in a face. They merely refrain from asking it to dinner.''' ,'''The role of a do-gooder is not what actors call a fat part.''' ,'''Whenever I dwell for any length of time on my own shortcomings, they gradually begin to seem mild, harmless, rather engaging little things, not at all like the staring defects in other people's characters.''' ,]
++++

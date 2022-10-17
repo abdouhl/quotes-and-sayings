@@ -1,0 +1,8 @@
++++
+author = "Nomar Garciaparra"
+title = "Nomar Garciaparra Quotes"
+quotes_len = "10"
+description = "the best 10 Nomar Garciaparra Quotes"
+keywords = "nomar garciaparra,nomar garciaparra quotes,nomar garciaparra quote,nomar garciaparra sayings,nomar garciaparra saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''Back then, my idol was Bugs Bunny, because I saw a cartoon of him playing ball - you know, the one where he plays every position himself with nobody else on the field but him? Now that I think of it, Bugs is still my idol. You have to love a ballplayer like that.''' ,'''You know it as soon as you walk in Yankee Stadium. The electricity is there every time, every day.''' ,'''My inspiration was the game itself, not any individual player in it.''' ,'''It's great that fans have people they can enjoy and watch play.''' ,'''That's basically what I'm doing when I'm tapping them - getting my toes to the end of my shoes.''' ,'''People expect you to play your best, so I go through a routine to prepare myself so that I know I'm physically and mentally ready - prepared for the game.''' ,'''I love the game of baseball.''' ,'''People ask me if my shoes were too small when I was a kid and I say it wouldn't matter how fight my shoes were, I just liked that feeling of them being in there. That's how I started tapping my toes.''' ,'''People are going to make comparisons and they can do that but I'm definitely not going to compare myself to Derek Jeter.''' ,'''When I go home my mother still makes me take out the garbage.''' ,]
++++

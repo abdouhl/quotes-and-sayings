@@ -1,0 +1,8 @@
++++
+author = "Matt Ryan"
+title = "Matt Ryan Quotes"
+quotes_len = "9"
+description = "the best 9 Matt Ryan Quotes"
+keywords = "matt ryan,matt ryan quotes,matt ryan quote,matt ryan sayings,matt ryan saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''I am musical. I play guitar.''' ,'''I have a statue of Superman. It's actually a big one... It's a collectible statue of Superman, which the DC guys very kindly gave to me. So that's a little prized possession of mine.''' ,'''I always loved Batman, the Michael Keaton 'Batman.' I loved those films, and Superman, but I was never a real comic book geek.''' ,'''I'm constantly trying to mine the DNA of John Constantine and stay true to that character in the comic books.''' ,'''That's John Constantine. You put him in a corner, and you squeeze him, and he'll find his way out. There's something in him - he's a great escape artist.''' ,''''The Descent,' 'Dog Soldiers,' those films, I've loved for years, and the tones of those.''' ,'''You can't please everyone, and you have to trust your instincts, and you have to do your work and throw yourself in there and trust your instincts, and just trust that you're doing a good job that I can be proud of as well.''' ,'''I love Michael Keaton. I think he's awesome - he's such an awesome actor - like the 'Beetlejuice' films. I just love that Tim Burton stuff.''' ,'''Batman and Superman are probably my favorite superheroes - apart from Constantine.''' ,]
++++

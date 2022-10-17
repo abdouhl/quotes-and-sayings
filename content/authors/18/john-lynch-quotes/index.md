@@ -1,0 +1,8 @@
++++
+author = "John Lynch"
+title = "John Lynch Quotes"
+quotes_len = "7"
+description = "the best 7 John Lynch Quotes"
+keywords = "john lynch,john lynch quotes,john lynch quote,john lynch sayings,john lynch saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''Our state's beautiful natural environment is part of why we all love and live in New Hampshire. It is also one of our state's most important economic assets.''' ,'''The citizens of New Hampshire expect and deserve a government as clean as our mountain streams and as open as our blue skies. Today let us pledge together to make this government - the people's government - clean, open and honest.''' ,'''We have a responsibility as a state to protect our most vulnerable citizens: our children, seniors, people with disabilities. That is our moral obligation. But there is an economic justification too - we all pay when the basic needs of our citizens are unmet.''' ,'''New Hampshire state government is a big customer for prescription drug companies. Just as businesses do, we should take advantage of the bargaining power we have as a big customer.''' ,'''To restore and keep the public's confidence in the integrity of their government, state government and its officials must be open, honest and transparent.''' ,'''Did you know that the state is the proud owner of a condo complex in Conway? This budget adds a real estate manager position to assess what we own, and sell those properties that we don't need and shouldn't own.''' ,'''We will not agree on every issue. But let us respect those differences and respect one another. Let us recognize that we do not serve an ideology or a political party; we serve the people.''' ,]
++++

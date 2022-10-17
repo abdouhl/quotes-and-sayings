@@ -1,0 +1,8 @@
++++
+author = "Jobeth Williams"
+title = "Jobeth Williams Quotes"
+quotes_len = "10"
+description = "the best 10 Jobeth Williams Quotes"
+keywords = "jobeth williams,jobeth williams quotes,jobeth williams quote,jobeth williams sayings,jobeth williams saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''I think there's a danger of a being typecast as the all-American mom forever.''' ,'''I think a lot of the time, we don't give our family connections the kind of credit they deserve, like how important they are to us and how much they mean to us. I think family makes all the difference.''' ,'''Larry Kasdan wanted us all there, all the time, even if we weren't filming.''' ,'''I wanted to play the part that Mary Kay played, the lawyer who wanted to have baby and felt her clock ticking, because it was something I could relate to.''' ,'''I felt they had really moved the characters in a direction that was very interesting. The family had really felt the impact of what had happened to the.''' ,'''I would like, certainly, to do different things.''' ,'''I was concerned about doing a sequel and repeating myself. That was before I read the script.''' ,'''I've seen my own kids go through their own ups and downs, and as a mother, you want to make it better.''' ,'''I was raised in cities but I was raised in Texas, so there's a certain amount of connection to the earth.''' ,'''It was my first scene in any movie and my only scene in Kramer vs. Kramer. I was petrified.''' ,]
++++

@@ -1,0 +1,8 @@
++++
+author = "Kenzo Tange"
+title = "Kenzo Tange Quotes"
+quotes_len = "8"
+description = "the best 8 Kenzo Tange Quotes"
+keywords = "kenzo tange,kenzo tange quotes,kenzo tange quote,kenzo tange sayings,kenzo tange saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''Tradition can, to be sure, participate in a creation, but it can no longer be creative itself.''' ,'''I am aware of changes gradually taking place in my own designs as part of my thinking on this matter.''' ,'''I feel however, that we architects have a special duty and mission... (to contribute) to the socio-cultural development of architecture and urban planning.''' ,'''There is a powerful need for symbolism, and that means the architecture must have something that appeals to the human heart. There is a powerful need for symbolism, and that means the architecture must have something that appeals to the human heart.''' ,'''Designs of purely arbitrary nature cannot be expected to last long.''' ,'''In my opinion, further consideration of those views will help us find a way out of the current impasse, and reveal to us the kinds of buildings and cities required by the informational society.''' ,'''Architects today tend to depreciate themselves, to regard themselves as no more than just ordinary citizens without the power to reform the future.''' ,'''Technological considerations are of great importance to architecture and cities in the informational society.''' ,]
++++

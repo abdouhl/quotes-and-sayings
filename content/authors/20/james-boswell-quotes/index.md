@@ -1,0 +1,8 @@
++++
+author = "James Boswell"
+title = "James Boswell Quotes"
+quotes_len = "14"
+description = "the best 14 James Boswell Quotes"
+keywords = "james boswell,james boswell quotes,james boswell quote,james boswell sayings,james boswell saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''He who has provoked the lash of wit, cannot complain that he smarts from it.''' ,'''A page of my journal is like a cake of portable soup. A little may be diffused into a considerable portion.''' ,'''I hate mankind, for I think myself one of the best of them, and I know how bad I am.''' ,'''I have found you an argument; I am not obliged to find you an understanding.''' ,'''A companion loves some agreeable qualities which a man may possess, but a friend loves the man himself.''' ,'''For my own part I think no innocent species of wit or pleasantry should be suppressed: and that a good pun may be admitted among the smaller excellencies of lively conversation.''' ,'''If venereal delight and the power of propagating the species were permitted only to the virtuous, it would make the world very good.''' ,'''What an insignificant life is this which I am now leading!''' ,'''I have discovered that we may be in some degree whatever character we choose. Besides, practice forms a man to anything.''' ,'''There is nothing worth the wear of winning, but laughter and the love of friends.''' ,'''A good pun may be admitted among the smaller excellencies of lively conversation.''' ,'''It is not every man who can be exquisitely miserable, any more than exquisitely happy.''' ,'''I suppose no person ever enjoyed with more relish the infusion of this fragrant leaf than did Johnson.''' ,'''We must take our friends as they are.''' ,]
++++

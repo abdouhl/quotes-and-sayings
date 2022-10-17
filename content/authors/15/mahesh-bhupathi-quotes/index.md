@@ -1,0 +1,8 @@
++++
+author = "Mahesh Bhupathi"
+title = "Mahesh Bhupathi Quotes"
+quotes_len = "9"
+description = "the best 9 Mahesh Bhupathi Quotes"
+keywords = "mahesh bhupathi,mahesh bhupathi quotes,mahesh bhupathi quote,mahesh bhupathi sayings,mahesh bhupathi saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''I'm a deeply spiritual person, and I strongly believe that God is watching over me!''' ,'''I think that tennis has been in a place for many years without any change. Davis Cup and Fed Cup has always been a very exciting platform for players because it is such an individual sport, and we get to play a team competition. We love being part of a team.''' ,'''Most Indians go into education. Their parents just push them into education like parents in Australia push them into sports.''' ,'''Wimbledon 2014 will be my last slam. To be honest, I am already starting to miss professional tennis, having played at the highest level for two decades. It is what has given me my identity, and I will miss every bit of the action. The thought that I will not be playing anymore is daunting.''' ,'''Indian food is a luxury on tour.''' ,'''The mentality we have in India is not very sporting.''' ,'''I don't think there's any dearth of talent in India - we've always had the best juniors in the world.''' ,'''I don't think tennis is a glamour game, not at all.''' ,'''I am glad that Wimbledon is my last slam. I love the atmosphere and courts of SW19, and it is an addiction, which I will find tough to give up.''' ,]
++++

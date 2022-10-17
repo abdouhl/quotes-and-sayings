@@ -1,0 +1,8 @@
++++
+author = "Johnny Thunders"
+title = "Johnny Thunders Quotes"
+quotes_len = "13"
+description = "the best 13 Johnny Thunders Quotes"
+keywords = "johnny thunders,johnny thunders quotes,johnny thunders quote,johnny thunders sayings,johnny thunders saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''I was in Sweden for 10 days. They put me on the front page of the daily papers eight days in a row. I did nothing to warrant any of the attention. It was ridiculous.''' ,'''I don't eat cereal actually... Frosted Flakes... that's as close as I can get.''' ,'''The Dolls were an attitude. If nothing else they were a great attitude.''' ,'''Me and Jerry left because we felt we weren't getting anywhere playing our old songs in tiny clubs. The group was getting stale and staying behind the times.''' ,'''I met Sable when she was 15 and I was 18. I sent her home to New York while we carried on the tour. When we got back the police were looking for her at the airport and everywhere!''' ,'''We get picked up in these Rolls Royces and get three miles down the highway and five cop cars pull us over.''' ,'''The only technical things I know are treble, volume and reverb, that's all.''' ,'''A lot of people want to die for a lot of reasons.''' ,'''A lot of people don't think they can count on me, but I've never missed a gig in my life.''' ,'''I wouldn't change a thing - except my bank balance.''' ,'''I take smack because I enjoy it. I enjoy all it makes me feel. I don't do it to be in with the in crowd. I can rock out with it.''' ,'''No one really knows me. People think they know me.''' ,'''Many people love me, many people hate me - there's nobody in between. That's the way I prefer it.''' ,]
++++

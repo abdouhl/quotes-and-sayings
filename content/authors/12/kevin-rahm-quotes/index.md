@@ -1,0 +1,8 @@
++++
+author = "Kevin Rahm"
+title = "Kevin Rahm Quotes"
+quotes_len = "9"
+description = "the best 9 Kevin Rahm Quotes"
+keywords = "kevin rahm,kevin rahm quotes,kevin rahm quote,kevin rahm sayings,kevin rahm saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''My intent was to go to law school... And then what I realised quickly is what I wanted was to be on L.A. Law.''' ,'''I've been lucky in the sense that I haven't become famous.''' ,'''I think any workplace relationship is dangerous. That's been my personal experience. They haven't always worked out the best. But I know other people for whom it worked out great.''' ,'''I started out in pre-law. I was going to go to law school. And I saw a production of 'Tally's Folly' that spring term. I took a theater class that term and auditioned for 'Harvey' at the end of the summer, and I was in a play every semester after that.''' ,'''I love comedy and did a lot of comedy in college. I was in an improv comedy group with my friends.''' ,'''The industry has a very short memory of what's possible, and they like to typecast you.''' ,'''I watch way too much television and like a lot of shows, so I'm always excited to meet those people and hope they're not douchey.''' ,'''I loved comedy, but I never saw myself as a sitcom guy. I envisioned myself doing an hour drama or doing movies.''' ,'''I have my belief structure, and it's very important to me, but people start associating that with you, and you become that. I want to be judged for my work.''' ,]
++++

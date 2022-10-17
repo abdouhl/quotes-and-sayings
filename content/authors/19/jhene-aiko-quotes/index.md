@@ -1,0 +1,8 @@
++++
+author = "Jhene Aiko"
+title = "Jhene Aiko Quotes"
+quotes_len = "8"
+description = "the best 8 Jhene Aiko Quotes"
+keywords = "jhene aiko,jhene aiko quotes,jhene aiko quote,jhene aiko sayings,jhene aiko saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''I always say the person who taught me how to sing indirectly because I listened to her all the time was Brandy. I fell in love with her voice when I was six years old. I always loved Brandy.''' ,'''Yeah, I mean I'm a water sign. I'm a Pisces.''' ,'''I just like being a regular person.''' ,'''I actually have a young readers' series that I wanna do, kind of in the same lane as a Harry Potter or Narnia or Twilight. I want to write stuff like that.''' ,'''As I got older, I really got into Tupac's poetry, his books and just learning about his life and what he was into.''' ,'''It gets crazy in my mind sometimes but the reason why I like to express so much positivity on my Twitter is because I think we all are battling evil thoughts. I think it's important to not ignore them but to try to understand where they are coming from and get through them instead of suppressing them.''' ,'''You know how a lot of people say, 'I lose myself in music,' or 'I like to escape,' but I want my music to be more of an awakening. I want it to make people to be aware of life; I don't want my music to be a distraction. I want to light a path.''' ,'''I think if a woman is feeling aggressive, she should be aggressive and not hold back.''' ,]
++++

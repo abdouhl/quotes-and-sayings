@@ -1,0 +1,8 @@
++++
+author = "Jairzinho Rozenstruik"
+title = "Jairzinho Rozenstruik Quotes"
+quotes_len = "13"
+description = "the best 13 Jairzinho Rozenstruik Quotes"
+keywords = "jairzinho rozenstruik,jairzinho rozenstruik quotes,jairzinho rozenstruik quote,jairzinho rozenstruik sayings,jairzinho rozenstruik saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''My power is just God-given.''' ,'''MMA is not just about who punches the hardest. There are a lot of things you have to know what to do. That's what I love about it.''' ,'''I really want to fight this big scary guy, Francis Ngannou.''' ,'''When you see a guy make a mistake, you have to be ready to take advantage.''' ,'''Dutch is our first language. When you talk to older people, you speak Dutch. It's more respectful. The local language, you talk with your friends. You don't talk to your parents like that with the local slang.''' ,'''I fight everyone, I beat everyone. It don't go any other way.''' ,'''It means a lot to me, of course, if you have a win over Arlovski, who is a legend. It's huge.''' ,'''For me, beating Alistair Overeem means a lot, but the fight I'm looking for is the Francis Ngannou fight.''' ,'''If I don't believe I can beat someone, I don't do that fight.''' ,'''I never had thoughts that I'd become a fighter.''' ,'''2019 was my breakthrough year.''' ,'''I fought a lot of strong guys before - big, scary guys - and I used to knock them out.''' ,'''If you're looking to be the best in the world, you have to beat the best in the world.''' ,]
++++

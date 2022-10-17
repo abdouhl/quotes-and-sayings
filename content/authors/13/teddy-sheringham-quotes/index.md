@@ -1,0 +1,8 @@
++++
+author = "Teddy Sheringham"
+title = "Teddy Sheringham Quotes"
+quotes_len = "7"
+description = "the best 7 Teddy Sheringham Quotes"
+keywords = "teddy sheringham,teddy sheringham quotes,teddy sheringham quote,teddy sheringham sayings,teddy sheringham saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''Jurgen loved London because he could get lost here. He said that it was the first time he could do that in eight years. No one knew him or bothered him. It is great for a person to be able to get lost.''' ,'''I remember my second game for England - we lost 2-0 to Norway, I was subbed and didn't do myself justice and I thought that was the end of my England career.''' ,'''I love going into the centre of London because people don't give a monkey's about you or who you are. You can be in a restaurant and no one notices you or if they do they won't show it.''' ,'''Even championship-winning teams don't play well all the time.''' ,'''Scoring two goals at against Wembley against a Dutch team that was supposed to rip us apart and ripping them apart - it doesn't get any better than that.''' ,'''The only way I'd have gone was if it would better my career, I would not have gone just for the money. The point was to go to a club that could win trophies.''' ,'''But the manager's bought wisely - the players who've come in have taken us on to a different level and the players who won promotion have also performed at the top level, so long may it continue.''' ,]
++++

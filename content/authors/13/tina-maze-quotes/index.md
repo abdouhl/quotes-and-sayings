@@ -1,0 +1,8 @@
++++
+author = "Tina Maze"
+title = "Tina Maze Quotes"
+quotes_len = "9"
+description = "the best 9 Tina Maze Quotes"
+keywords = "tina maze,tina maze quotes,tina maze quote,tina maze sayings,tina maze saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''Skiing is always so huge, you need so many talents to be fast and be good at this sport.''' ,'''The Olympic Games are always in the head of every sports athlete. We work for that. The Olympics are the most important race. They're each four years, and everybody wants to show their best performance.''' ,'''If somebody is strong and showing good performances and perfect in the thing you are doing, there are people who want to disturb you.''' ,'''When I was a kid, I played the piano for six years, and all my family are musicians.''' ,'''I've learned that maybe sometimes it's better to show people who you are and what you are thinking about. That way, you can be more relaxed with yourself.''' ,'''It's incredible in our sport how small the differences are, and we are all aware of that. We're all on a high level and skiing well, and at the end, it's just hundredths that count. Maybe it's just one finger or a hand can change the color of a medal.''' ,'''The Olympic Games are always in the head of every sports athlete. We work for that.''' ,'''When you win a lot, you don't learn much. With my ups and downs, it's a lot of learning.''' ,'''Winning the overall is a dream I've had since being a young skier. It's everyone's dream.''' ,]
++++

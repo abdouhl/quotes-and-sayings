@@ -1,0 +1,8 @@
++++
+author = "Mike Greenberg"
+title = "Mike Greenberg Quotes"
+quotes_len = "8"
+description = "the best 8 Mike Greenberg Quotes"
+keywords = "mike greenberg,mike greenberg quotes,mike greenberg quote,mike greenberg sayings,mike greenberg saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''The contemporary authors I most admire are Nick Hornby and Jonathan Tropper.''' ,'''When I took off from Providence, my only professional aspiration was what it had always been: I wanted to be a sportscaster. By the time I landed in the desert, I knew I would spend the rest of my life trying to be a writer.''' ,'''Golf is a game of endless failure and frustration.''' ,'''When I was a boy, my parents were writers and they owned a bookstore, 'The Complete Traveler in New York,' so writing and books have held special places in my heart all my life.''' ,'''I would say my first golf memory was asking who Arnold Palmer was when he was always on the Pennzoil commercials. When I was a little kid I watched a lot of sports, but I didn't watch a lot of golf, and this guy was always on a tractor.''' ,'''My one complaint with my father as a parent is that, not only was he not a golfer, but also he was sort of opposed to golf. I was a country club kid growing up. I should have played golf, but my father thought golf was a sport for old men.''' ,'''My wife is my favorite person I've ever met in my 40 years on the planet, and I'm sure she would agree that patience is not her strongest characteristic. I don't know that golf would be the game for her.''' ,'''I wrote 'All You Could Ask For' to honor a friend, Heidi Armitage, who left us much too soon in 2009 at the age of 43.''' ,]
++++

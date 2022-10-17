@@ -1,0 +1,8 @@
++++
+author = "Terry Richardson"
+title = "Terry Richardson Quotes"
+quotes_len = "7"
+description = "the best 7 Terry Richardson Quotes"
+keywords = "terry richardson,terry richardson quotes,terry richardson quote,terry richardson sayings,terry richardson saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''I always say I make pictures rather than take pictures.''' ,'''I like using snapshot cameras because they're idiot-proof. I have bad eyesight, and I'm no good at focusing big cameras.''' ,'''Over the course of my career, I have come to accept that some of my more provocative work courts controversy, and as an artist, I value the discourse that arises from this. I can only hope for this discourse to be informed by fact, so that whether you love my work or hate it, you give it, and me, the benefit of the truth.''' ,'''Like Robert Mapplethorpe, Helmut Newton, and so many others before me, sexual imagery has always been a part of my photography.''' ,'''It's insane, the Internet. Totally craziness. Like a little cancer. People can just do whatever they want, say whatever they want, be totally anonymous. It's totally out of control.''' ,'''Going into a shoot not fully knowing what I want to do - that excitement, that thing that happens, is just so powerful and makes such great pictures.''' ,'''I want my photos to be fresh and urgent. A good photograph should be a call to arms.''' ,]
++++

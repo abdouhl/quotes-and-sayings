@@ -1,0 +1,8 @@
++++
+author = "Georges Duhamel"
+title = "Georges Duhamel Quotes"
+quotes_len = "10"
+description = "the best 10 Georges Duhamel Quotes"
+keywords = "georges duhamel,georges duhamel quotes,georges duhamel quote,georges duhamel sayings,georges duhamel saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''There is no French town in which the wounds inflicted on the battle-field are not bleeding.''' ,'''In the beds which the piety of the public has prepared on every side, stricken men await the verdict of fate.''' ,'''It is always brave to say what everyone thinks.''' ,'''Suffering has roused them from the sleep of gentle life, and every day fills them with a terrible intoxication. They are now something more than themselves; those we loved were merely happy shadows.''' ,'''We can know nothing till after this grave debate. The soul must withdraw, for this is not its hour. Now the knife must divide the flesh, and lay the ravage bare, and do its work completely.''' ,'''I have too much respect for the idea of God to make it responsible for such an absurd world.''' ,'''The swimmer adrift on the open seas measures his strength, and strives with all his muscles to keep himself afloat. But what is he to do when there is no land on the horizon, and none beyond it?''' ,'''Let us lose none of their humble words, let us note their slightest gestures, and tell me, tell me that we will think of them together, now and later, when we realise the misery of the times and the magnitude of their sacrifice.''' ,'''Do not trust your memory; it is a net full of holes; the most beautiful prizes slip through it.''' ,'''We do not know the true value of our moments until they have undergone the test of memory.''' ,]
++++

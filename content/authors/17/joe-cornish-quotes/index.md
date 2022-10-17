@@ -1,0 +1,8 @@
++++
+author = "Joe Cornish"
+title = "Joe Cornish Quotes"
+quotes_len = "13"
+description = "the best 13 Joe Cornish Quotes"
+keywords = "joe cornish,joe cornish quotes,joe cornish quote,joe cornish sayings,joe cornish saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''I used to dream about presenting a comedy show and also about directing films.''' ,'''I did magic at children's parties when I was a kid.''' ,'''I don't think it's an incredibly radical premise to try and have sympathy for someone who has made a mistake.''' ,'''I went to Bournemouth Film School for 3 years.''' ,'''I believe movies are better, the less you know going in.''' ,'''I'm not an angry man.''' ,'''I worry whether it's not really the best way to live one's life - trying to fulfill the dreams you had as a child. Maybe it's quite a backwards approach.''' ,'''I'm not a runner. I don't run.''' ,'''And I used to buy 'Fangoria,' the horror magazine, which made my mum wonder if I was going to be a serial killer.''' ,'''I'm a huge Spike Lee fan. I saw 'Do The Right Thing' twice in the same night when it first came out and had long conversations with all my friends about the issues in it.''' ,'''So many large movies come to you with a huge marketing campaign and it's like you have to see this movie this weekend, otherwise you'll be culturally bankrupt and can't converse with your friends.''' ,'''In truth I don't like Cornish pasties.''' ,'''One of my favourite films is called 'Lacombe Lucien,' directed by Louis Malle. The lead character in that film, like the lead characters in many '70s and '80s films, has a moral ambiguity to him.''' ,]
++++

@@ -1,0 +1,8 @@
++++
+author = "Jacob K. Javits"
+title = "Jacob K. Javits Quotes"
+quotes_len = "10"
+description = "the best 10 Jacob K. Javits Quotes"
+keywords = "jacob k. javits,jacob k. javits quotes,jacob k. javits quote,jacob k. javits sayings,jacob k. javits saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''I'm a politician. What I say is not holy writ.''' ,'''When scrutiny is lacking, tyranny, corruption and man's baser qualities have a better chance of entering into the public business of any government.''' ,'''Birth and death are the most singular events we experience - and the contemplation of death, as of birth, should be a thing of beauty, not ignobility.''' ,'''There is no office now closed to a Jew, including the presidency.''' ,'''It must be understood that, as adults, we are all terminal.''' ,'''Politicians are probably the most underrated people in our society.''' ,'''My thinking is Lincolnian rather than Jeffersonian, Teddy Rooseveltian rather than Franklin D. Rooseveltian.''' ,'''You must remember, my own philosophy is that you don't belong only to yourself. You have an obligation to the society which protected you when you were brought into the world, which taught you, which supported you and nurtured you. You have an obligation to repay it.''' ,''''Business,' properly understood, is so central to every aspect of our civilization that Republicans should proudly announce that they are indeed 'the party of business.'''' ,'''I remember my own life as a small boy, son of Jewish immigrants, in a janitor's flat on Orchard and Stanton streets on the Lower East Side of New York City. My father made pants and doubled as janitor of a tenement - before he made janitoring at $30 a month, plus rooms, a career.''' ,]
++++
