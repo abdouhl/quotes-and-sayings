@@ -1,8 +1,0 @@
-+++
-author = "Bruce Bueno De Mesquita"
-title = '''Pretty much, you point to a problem and good reasoning about why people are doing what they are doing and what constraints they face in terms of how others will behave, and you're looking at a problem that could be improved upon by game-theoretic reasoning.'''
-description = '''the best Bruce Bueno De Mesquita Quote: Pretty much, you point to a problem and good reasoning about why people are doing what they are doing and what constraints they face in terms of how others will behave, and you're looking at a problem that could be improved upon by game-theoretic reasoning.'''
-slug = '''pretty-much-you-point-to-a-problem-and-good-reasoning-about-why-people-are-doing-what-they-are-doing-and-what-constraints-they-face-in-terms-of-how-others-will-behave-and-youre-looking-at-a-problem-that-could-be-improved-upon-by-game-theoretic-reasoning'''
-keywords = '''Pretty much, you point to a problem and good reasoning about why people are doing what they are doing and what constraints they face in terms of how others will behave, and you're looking at a problem that could be improved upon by game-theoretic reasoning.,bruce bueno de mesquita,bruce bueno de mesquita quotes,bruce bueno de mesquita quote,bruce bueno de mesquita sayings,bruce bueno de mesquita saying,quotes, sayings,quote, saying, motivation'''
-+++
-Pretty much, you point to a problem and good reasoning about why people are doing what they are doing and what constraints they face in terms of how others will behave, and you're looking at a problem that could be improved upon by game-theoretic reasoning.

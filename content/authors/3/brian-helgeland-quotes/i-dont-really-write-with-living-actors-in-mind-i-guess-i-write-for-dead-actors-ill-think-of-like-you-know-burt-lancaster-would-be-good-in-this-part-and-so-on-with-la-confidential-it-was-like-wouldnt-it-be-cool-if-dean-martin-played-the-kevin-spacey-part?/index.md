@@ -1,8 +1,0 @@
-+++
-author = "Brian Helgeland"
-title = '''I don't really write with living actors in mind. I guess I write for dead actors. I'll think of like, you know, Burt Lancaster would be good in this part, and so on. With 'L.A. Confidential,' it was like, 'Wouldn't it be cool if Dean Martin played the Kevin Spacey part?''''
-description = '''the best Brian Helgeland Quote: I don't really write with living actors in mind. I guess I write for dead actors. I'll think of like, you know, Burt Lancaster would be good in this part, and so on. With 'L.A. Confidential,' it was like, 'Wouldn't it be cool if Dean Martin played the Kevin Spacey part?''''
-slug = '''i-dont-really-write-with-living-actors-in-mind-i-guess-i-write-for-dead-actors-ill-think-of-like-you-know-burt-lancaster-would-be-good-in-this-part-and-so-on-with-la-confidential-it-was-like-wouldnt-it-be-cool-if-dean-martin-played-the-kevin-spacey-part?'''
-keywords = '''I don't really write with living actors in mind. I guess I write for dead actors. I'll think of like, you know, Burt Lancaster would be good in this part, and so on. With 'L.A. Confidential,' it was like, 'Wouldn't it be cool if Dean Martin played the Kevin Spacey part?',brian helgeland,brian helgeland quotes,brian helgeland quote,brian helgeland sayings,brian helgeland saying,quotes, sayings,quote, saying, motivation'''
-+++
-I don't really write with living actors in mind. I guess I write for dead actors. I'll think of like, you know, Burt Lancaster would be good in this part, and so on. With 'L.A. Confidential,' it was like, 'Wouldn't it be cool if Dean Martin played the Kevin Spacey part?'

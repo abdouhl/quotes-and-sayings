@@ -1,8 +1,0 @@
-+++
-author = "Brittney Griner"
-title = '''If you're not that big player, then nobody's really gonna know who you are to promote the brand. If LeBron says, 'Go buy this shoe, it's amazing,' I would probably go buy it. But if some random person on the street was like, 'Hey, go buy this shoe,' I probably wouldn't.'''
-description = '''the best Brittney Griner Quote: If you're not that big player, then nobody's really gonna know who you are to promote the brand. If LeBron says, 'Go buy this shoe, it's amazing,' I would probably go buy it. But if some random person on the street was like, 'Hey, go buy this shoe,' I probably wouldn't.'''
-slug = '''if-youre-not-that-big-player-then-nobodys-really-gonna-know-who-you-are-to-promote-the-brand-if-lebron-says-go-buy-this-shoe-its-amazing-i-would-probably-go-buy-it-but-if-some-random-person-on-the-street-was-like-hey-go-buy-this-shoe-i-probably-wouldnt'''
-keywords = '''If you're not that big player, then nobody's really gonna know who you are to promote the brand. If LeBron says, 'Go buy this shoe, it's amazing,' I would probably go buy it. But if some random person on the street was like, 'Hey, go buy this shoe,' I probably wouldn't.,brittney griner,brittney griner quotes,brittney griner quote,brittney griner sayings,brittney griner saying,quotes, sayings,quote, saying, motivation'''
-+++
-If you're not that big player, then nobody's really gonna know who you are to promote the brand. If LeBron says, 'Go buy this shoe, it's amazing,' I would probably go buy it. But if some random person on the street was like, 'Hey, go buy this shoe,' I probably wouldn't.
