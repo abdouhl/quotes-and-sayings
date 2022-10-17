@@ -1,8 +1,0 @@
-+++
-author = "Annegret Kramp-Karrenbauer"
-title = '''Europe - and in particular Germany - must assume more responsibility. We must be ready to take on this responsibility and that has consequences domestically. That means, for example, we must be ready to spend more money on defense at home and abroad.'''
-description = '''the best Annegret Kramp-Karrenbauer Quote: Europe - and in particular Germany - must assume more responsibility. We must be ready to take on this responsibility and that has consequences domestically. That means, for example, we must be ready to spend more money on defense at home and abroad.'''
-slug = '''europe---and-in-particular-germany---must-assume-more-responsibility-we-must-be-ready-to-take-on-this-responsibility-and-that-has-consequences-domestically-that-means-for-example-we-must-be-ready-to-spend-more-money-on-defense-at-home-and-abroad'''
-keywords = '''Europe - and in particular Germany - must assume more responsibility. We must be ready to take on this responsibility and that has consequences domestically. That means, for example, we must be ready to spend more money on defense at home and abroad.,annegret kramp-karrenbauer,annegret kramp-karrenbauer quotes,annegret kramp-karrenbauer quote,annegret kramp-karrenbauer sayings,annegret kramp-karrenbauer saying,quotes, sayings,quote, saying, motivation'''
-+++
-Europe - and in particular Germany - must assume more responsibility. We must be ready to take on this responsibility and that has consequences domestically. That means, for example, we must be ready to spend more money on defense at home and abroad.

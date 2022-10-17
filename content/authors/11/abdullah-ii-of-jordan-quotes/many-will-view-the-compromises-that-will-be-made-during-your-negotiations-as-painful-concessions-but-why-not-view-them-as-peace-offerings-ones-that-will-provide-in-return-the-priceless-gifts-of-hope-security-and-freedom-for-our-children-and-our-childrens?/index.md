@@ -1,8 +1,0 @@
-+++
-author = "Abdullah Ii Of Jordan"
-title = '''Many will view the compromises that will be made during your negotiations as painful concessions. But why not view them as peace offerings, ones that will provide in return the priceless gifts of hope, security and freedom for our children and our children's?'''
-description = '''the best Abdullah Ii Of Jordan Quote: Many will view the compromises that will be made during your negotiations as painful concessions. But why not view them as peace offerings, ones that will provide in return the priceless gifts of hope, security and freedom for our children and our children's?'''
-slug = '''many-will-view-the-compromises-that-will-be-made-during-your-negotiations-as-painful-concessions-but-why-not-view-them-as-peace-offerings-ones-that-will-provide-in-return-the-priceless-gifts-of-hope-security-and-freedom-for-our-children-and-our-childrens?'''
-keywords = '''Many will view the compromises that will be made during your negotiations as painful concessions. But why not view them as peace offerings, ones that will provide in return the priceless gifts of hope, security and freedom for our children and our children's?,abdullah ii of jordan,abdullah ii of jordan quotes,abdullah ii of jordan quote,abdullah ii of jordan sayings,abdullah ii of jordan saying,quotes, sayings,quote, saying, motivation'''
-+++
-Many will view the compromises that will be made during your negotiations as painful concessions. But why not view them as peace offerings, ones that will provide in return the priceless gifts of hope, security and freedom for our children and our children's?

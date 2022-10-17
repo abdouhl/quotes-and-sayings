@@ -1,8 +1,0 @@
-+++
-author = "Abhishek Bachchan"
-title = '''I think it's important for an actor to see the work they've done because every time you revisit a work you come up with a new way of improving it. It's a good way to brush up your craft and your skills, so I think it's a good thing to do, keep seeing your films.'''
-description = '''the best Abhishek Bachchan Quote: I think it's important for an actor to see the work they've done because every time you revisit a work you come up with a new way of improving it. It's a good way to brush up your craft and your skills, so I think it's a good thing to do, keep seeing your films.'''
-slug = '''i-think-its-important-for-an-actor-to-see-the-work-theyve-done-because-every-time-you-revisit-a-work-you-come-up-with-a-new-way-of-improving-it-its-a-good-way-to-brush-up-your-craft-and-your-skills-so-i-think-its-a-good-thing-to-do-keep-seeing-your-films'''
-keywords = '''I think it's important for an actor to see the work they've done because every time you revisit a work you come up with a new way of improving it. It's a good way to brush up your craft and your skills, so I think it's a good thing to do, keep seeing your films.,abhishek bachchan,abhishek bachchan quotes,abhishek bachchan quote,abhishek bachchan sayings,abhishek bachchan saying,quotes, sayings,quote, saying, motivation'''
-+++
-I think it's important for an actor to see the work they've done because every time you revisit a work you come up with a new way of improving it. It's a good way to brush up your craft and your skills, so I think it's a good thing to do, keep seeing your films.

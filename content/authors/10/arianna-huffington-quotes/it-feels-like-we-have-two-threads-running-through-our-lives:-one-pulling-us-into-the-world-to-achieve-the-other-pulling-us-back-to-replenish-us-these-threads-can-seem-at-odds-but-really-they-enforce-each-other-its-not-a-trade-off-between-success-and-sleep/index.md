@@ -1,8 +1,0 @@
-+++
-author = "Arianna Huffington"
-title = '''It feels like we have two threads running through our lives: one pulling us into the world to achieve, the other pulling us back to replenish us. These threads can seem at odds, but really, they enforce each other. It's not a trade-off between success and sleep.'''
-description = '''the best Arianna Huffington Quote: It feels like we have two threads running through our lives: one pulling us into the world to achieve, the other pulling us back to replenish us. These threads can seem at odds, but really, they enforce each other. It's not a trade-off between success and sleep.'''
-slug = '''it-feels-like-we-have-two-threads-running-through-our-lives:-one-pulling-us-into-the-world-to-achieve-the-other-pulling-us-back-to-replenish-us-these-threads-can-seem-at-odds-but-really-they-enforce-each-other-its-not-a-trade-off-between-success-and-sleep'''
-keywords = '''It feels like we have two threads running through our lives: one pulling us into the world to achieve, the other pulling us back to replenish us. These threads can seem at odds, but really, they enforce each other. It's not a trade-off between success and sleep.,arianna huffington,arianna huffington quotes,arianna huffington quote,arianna huffington sayings,arianna huffington saying,quotes, sayings,quote, saying, motivation'''
-+++
-It feels like we have two threads running through our lives: one pulling us into the world to achieve, the other pulling us back to replenish us. These threads can seem at odds, but really, they enforce each other. It's not a trade-off between success and sleep.

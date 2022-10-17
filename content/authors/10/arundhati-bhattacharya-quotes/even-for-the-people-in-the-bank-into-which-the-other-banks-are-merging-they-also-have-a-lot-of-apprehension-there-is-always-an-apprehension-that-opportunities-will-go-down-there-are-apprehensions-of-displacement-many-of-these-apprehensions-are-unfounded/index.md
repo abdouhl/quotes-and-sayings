@@ -1,8 +1,0 @@
-+++
-author = "Arundhati Bhattacharya"
-title = '''Even for the people in the bank into which the other banks are merging, they also have a lot of apprehension. There is always an apprehension that opportunities will go down. There are apprehensions of displacement. Many of these apprehensions are unfounded.'''
-description = '''the best Arundhati Bhattacharya Quote: Even for the people in the bank into which the other banks are merging, they also have a lot of apprehension. There is always an apprehension that opportunities will go down. There are apprehensions of displacement. Many of these apprehensions are unfounded.'''
-slug = '''even-for-the-people-in-the-bank-into-which-the-other-banks-are-merging-they-also-have-a-lot-of-apprehension-there-is-always-an-apprehension-that-opportunities-will-go-down-there-are-apprehensions-of-displacement-many-of-these-apprehensions-are-unfounded'''
-keywords = '''Even for the people in the bank into which the other banks are merging, they also have a lot of apprehension. There is always an apprehension that opportunities will go down. There are apprehensions of displacement. Many of these apprehensions are unfounded.,arundhati bhattacharya,arundhati bhattacharya quotes,arundhati bhattacharya quote,arundhati bhattacharya sayings,arundhati bhattacharya saying,quotes, sayings,quote, saying, motivation'''
-+++
-Even for the people in the bank into which the other banks are merging, they also have a lot of apprehension. There is always an apprehension that opportunities will go down. There are apprehensions of displacement. Many of these apprehensions are unfounded.

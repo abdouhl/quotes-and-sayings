@@ -1,8 +1,0 @@
-+++
-author = "Auli'I Cravalho"
-title = '''I go to an all-Hawaiian school, and we learn everything about being Hawaiian. We have a really deep respect for the water and the land. We say, 'mauka to makai,' mountains to ocean. I believe if you take care of the ocean, the ocean will take care of you in return.'''
-description = '''the best Auli'I Cravalho Quote: I go to an all-Hawaiian school, and we learn everything about being Hawaiian. We have a really deep respect for the water and the land. We say, 'mauka to makai,' mountains to ocean. I believe if you take care of the ocean, the ocean will take care of you in return.'''
-slug = '''i-go-to-an-all-hawaiian-school-and-we-learn-everything-about-being-hawaiian-we-have-a-really-deep-respect-for-the-water-and-the-land-we-say-mauka-to-makai-mountains-to-ocean-i-believe-if-you-take-care-of-the-ocean-the-ocean-will-take-care-of-you-in-return'''
-keywords = '''I go to an all-Hawaiian school, and we learn everything about being Hawaiian. We have a really deep respect for the water and the land. We say, 'mauka to makai,' mountains to ocean. I believe if you take care of the ocean, the ocean will take care of you in return.,auli'i cravalho,auli'i cravalho quotes,auli'i cravalho quote,auli'i cravalho sayings,auli'i cravalho saying,quotes, sayings,quote, saying, motivation'''
-+++
-I go to an all-Hawaiian school, and we learn everything about being Hawaiian. We have a really deep respect for the water and the land. We say, 'mauka to makai,' mountains to ocean. I believe if you take care of the ocean, the ocean will take care of you in return.

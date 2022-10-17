@@ -1,8 +1,0 @@
-+++
-author = "A. P. J. Abdul Kalam"
-title = '''It's when children are 15, 16 or 17 that they decide whether they want to be a doctor, an engineer, a politician or go to the Mars or moon. That is the time they start having a dream, and that's the time you can work on them. You can help them shape their dreams.'''
-description = '''the best A. P. J. Abdul Kalam Quote: It's when children are 15, 16 or 17 that they decide whether they want to be a doctor, an engineer, a politician or go to the Mars or moon. That is the time they start having a dream, and that's the time you can work on them. You can help them shape their dreams.'''
-slug = '''its-when-children-are-15-16-or-17-that-they-decide-whether-they-want-to-be-a-doctor-an-engineer-a-politician-or-go-to-the-mars-or-moon-that-is-the-time-they-start-having-a-dream-and-thats-the-time-you-can-work-on-them-you-can-help-them-shape-their-dreams'''
-keywords = '''It's when children are 15, 16 or 17 that they decide whether they want to be a doctor, an engineer, a politician or go to the Mars or moon. That is the time they start having a dream, and that's the time you can work on them. You can help them shape their dreams.,a. p. j. abdul kalam,a. p. j. abdul kalam quotes,a. p. j. abdul kalam quote,a. p. j. abdul kalam sayings,a. p. j. abdul kalam saying,quotes, sayings,quote, saying, motivation'''
-+++
-It's when children are 15, 16 or 17 that they decide whether they want to be a doctor, an engineer, a politician or go to the Mars or moon. That is the time they start having a dream, and that's the time you can work on them. You can help them shape their dreams.

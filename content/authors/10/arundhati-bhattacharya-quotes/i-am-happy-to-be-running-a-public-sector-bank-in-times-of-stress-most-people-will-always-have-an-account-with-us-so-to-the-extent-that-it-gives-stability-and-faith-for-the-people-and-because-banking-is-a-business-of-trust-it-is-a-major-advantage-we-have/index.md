@@ -1,8 +1,0 @@
-+++
-author = "Arundhati Bhattacharya"
-title = '''I am happy to be running a public sector bank. In times of stress, most people will always have an account with us, so, to the extent that it gives stability and faith for the people and because banking is a business of trust, it is a major advantage we have.'''
-description = '''the best Arundhati Bhattacharya Quote: I am happy to be running a public sector bank. In times of stress, most people will always have an account with us, so, to the extent that it gives stability and faith for the people and because banking is a business of trust, it is a major advantage we have.'''
-slug = '''i-am-happy-to-be-running-a-public-sector-bank-in-times-of-stress-most-people-will-always-have-an-account-with-us-so-to-the-extent-that-it-gives-stability-and-faith-for-the-people-and-because-banking-is-a-business-of-trust-it-is-a-major-advantage-we-have'''
-keywords = '''I am happy to be running a public sector bank. In times of stress, most people will always have an account with us, so, to the extent that it gives stability and faith for the people and because banking is a business of trust, it is a major advantage we have.,arundhati bhattacharya,arundhati bhattacharya quotes,arundhati bhattacharya quote,arundhati bhattacharya sayings,arundhati bhattacharya saying,quotes, sayings,quote, saying, motivation'''
-+++
-I am happy to be running a public sector bank. In times of stress, most people will always have an account with us, so, to the extent that it gives stability and faith for the people and because banking is a business of trust, it is a major advantage we have.

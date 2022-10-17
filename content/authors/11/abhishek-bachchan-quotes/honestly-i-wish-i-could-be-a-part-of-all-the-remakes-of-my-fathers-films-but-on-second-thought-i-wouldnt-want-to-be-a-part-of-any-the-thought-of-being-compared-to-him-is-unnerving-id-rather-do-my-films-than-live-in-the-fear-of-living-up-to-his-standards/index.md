@@ -1,8 +1,0 @@
-+++
-author = "Abhishek Bachchan"
-title = '''Honestly, I wish I could be a part of all the remakes of my father's films. But on second thought, I wouldn't want to be a part of any. The thought of being compared to him is unnerving. I'd rather do my films than live in the fear of living up to his standards.'''
-description = '''the best Abhishek Bachchan Quote: Honestly, I wish I could be a part of all the remakes of my father's films. But on second thought, I wouldn't want to be a part of any. The thought of being compared to him is unnerving. I'd rather do my films than live in the fear of living up to his standards.'''
-slug = '''honestly-i-wish-i-could-be-a-part-of-all-the-remakes-of-my-fathers-films-but-on-second-thought-i-wouldnt-want-to-be-a-part-of-any-the-thought-of-being-compared-to-him-is-unnerving-id-rather-do-my-films-than-live-in-the-fear-of-living-up-to-his-standards'''
-keywords = '''Honestly, I wish I could be a part of all the remakes of my father's films. But on second thought, I wouldn't want to be a part of any. The thought of being compared to him is unnerving. I'd rather do my films than live in the fear of living up to his standards.,abhishek bachchan,abhishek bachchan quotes,abhishek bachchan quote,abhishek bachchan sayings,abhishek bachchan saying,quotes, sayings,quote, saying, motivation'''
-+++
-Honestly, I wish I could be a part of all the remakes of my father's films. But on second thought, I wouldn't want to be a part of any. The thought of being compared to him is unnerving. I'd rather do my films than live in the fear of living up to his standards.

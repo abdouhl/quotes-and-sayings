@@ -1,8 +1,0 @@
-+++
-author = "Augustus Baldwin Longstreet"
-title = '''During the session of the Supreme Court, in the village of -, about three weeks ago, when a number of people were collected in the principal street of the village, I observed a young man riding up and down the street, as I supposed, in a violent passion.'''
-description = '''the best Augustus Baldwin Longstreet Quote: During the session of the Supreme Court, in the village of -, about three weeks ago, when a number of people were collected in the principal street of the village, I observed a young man riding up and down the street, as I supposed, in a violent passion.'''
-slug = '''during-the-session-of-the-supreme-court-in-the-village-of---about-three-weeks-ago-when-a-number-of-people-were-collected-in-the-principal-street-of-the-village-i-observed-a-young-man-riding-up-and-down-the-street-as-i-supposed-in-a-violent-passion'''
-keywords = '''During the session of the Supreme Court, in the village of -, about three weeks ago, when a number of people were collected in the principal street of the village, I observed a young man riding up and down the street, as I supposed, in a violent passion.,augustus baldwin longstreet,augustus baldwin longstreet quotes,augustus baldwin longstreet quote,augustus baldwin longstreet sayings,augustus baldwin longstreet saying,quotes, sayings,quote, saying, motivation'''
-+++
-During the session of the Supreme Court, in the village of -, about three weeks ago, when a number of people were collected in the principal street of the village, I observed a young man riding up and down the street, as I supposed, in a violent passion.

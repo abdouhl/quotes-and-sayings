@@ -1,8 +1,0 @@
-+++
-author = "Arundhati Bhattacharya"
-title = '''Most of the time, women believe that what lies ahead is a precipice. Whereas, if you continue to drive and stay on the path, the road will open up in front of you, and you will reach your destination. You don't need to turn around and abandon the journey.'''
-description = '''the best Arundhati Bhattacharya Quote: Most of the time, women believe that what lies ahead is a precipice. Whereas, if you continue to drive and stay on the path, the road will open up in front of you, and you will reach your destination. You don't need to turn around and abandon the journey.'''
-slug = '''most-of-the-time-women-believe-that-what-lies-ahead-is-a-precipice-whereas-if-you-continue-to-drive-and-stay-on-the-path-the-road-will-open-up-in-front-of-you-and-you-will-reach-your-destination-you-dont-need-to-turn-around-and-abandon-the-journey'''
-keywords = '''Most of the time, women believe that what lies ahead is a precipice. Whereas, if you continue to drive and stay on the path, the road will open up in front of you, and you will reach your destination. You don't need to turn around and abandon the journey.,arundhati bhattacharya,arundhati bhattacharya quotes,arundhati bhattacharya quote,arundhati bhattacharya sayings,arundhati bhattacharya saying,quotes, sayings,quote, saying, motivation'''
-+++
-Most of the time, women believe that what lies ahead is a precipice. Whereas, if you continue to drive and stay on the path, the road will open up in front of you, and you will reach your destination. You don't need to turn around and abandon the journey.

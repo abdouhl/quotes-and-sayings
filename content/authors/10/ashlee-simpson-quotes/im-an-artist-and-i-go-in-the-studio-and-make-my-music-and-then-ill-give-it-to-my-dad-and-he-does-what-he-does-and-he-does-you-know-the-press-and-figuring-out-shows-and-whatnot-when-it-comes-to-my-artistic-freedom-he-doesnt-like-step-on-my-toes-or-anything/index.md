@@ -1,8 +1,0 @@
-+++
-author = "Ashlee Simpson"
-title = '''I'm an artist, and I go in the studio and make my music. And then I'll give it to my dad and he does what he does. And he does, you know, the press, and figuring out shows and whatnot. When it comes to my artistic freedom, he doesn't, like, step on my toes or anything.'''
-description = '''the best Ashlee Simpson Quote: I'm an artist, and I go in the studio and make my music. And then I'll give it to my dad and he does what he does. And he does, you know, the press, and figuring out shows and whatnot. When it comes to my artistic freedom, he doesn't, like, step on my toes or anything.'''
-slug = '''im-an-artist-and-i-go-in-the-studio-and-make-my-music-and-then-ill-give-it-to-my-dad-and-he-does-what-he-does-and-he-does-you-know-the-press-and-figuring-out-shows-and-whatnot-when-it-comes-to-my-artistic-freedom-he-doesnt-like-step-on-my-toes-or-anything'''
-keywords = '''I'm an artist, and I go in the studio and make my music. And then I'll give it to my dad and he does what he does. And he does, you know, the press, and figuring out shows and whatnot. When it comes to my artistic freedom, he doesn't, like, step on my toes or anything.,ashlee simpson,ashlee simpson quotes,ashlee simpson quote,ashlee simpson sayings,ashlee simpson saying,quotes, sayings,quote, saying, motivation'''
-+++
-I'm an artist, and I go in the studio and make my music. And then I'll give it to my dad and he does what he does. And he does, you know, the press, and figuring out shows and whatnot. When it comes to my artistic freedom, he doesn't, like, step on my toes or anything.

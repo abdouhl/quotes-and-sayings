@@ -1,8 +1,0 @@
-+++
-author = "Annegret Kramp-Karrenbauer"
-title = '''But I stand here as my own person, as a mother of three, as a former interior minister, state leader, who has served this land for 18 years and who has learned what it means to lead. And that leadership has more to do with inner strength than how loud you talk.'''
-description = '''the best Annegret Kramp-Karrenbauer Quote: But I stand here as my own person, as a mother of three, as a former interior minister, state leader, who has served this land for 18 years and who has learned what it means to lead. And that leadership has more to do with inner strength than how loud you talk.'''
-slug = '''but-i-stand-here-as-my-own-person-as-a-mother-of-three-as-a-former-interior-minister-state-leader-who-has-served-this-land-for-18-years-and-who-has-learned-what-it-means-to-lead-and-that-leadership-has-more-to-do-with-inner-strength-than-how-loud-you-talk'''
-keywords = '''But I stand here as my own person, as a mother of three, as a former interior minister, state leader, who has served this land for 18 years and who has learned what it means to lead. And that leadership has more to do with inner strength than how loud you talk.,annegret kramp-karrenbauer,annegret kramp-karrenbauer quotes,annegret kramp-karrenbauer quote,annegret kramp-karrenbauer sayings,annegret kramp-karrenbauer saying,quotes, sayings,quote, saying, motivation'''
-+++
-But I stand here as my own person, as a mother of three, as a former interior minister, state leader, who has served this land for 18 years and who has learned what it means to lead. And that leadership has more to do with inner strength than how loud you talk.

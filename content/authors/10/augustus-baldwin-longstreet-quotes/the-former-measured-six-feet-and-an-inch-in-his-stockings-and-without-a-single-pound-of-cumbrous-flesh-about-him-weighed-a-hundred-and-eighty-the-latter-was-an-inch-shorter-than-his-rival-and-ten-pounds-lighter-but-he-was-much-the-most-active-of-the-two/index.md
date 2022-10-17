@@ -1,8 +1,0 @@
-+++
-author = "Augustus Baldwin Longstreet"
-title = '''The former measured six feet and an inch in his stockings, and, without a single pound of cumbrous flesh about him, weighed a hundred and eighty. The latter was an inch shorter than his rival, and ten pounds lighter; but he was much the most active of the two.'''
-description = '''the best Augustus Baldwin Longstreet Quote: The former measured six feet and an inch in his stockings, and, without a single pound of cumbrous flesh about him, weighed a hundred and eighty. The latter was an inch shorter than his rival, and ten pounds lighter; but he was much the most active of the two.'''
-slug = '''the-former-measured-six-feet-and-an-inch-in-his-stockings-and-without-a-single-pound-of-cumbrous-flesh-about-him-weighed-a-hundred-and-eighty-the-latter-was-an-inch-shorter-than-his-rival-and-ten-pounds-lighter-but-he-was-much-the-most-active-of-the-two'''
-keywords = '''The former measured six feet and an inch in his stockings, and, without a single pound of cumbrous flesh about him, weighed a hundred and eighty. The latter was an inch shorter than his rival, and ten pounds lighter; but he was much the most active of the two.,augustus baldwin longstreet,augustus baldwin longstreet quotes,augustus baldwin longstreet quote,augustus baldwin longstreet sayings,augustus baldwin longstreet saying,quotes, sayings,quote, saying, motivation'''
-+++
-The former measured six feet and an inch in his stockings, and, without a single pound of cumbrous flesh about him, weighed a hundred and eighty. The latter was an inch shorter than his rival, and ten pounds lighter; but he was much the most active of the two.

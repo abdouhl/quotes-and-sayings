@@ -1,8 +1,0 @@
-+++
-author = "Abdullah Ii Of Jordan"
-title = '''Prime Minister Sharon, Prime Minister Abbas, I urge you today to end the designs of those who seek destruction, annihilation and occupation, and I urge you to have the will and the courage to begin to realize our dreams of peace, prosperity and coexistence.'''
-description = '''the best Abdullah Ii Of Jordan Quote: Prime Minister Sharon, Prime Minister Abbas, I urge you today to end the designs of those who seek destruction, annihilation and occupation, and I urge you to have the will and the courage to begin to realize our dreams of peace, prosperity and coexistence.'''
-slug = '''prime-minister-sharon-prime-minister-abbas-i-urge-you-today-to-end-the-designs-of-those-who-seek-destruction-annihilation-and-occupation-and-i-urge-you-to-have-the-will-and-the-courage-to-begin-to-realize-our-dreams-of-peace-prosperity-and-coexistence'''
-keywords = '''Prime Minister Sharon, Prime Minister Abbas, I urge you today to end the designs of those who seek destruction, annihilation and occupation, and I urge you to have the will and the courage to begin to realize our dreams of peace, prosperity and coexistence.,abdullah ii of jordan,abdullah ii of jordan quotes,abdullah ii of jordan quote,abdullah ii of jordan sayings,abdullah ii of jordan saying,quotes, sayings,quote, saying, motivation'''
-+++
-Prime Minister Sharon, Prime Minister Abbas, I urge you today to end the designs of those who seek destruction, annihilation and occupation, and I urge you to have the will and the courage to begin to realize our dreams of peace, prosperity and coexistence.
