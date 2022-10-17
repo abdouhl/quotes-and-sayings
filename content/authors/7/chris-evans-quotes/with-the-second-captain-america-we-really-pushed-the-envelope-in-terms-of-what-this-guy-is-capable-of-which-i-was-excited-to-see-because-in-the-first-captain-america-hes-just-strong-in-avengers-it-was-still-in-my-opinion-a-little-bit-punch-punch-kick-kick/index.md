@@ -1,8 +1,0 @@
-+++
-author = "Chris Evans"
-title = '''With the second 'Captain America,' we really pushed the envelope in terms of what this guy is capable of, which I was excited to see. Because in the first 'Captain America,' he's just strong. In 'Avengers,' it was still, in my opinion, a little bit 'punch, punch, kick, kick.''''
-description = '''the best Chris Evans Quote: With the second 'Captain America,' we really pushed the envelope in terms of what this guy is capable of, which I was excited to see. Because in the first 'Captain America,' he's just strong. In 'Avengers,' it was still, in my opinion, a little bit 'punch, punch, kick, kick.''''
-slug = '''with-the-second-captain-america-we-really-pushed-the-envelope-in-terms-of-what-this-guy-is-capable-of-which-i-was-excited-to-see-because-in-the-first-captain-america-hes-just-strong-in-avengers-it-was-still-in-my-opinion-a-little-bit-punch-punch-kick-kick'''
-keywords = '''With the second 'Captain America,' we really pushed the envelope in terms of what this guy is capable of, which I was excited to see. Because in the first 'Captain America,' he's just strong. In 'Avengers,' it was still, in my opinion, a little bit 'punch, punch, kick, kick.',chris evans,chris evans quotes,chris evans quote,chris evans sayings,chris evans saying,quotes, sayings,quote, saying, motivation'''
-+++
-With the second 'Captain America,' we really pushed the envelope in terms of what this guy is capable of, which I was excited to see. Because in the first 'Captain America,' he's just strong. In 'Avengers,' it was still, in my opinion, a little bit 'punch, punch, kick, kick.'

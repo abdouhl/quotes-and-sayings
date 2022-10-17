@@ -1,8 +1,0 @@
-+++
-author = "Cheo Hodari Coker"
-title = '''I'm not going to be one of those people who says, 'I'm a showrunner; I'm not a black showrunner.' I'm black when I go to sleep. I'm black when I wake up, period. It doesn't affect my perspective on everything, but at the same time, it's who I am, and I'm proud of it.'''
-description = '''the best Cheo Hodari Coker Quote: I'm not going to be one of those people who says, 'I'm a showrunner; I'm not a black showrunner.' I'm black when I go to sleep. I'm black when I wake up, period. It doesn't affect my perspective on everything, but at the same time, it's who I am, and I'm proud of it.'''
-slug = '''im-not-going-to-be-one-of-those-people-who-says-im-a-showrunner-im-not-a-black-showrunner-im-black-when-i-go-to-sleep-im-black-when-i-wake-up-period-it-doesnt-affect-my-perspective-on-everything-but-at-the-same-time-its-who-i-am-and-im-proud-of-it'''
-keywords = '''I'm not going to be one of those people who says, 'I'm a showrunner; I'm not a black showrunner.' I'm black when I go to sleep. I'm black when I wake up, period. It doesn't affect my perspective on everything, but at the same time, it's who I am, and I'm proud of it.,cheo hodari coker,cheo hodari coker quotes,cheo hodari coker quote,cheo hodari coker sayings,cheo hodari coker saying,quotes, sayings,quote, saying, motivation'''
-+++
-I'm not going to be one of those people who says, 'I'm a showrunner; I'm not a black showrunner.' I'm black when I go to sleep. I'm black when I wake up, period. It doesn't affect my perspective on everything, but at the same time, it's who I am, and I'm proud of it.

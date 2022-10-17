@@ -1,8 +1,0 @@
-+++
-author = "Christopher A. Wray"
-title = '''My view is that, if any public official or member of any campaign is contacted by any nation-state or anybody acting on behalf of a nation-state about influencing or interfering with our election, then that is something that the FBI would want to know about.'''
-description = '''the best Christopher A. Wray Quote: My view is that, if any public official or member of any campaign is contacted by any nation-state or anybody acting on behalf of a nation-state about influencing or interfering with our election, then that is something that the FBI would want to know about.'''
-slug = '''my-view-is-that-if-any-public-official-or-member-of-any-campaign-is-contacted-by-any-nation-state-or-anybody-acting-on-behalf-of-a-nation-state-about-influencing-or-interfering-with-our-election-then-that-is-something-that-the-fbi-would-want-to-know-about'''
-keywords = '''My view is that, if any public official or member of any campaign is contacted by any nation-state or anybody acting on behalf of a nation-state about influencing or interfering with our election, then that is something that the FBI would want to know about.,christopher a. wray,christopher a. wray quotes,christopher a. wray quote,christopher a. wray sayings,christopher a. wray saying,quotes, sayings,quote, saying, motivation'''
-+++
-My view is that, if any public official or member of any campaign is contacted by any nation-state or anybody acting on behalf of a nation-state about influencing or interfering with our election, then that is something that the FBI would want to know about.

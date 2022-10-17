@@ -1,8 +1,0 @@
-+++
-author = "Chloe Grace Moretz"
-title = '''A lot of people are like, 'So you want to be famous.' And I'm like, 'No, I want to be good at my craft. I don't care about fame, I don't care if I even ever make it. As long as people know what I am as an actress in this business, I'm set for my career right now.''''
-description = '''the best Chloe Grace Moretz Quote: A lot of people are like, 'So you want to be famous.' And I'm like, 'No, I want to be good at my craft. I don't care about fame, I don't care if I even ever make it. As long as people know what I am as an actress in this business, I'm set for my career right now.''''
-slug = '''a-lot-of-people-are-like-so-you-want-to-be-famous-and-im-like-no-i-want-to-be-good-at-my-craft-i-dont-care-about-fame-i-dont-care-if-i-even-ever-make-it-as-long-as-people-know-what-i-am-as-an-actress-in-this-business-im-set-for-my-career-right-now'''
-keywords = '''A lot of people are like, 'So you want to be famous.' And I'm like, 'No, I want to be good at my craft. I don't care about fame, I don't care if I even ever make it. As long as people know what I am as an actress in this business, I'm set for my career right now.',chloe grace moretz,chloe grace moretz quotes,chloe grace moretz quote,chloe grace moretz sayings,chloe grace moretz saying,quotes, sayings,quote, saying, motivation'''
-+++
-A lot of people are like, 'So you want to be famous.' And I'm like, 'No, I want to be good at my craft. I don't care about fame, I don't care if I even ever make it. As long as people know what I am as an actress in this business, I'm set for my career right now.'

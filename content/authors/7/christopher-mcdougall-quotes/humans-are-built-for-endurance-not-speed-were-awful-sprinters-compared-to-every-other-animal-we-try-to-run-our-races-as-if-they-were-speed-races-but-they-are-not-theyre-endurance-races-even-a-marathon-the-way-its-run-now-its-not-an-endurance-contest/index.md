@@ -1,8 +1,0 @@
-+++
-author = "Christopher Mcdougall"
-title = '''Humans are built for endurance, not speed. We're awful sprinters compared to every other animal. We try to run our races as if they were speed races, but they are not. They're endurance races. Even a marathon, the way it's run now, it's not an endurance contest.'''
-description = '''the best Christopher Mcdougall Quote: Humans are built for endurance, not speed. We're awful sprinters compared to every other animal. We try to run our races as if they were speed races, but they are not. They're endurance races. Even a marathon, the way it's run now, it's not an endurance contest.'''
-slug = '''humans-are-built-for-endurance-not-speed-were-awful-sprinters-compared-to-every-other-animal-we-try-to-run-our-races-as-if-they-were-speed-races-but-they-are-not-theyre-endurance-races-even-a-marathon-the-way-its-run-now-its-not-an-endurance-contest'''
-keywords = '''Humans are built for endurance, not speed. We're awful sprinters compared to every other animal. We try to run our races as if they were speed races, but they are not. They're endurance races. Even a marathon, the way it's run now, it's not an endurance contest.,christopher mcdougall,christopher mcdougall quotes,christopher mcdougall quote,christopher mcdougall sayings,christopher mcdougall saying,quotes, sayings,quote, saying, motivation'''
-+++
-Humans are built for endurance, not speed. We're awful sprinters compared to every other animal. We try to run our races as if they were speed races, but they are not. They're endurance races. Even a marathon, the way it's run now, it's not an endurance contest.
