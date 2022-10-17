@@ -1,8 +1,0 @@
-+++
-author = "Arthur M. Schlesinger, Jr."
-title = '''If we are to survive, we must have ideas, vision, and courage. These things are rarely produced by committees. Everything that matters in our intellectual and moral life begins with an individual confronting his own mind and conscience in a room by himself.'''
-description = '''the best Arthur M. Schlesinger, Jr. Quote: If we are to survive, we must have ideas, vision, and courage. These things are rarely produced by committees. Everything that matters in our intellectual and moral life begins with an individual confronting his own mind and conscience in a room by himself.'''
-slug = '''if-we-are-to-survive-we-must-have-ideas-vision-and-courage-these-things-are-rarely-produced-by-committees-everything-that-matters-in-our-intellectual-and-moral-life-begins-with-an-individual-confronting-his-own-mind-and-conscience-in-a-room-by-himself'''
-keywords = '''If we are to survive, we must have ideas, vision, and courage. These things are rarely produced by committees. Everything that matters in our intellectual and moral life begins with an individual confronting his own mind and conscience in a room by himself.,arthur m. schlesinger, jr.,arthur m. schlesinger, jr. quotes,arthur m. schlesinger, jr. quote,arthur m. schlesinger, jr. sayings,arthur m. schlesinger, jr. saying,quotes, sayings,quote, saying, motivation'''
-+++
-If we are to survive, we must have ideas, vision, and courage. These things are rarely produced by committees. Everything that matters in our intellectual and moral life begins with an individual confronting his own mind and conscience in a room by himself.

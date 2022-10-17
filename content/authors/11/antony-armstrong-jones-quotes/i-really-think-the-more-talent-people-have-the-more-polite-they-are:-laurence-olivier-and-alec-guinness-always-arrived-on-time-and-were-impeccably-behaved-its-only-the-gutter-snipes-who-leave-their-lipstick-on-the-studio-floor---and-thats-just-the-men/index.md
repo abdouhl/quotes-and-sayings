@@ -1,8 +1,0 @@
-+++
-author = "Antony Armstrong-Jones"
-title = '''I really think the more talent people have, the more polite they are: Laurence Olivier and Alec Guinness always arrived on time and were impeccably behaved. It's only the gutter snipes who leave their lipstick on the studio floor - and that's just the men.'''
-description = '''the best Antony Armstrong-Jones Quote: I really think the more talent people have, the more polite they are: Laurence Olivier and Alec Guinness always arrived on time and were impeccably behaved. It's only the gutter snipes who leave their lipstick on the studio floor - and that's just the men.'''
-slug = '''i-really-think-the-more-talent-people-have-the-more-polite-they-are:-laurence-olivier-and-alec-guinness-always-arrived-on-time-and-were-impeccably-behaved-its-only-the-gutter-snipes-who-leave-their-lipstick-on-the-studio-floor---and-thats-just-the-men'''
-keywords = '''I really think the more talent people have, the more polite they are: Laurence Olivier and Alec Guinness always arrived on time and were impeccably behaved. It's only the gutter snipes who leave their lipstick on the studio floor - and that's just the men.,antony armstrong-jones,antony armstrong-jones quotes,antony armstrong-jones quote,antony armstrong-jones sayings,antony armstrong-jones saying,quotes, sayings,quote, saying, motivation'''
-+++
-I really think the more talent people have, the more polite they are: Laurence Olivier and Alec Guinness always arrived on time and were impeccably behaved. It's only the gutter snipes who leave their lipstick on the studio floor - and that's just the men.
