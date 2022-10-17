@@ -1,8 +1,0 @@
-+++
-author = "Liam Cunningham"
-title = '''I don't feel superior because I think there's no God. Actually, I would love to be able to go, 'Well, the world hasn't been kind to me, but there's something good around the corner, because the Man has a plan.' I wish I believed that. There's wonderful comfort in that.'''
-description = '''the best Liam Cunningham Quote: I don't feel superior because I think there's no God. Actually, I would love to be able to go, 'Well, the world hasn't been kind to me, but there's something good around the corner, because the Man has a plan.' I wish I believed that. There's wonderful comfort in that.'''
-slug = '''i-dont-feel-superior-because-i-think-theres-no-god-actually-i-would-love-to-be-able-to-go-well-the-world-hasnt-been-kind-to-me-but-theres-something-good-around-the-corner-because-the-man-has-a-plan-i-wish-i-believed-that-theres-wonderful-comfort-in-that'''
-keywords = '''I don't feel superior because I think there's no God. Actually, I would love to be able to go, 'Well, the world hasn't been kind to me, but there's something good around the corner, because the Man has a plan.' I wish I believed that. There's wonderful comfort in that.,liam cunningham,liam cunningham quotes,liam cunningham quote,liam cunningham sayings,liam cunningham saying,quotes, sayings,quote, saying, motivation'''
-+++
-I don't feel superior because I think there's no God. Actually, I would love to be able to go, 'Well, the world hasn't been kind to me, but there's something good around the corner, because the Man has a plan.' I wish I believed that. There's wonderful comfort in that.

@@ -1,8 +1,0 @@
-+++
-author = "Liam Cunningham"
-title = '''I've never done a big series like 'Game of Thrones' before. All I knew was that it was HBO, and I'd seen what they had done with 'The Sopranos' and 'The Wire.' But when I started reading the script, it was a no-brainer. Yes, yes, yes. Gold. Every time I turned the page.'''
-description = '''the best Liam Cunningham Quote: I've never done a big series like 'Game of Thrones' before. All I knew was that it was HBO, and I'd seen what they had done with 'The Sopranos' and 'The Wire.' But when I started reading the script, it was a no-brainer. Yes, yes, yes. Gold. Every time I turned the page.'''
-slug = '''ive-never-done-a-big-series-like-game-of-thrones-before-all-i-knew-was-that-it-was-hbo-and-id-seen-what-they-had-done-with-the-sopranos-and-the-wire-but-when-i-started-reading-the-script-it-was-a-no-brainer-yes-yes-yes-gold-every-time-i-turned-the-page'''
-keywords = '''I've never done a big series like 'Game of Thrones' before. All I knew was that it was HBO, and I'd seen what they had done with 'The Sopranos' and 'The Wire.' But when I started reading the script, it was a no-brainer. Yes, yes, yes. Gold. Every time I turned the page.,liam cunningham,liam cunningham quotes,liam cunningham quote,liam cunningham sayings,liam cunningham saying,quotes, sayings,quote, saying, motivation'''
-+++
-I've never done a big series like 'Game of Thrones' before. All I knew was that it was HBO, and I'd seen what they had done with 'The Sopranos' and 'The Wire.' But when I started reading the script, it was a no-brainer. Yes, yes, yes. Gold. Every time I turned the page.

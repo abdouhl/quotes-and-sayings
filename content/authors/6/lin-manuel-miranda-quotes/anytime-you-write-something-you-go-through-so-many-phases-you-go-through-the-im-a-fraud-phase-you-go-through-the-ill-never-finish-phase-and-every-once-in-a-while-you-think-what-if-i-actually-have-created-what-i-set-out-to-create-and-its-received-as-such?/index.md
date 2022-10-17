@@ -1,8 +1,0 @@
-+++
-author = "Lin-Manuel Miranda"
-title = '''Anytime you write something, you go through so many phases. You go through the 'I'm a Fraud' phase. You go through the 'I'll Never Finish' phase. And every once in a while you think, 'What if I actually have created what I set out to create, and it's received as such?''''
-description = '''the best Lin-Manuel Miranda Quote: Anytime you write something, you go through so many phases. You go through the 'I'm a Fraud' phase. You go through the 'I'll Never Finish' phase. And every once in a while you think, 'What if I actually have created what I set out to create, and it's received as such?''''
-slug = '''anytime-you-write-something-you-go-through-so-many-phases-you-go-through-the-im-a-fraud-phase-you-go-through-the-ill-never-finish-phase-and-every-once-in-a-while-you-think-what-if-i-actually-have-created-what-i-set-out-to-create-and-its-received-as-such?'''
-keywords = '''Anytime you write something, you go through so many phases. You go through the 'I'm a Fraud' phase. You go through the 'I'll Never Finish' phase. And every once in a while you think, 'What if I actually have created what I set out to create, and it's received as such?',lin-manuel miranda,lin-manuel miranda quotes,lin-manuel miranda quote,lin-manuel miranda sayings,lin-manuel miranda saying,quotes, sayings,quote, saying, motivation'''
-+++
-Anytime you write something, you go through so many phases. You go through the 'I'm a Fraud' phase. You go through the 'I'll Never Finish' phase. And every once in a while you think, 'What if I actually have created what I set out to create, and it's received as such?'

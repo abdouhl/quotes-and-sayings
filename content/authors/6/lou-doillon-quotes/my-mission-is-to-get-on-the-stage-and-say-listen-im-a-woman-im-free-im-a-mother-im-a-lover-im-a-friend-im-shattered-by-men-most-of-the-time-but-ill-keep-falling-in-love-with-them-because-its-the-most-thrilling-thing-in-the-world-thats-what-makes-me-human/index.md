@@ -1,8 +1,0 @@
-+++
-author = "Lou Doillon"
-title = '''My mission is to get on the stage and say, 'Listen, I'm a woman, I'm free, I'm a mother, I'm a lover, I'm a friend; I'm shattered by men most of the time, but I'll keep falling in love with them because it's the most thrilling thing in the world; that's what makes me human.''''
-description = '''the best Lou Doillon Quote: My mission is to get on the stage and say, 'Listen, I'm a woman, I'm free, I'm a mother, I'm a lover, I'm a friend; I'm shattered by men most of the time, but I'll keep falling in love with them because it's the most thrilling thing in the world; that's what makes me human.''''
-slug = '''my-mission-is-to-get-on-the-stage-and-say-listen-im-a-woman-im-free-im-a-mother-im-a-lover-im-a-friend-im-shattered-by-men-most-of-the-time-but-ill-keep-falling-in-love-with-them-because-its-the-most-thrilling-thing-in-the-world-thats-what-makes-me-human'''
-keywords = '''My mission is to get on the stage and say, 'Listen, I'm a woman, I'm free, I'm a mother, I'm a lover, I'm a friend; I'm shattered by men most of the time, but I'll keep falling in love with them because it's the most thrilling thing in the world; that's what makes me human.',lou doillon,lou doillon quotes,lou doillon quote,lou doillon sayings,lou doillon saying,quotes, sayings,quote, saying, motivation'''
-+++
-My mission is to get on the stage and say, 'Listen, I'm a woman, I'm free, I'm a mother, I'm a lover, I'm a friend; I'm shattered by men most of the time, but I'll keep falling in love with them because it's the most thrilling thing in the world; that's what makes me human.'
