@@ -1,8 +1,0 @@
-+++
-author = "Chris Bosh"
-title = '''You learn to respect team chemistry. It's the fourth quarter, there's two minutes left, the shot clock is winding down, and we're like, 'What do we do?' We didn't have that flow. Chemistry comes down to repetition. It's not, 'We've played some games; we have chemistry now.''''
-description = '''the best Chris Bosh Quote: You learn to respect team chemistry. It's the fourth quarter, there's two minutes left, the shot clock is winding down, and we're like, 'What do we do?' We didn't have that flow. Chemistry comes down to repetition. It's not, 'We've played some games; we have chemistry now.''''
-slug = '''you-learn-to-respect-team-chemistry-its-the-fourth-quarter-theres-two-minutes-left-the-shot-clock-is-winding-down-and-were-like-what-do-we-do?-we-didnt-have-that-flow-chemistry-comes-down-to-repetition-its-not-weve-played-some-games-we-have-chemistry-now'''
-keywords = '''You learn to respect team chemistry. It's the fourth quarter, there's two minutes left, the shot clock is winding down, and we're like, 'What do we do?' We didn't have that flow. Chemistry comes down to repetition. It's not, 'We've played some games; we have chemistry now.',chris bosh,chris bosh quotes,chris bosh quote,chris bosh sayings,chris bosh saying,quotes, sayings,quote, saying, motivation'''
-+++
-You learn to respect team chemistry. It's the fourth quarter, there's two minutes left, the shot clock is winding down, and we're like, 'What do we do?' We didn't have that flow. Chemistry comes down to repetition. It's not, 'We've played some games; we have chemistry now.'

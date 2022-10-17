@@ -1,8 +1,0 @@
-+++
-author = "Chitra Banerjee Divakaruni"
-title = '''Sometimes what is 'real' because it takes place in the physical world, like 9/11, is so unreal on the level of the soul. Then other things, which in terms of the physical world seem so magical and unbelievable, on the level of the soul seem very real.'''
-description = '''the best Chitra Banerjee Divakaruni Quote: Sometimes what is 'real' because it takes place in the physical world, like 9/11, is so unreal on the level of the soul. Then other things, which in terms of the physical world seem so magical and unbelievable, on the level of the soul seem very real.'''
-slug = '''sometimes-what-is-real-because-it-takes-place-in-the-physical-world-like-911-is-so-unreal-on-the-level-of-the-soul-then-other-things-which-in-terms-of-the-physical-world-seem-so-magical-and-unbelievable-on-the-level-of-the-soul-seem-very-real'''
-keywords = '''Sometimes what is 'real' because it takes place in the physical world, like 9/11, is so unreal on the level of the soul. Then other things, which in terms of the physical world seem so magical and unbelievable, on the level of the soul seem very real.,chitra banerjee divakaruni,chitra banerjee divakaruni quotes,chitra banerjee divakaruni quote,chitra banerjee divakaruni sayings,chitra banerjee divakaruni saying,quotes, sayings,quote, saying, motivation'''
-+++
-Sometimes what is 'real' because it takes place in the physical world, like 9/11, is so unreal on the level of the soul. Then other things, which in terms of the physical world seem so magical and unbelievable, on the level of the soul seem very real.

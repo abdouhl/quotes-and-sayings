@@ -1,8 +1,0 @@
-+++
-author = "Charlotte Le Bon"
-title = '''Food from Quebec is not known to be amazing. Actually, even though you can eat really, really well in Montreal, it's crazy. It's one of the best cities I eat in, but typical Quebec food is like food from people that work in the woods. It's potatoes, meat and sauce.'''
-description = '''the best Charlotte Le Bon Quote: Food from Quebec is not known to be amazing. Actually, even though you can eat really, really well in Montreal, it's crazy. It's one of the best cities I eat in, but typical Quebec food is like food from people that work in the woods. It's potatoes, meat and sauce.'''
-slug = '''food-from-quebec-is-not-known-to-be-amazing-actually-even-though-you-can-eat-really-really-well-in-montreal-its-crazy-its-one-of-the-best-cities-i-eat-in-but-typical-quebec-food-is-like-food-from-people-that-work-in-the-woods-its-potatoes-meat-and-sauce'''
-keywords = '''Food from Quebec is not known to be amazing. Actually, even though you can eat really, really well in Montreal, it's crazy. It's one of the best cities I eat in, but typical Quebec food is like food from people that work in the woods. It's potatoes, meat and sauce.,charlotte le bon,charlotte le bon quotes,charlotte le bon quote,charlotte le bon sayings,charlotte le bon saying,quotes, sayings,quote, saying, motivation'''
-+++
-Food from Quebec is not known to be amazing. Actually, even though you can eat really, really well in Montreal, it's crazy. It's one of the best cities I eat in, but typical Quebec food is like food from people that work in the woods. It's potatoes, meat and sauce.

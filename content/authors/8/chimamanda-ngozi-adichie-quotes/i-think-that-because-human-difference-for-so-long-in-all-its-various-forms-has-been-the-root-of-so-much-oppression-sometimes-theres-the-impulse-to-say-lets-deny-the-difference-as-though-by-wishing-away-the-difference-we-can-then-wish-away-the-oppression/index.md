@@ -1,8 +1,0 @@
-+++
-author = "Chimamanda Ngozi Adichie"
-title = '''I think that because human difference for so long, in all its various forms, has been the root of so much oppression, sometimes there's the impulse to say let's deny the difference, as though by wishing away the difference we can then wish away the oppression.'''
-description = '''the best Chimamanda Ngozi Adichie Quote: I think that because human difference for so long, in all its various forms, has been the root of so much oppression, sometimes there's the impulse to say let's deny the difference, as though by wishing away the difference we can then wish away the oppression.'''
-slug = '''i-think-that-because-human-difference-for-so-long-in-all-its-various-forms-has-been-the-root-of-so-much-oppression-sometimes-theres-the-impulse-to-say-lets-deny-the-difference-as-though-by-wishing-away-the-difference-we-can-then-wish-away-the-oppression'''
-keywords = '''I think that because human difference for so long, in all its various forms, has been the root of so much oppression, sometimes there's the impulse to say let's deny the difference, as though by wishing away the difference we can then wish away the oppression.,chimamanda ngozi adichie,chimamanda ngozi adichie quotes,chimamanda ngozi adichie quote,chimamanda ngozi adichie sayings,chimamanda ngozi adichie saying,quotes, sayings,quote, saying, motivation'''
-+++
-I think that because human difference for so long, in all its various forms, has been the root of so much oppression, sometimes there's the impulse to say let's deny the difference, as though by wishing away the difference we can then wish away the oppression.

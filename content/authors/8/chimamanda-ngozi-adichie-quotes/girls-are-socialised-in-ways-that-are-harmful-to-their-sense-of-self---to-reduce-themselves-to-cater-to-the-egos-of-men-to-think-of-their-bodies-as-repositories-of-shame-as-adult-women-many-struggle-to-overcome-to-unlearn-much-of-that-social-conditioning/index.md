@@ -1,8 +1,0 @@
-+++
-author = "Chimamanda Ngozi Adichie"
-title = '''Girls are socialised in ways that are harmful to their sense of self - to reduce themselves, to cater to the egos of men, to think of their bodies as repositories of shame. As adult women, many struggle to overcome, to unlearn, much of that social conditioning.'''
-description = '''the best Chimamanda Ngozi Adichie Quote: Girls are socialised in ways that are harmful to their sense of self - to reduce themselves, to cater to the egos of men, to think of their bodies as repositories of shame. As adult women, many struggle to overcome, to unlearn, much of that social conditioning.'''
-slug = '''girls-are-socialised-in-ways-that-are-harmful-to-their-sense-of-self---to-reduce-themselves-to-cater-to-the-egos-of-men-to-think-of-their-bodies-as-repositories-of-shame-as-adult-women-many-struggle-to-overcome-to-unlearn-much-of-that-social-conditioning'''
-keywords = '''Girls are socialised in ways that are harmful to their sense of self - to reduce themselves, to cater to the egos of men, to think of their bodies as repositories of shame. As adult women, many struggle to overcome, to unlearn, much of that social conditioning.,chimamanda ngozi adichie,chimamanda ngozi adichie quotes,chimamanda ngozi adichie quote,chimamanda ngozi adichie sayings,chimamanda ngozi adichie saying,quotes, sayings,quote, saying, motivation'''
-+++
-Girls are socialised in ways that are harmful to their sense of self - to reduce themselves, to cater to the egos of men, to think of their bodies as repositories of shame. As adult women, many struggle to overcome, to unlearn, much of that social conditioning.

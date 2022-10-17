@@ -1,8 +1,0 @@
-+++
-author = "Charity Sunshine Tillemann-Dick"
-title = '''I, for one, am profoundly grateful to feel the hand of God at work in my life. But at the beginning and end of the day, when my default setting is to show kindness and love to others, I never regret it. And to me, that is what faith is all about.'''
-description = '''the best Charity Sunshine Tillemann-Dick Quote: I, for one, am profoundly grateful to feel the hand of God at work in my life. But at the beginning and end of the day, when my default setting is to show kindness and love to others, I never regret it. And to me, that is what faith is all about.'''
-slug = '''i-for-one-am-profoundly-grateful-to-feel-the-hand-of-god-at-work-in-my-life-but-at-the-beginning-and-end-of-the-day-when-my-default-setting-is-to-show-kindness-and-love-to-others-i-never-regret-it-and-to-me-that-is-what-faith-is-all-about'''
-keywords = '''I, for one, am profoundly grateful to feel the hand of God at work in my life. But at the beginning and end of the day, when my default setting is to show kindness and love to others, I never regret it. And to me, that is what faith is all about.,charity sunshine tillemann-dick,charity sunshine tillemann-dick quotes,charity sunshine tillemann-dick quote,charity sunshine tillemann-dick sayings,charity sunshine tillemann-dick saying,quotes, sayings,quote, saying, motivation'''
-+++
-I, for one, am profoundly grateful to feel the hand of God at work in my life. But at the beginning and end of the day, when my default setting is to show kindness and love to others, I never regret it. And to me, that is what faith is all about.

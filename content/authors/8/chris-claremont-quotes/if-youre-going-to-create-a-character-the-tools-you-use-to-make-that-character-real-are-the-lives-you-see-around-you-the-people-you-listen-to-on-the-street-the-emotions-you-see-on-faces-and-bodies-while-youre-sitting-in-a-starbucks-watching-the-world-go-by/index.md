@@ -1,8 +1,0 @@
-+++
-author = "Chris Claremont"
-title = '''If you're going to create a character, the tools you use to make that character 'real' are the lives you see around you. The people you listen to on the street. The emotions you see on faces and bodies while you're sitting... in a Starbucks, watching the world go by.'''
-description = '''the best Chris Claremont Quote: If you're going to create a character, the tools you use to make that character 'real' are the lives you see around you. The people you listen to on the street. The emotions you see on faces and bodies while you're sitting... in a Starbucks, watching the world go by.'''
-slug = '''if-youre-going-to-create-a-character-the-tools-you-use-to-make-that-character-real-are-the-lives-you-see-around-you-the-people-you-listen-to-on-the-street-the-emotions-you-see-on-faces-and-bodies-while-youre-sitting-in-a-starbucks-watching-the-world-go-by'''
-keywords = '''If you're going to create a character, the tools you use to make that character 'real' are the lives you see around you. The people you listen to on the street. The emotions you see on faces and bodies while you're sitting... in a Starbucks, watching the world go by.,chris claremont,chris claremont quotes,chris claremont quote,chris claremont sayings,chris claremont saying,quotes, sayings,quote, saying, motivation'''
-+++
-If you're going to create a character, the tools you use to make that character 'real' are the lives you see around you. The people you listen to on the street. The emotions you see on faces and bodies while you're sitting... in a Starbucks, watching the world go by.
