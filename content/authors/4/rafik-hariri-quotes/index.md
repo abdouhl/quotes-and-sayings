@@ -1,0 +1,8 @@
++++
+author = "Rafik Hariri"
+title = "Rafik Hariri Quotes"
+quotes_len = "9"
+description = "the best 9 Rafik Hariri Quotes"
+keywords = "rafik hariri,rafik hariri quotes,rafik hariri quote,rafik hariri sayings,rafik hariri saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''We need to restore the confidence in the country, first of all.''' ,'''We want to see Israel withdraw from our territory. But we don't want to be accountable vis-a-vis Israel on the security basis, because we don't see, in the absence of a peace agreement, that Lebanon can really be accountable to Israel if anything happens.''' ,'''Mehlis will go all the way and we want to go all the way. These arrests show that no matter how high the perpetrators are, they will face the consequences of what they did.''' ,'''On the other hand, we have in Israel, an Israeli government which has been elected by the Israeli people. Their political agenda is not for peace. They are from the camp anti-peace.''' ,'''And on the other hand, we see that the Israeli government is attacking that part of the Palestinian leader.''' ,'''I never threatened him and no Syrian intelligence officer has ever pointed a gun to his head.''' ,'''You know, it is very clear that the Israelis, they don't want this plan and they don't agree.''' ,'''We don't think that we are in a quarrel with anybody. We may have a difference of opinion, but we'll not allow such differences of opinion to grow into a problem that stands in the way of reconstructing the country and regaining the democratic path.''' ,'''The Lebanese people voted this time for change. So they are not satisfied with the actual situation. They want to see a new government. They want to see a new vision.''' ,]
++++

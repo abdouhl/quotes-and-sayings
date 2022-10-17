@@ -1,0 +1,8 @@
++++
+author = "Haley Lu Richardson"
+title = "Haley Lu Richardson Quotes"
+quotes_len = "6"
+description = "the best 6 Haley Lu Richardson Quotes"
+keywords = "haley lu richardson,haley lu richardson quotes,haley lu richardson quote,haley lu richardson sayings,haley lu richardson saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''I had a stunt double for 'The Bronze.' She's literally the most amazing human being I've ever seen. She's NCAA women's gymnastics champion. She was incredible. I would poke her thighs, and my nail would break because it was like poking a rock.''' ,'''I moved when I was 16. I had no clue what to expect in moving to L.A. I had no clue, really, about what acting was. I just knew that I wanted to do it.''' ,'''I was always the smallest role in community theater and school plays. I always had two lines - I was the kid that came on stage and said one thing and then left, and that was my part for the play.''' ,'''I'm lucky because I had blonde hair for a while for this TV show I was doing - they had me dye my hair blonde - and every audition I was going out for was bleach blonde. The mean girl, the pretty girlfriend, and the dumb cheerleader.''' ,'''My head is in the game! Like 'High School Musical' taught me. I know what I want, and I know, too, now that you take your craft seriously, but you don't have to take yourself seriously.''' ,'''A lot of people get stereotyped into roles just from how they look, and I have played such a variety of characters.''' ,]
++++

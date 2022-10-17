@@ -1,0 +1,8 @@
++++
+author = "Clarence Day"
+title = "Clarence Day Quotes"
+quotes_len = "14"
+description = "the best 14 Clarence Day Quotes"
+keywords = "clarence day,clarence day quotes,clarence day quote,clarence day sayings,clarence day saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''Ants are good citizens, they place group interests first.''' ,'''The ant is knowing and wise, but he doesn't know enough to take a vacation.''' ,'''Reason is the servant of instinct.''' ,'''You can't sweep other people off their feet, if you can't be swept off your own.''' ,'''There is an art of reading, as well as an art of thinking, and an art of writing.''' ,'''Age should not have its face lifted, but it should rather teach the world to admire wrinkles as the etchings of experience and the firm line of character.''' ,'''If your parents didn't have any children, there's a good chance that you won't have any.''' ,'''We talk of our mastery of nature, which sounds very grand; but the fact is we respectfully adapt ourselves, first, to her ways.''' ,'''Creatures whose mainspring is curiosity enjoy the accumulating of facts far more than the pausing at times to reflect on those facts.''' ,'''If you don't go to other men's funerals, they won't go to yours.''' ,'''Information's pretty thin stuff unless mixed with experience.''' ,'''We must make the best of those ills which cannot be avoided.''' ,'''Too many moralists begin with a dislike of reality.''' ,'''A moderate addiction to money may not always be hurtful; but when taken in excess it is nearly always bad for the health.''' ,]
++++

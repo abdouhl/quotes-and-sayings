@@ -1,0 +1,8 @@
++++
+author = "Ronald Fisher"
+title = "Ronald Fisher Quotes"
+quotes_len = "9"
+description = "the best 9 Ronald Fisher Quotes"
+keywords = "ronald fisher,ronald fisher quotes,ronald fisher quote,ronald fisher sayings,ronald fisher saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''Natural selection is a mechanism for generating an exceedingly high degree of improbability.''' ,'''To call in the statistician after the experiment is done may be no more than asking him to perform a post-mortem examination: he may be able to say what the experiment died of.''' ,'''We have the duty of formulating, of summarizing, and of communicating our conclusions, in intelligible form, in recognition of the right of other free minds to utilize them in making their own decisions.''' ,'''In scientific subjects, the natural remedy for dogmatism has been found in research.''' ,'''The analysis of variance is not a mathematical theorem, but rather a convenient method of arranging the arithmetic.''' ,'''Natural selection is not evolution.''' ,'''The tendency of modern scientific teaching is to neglect the great books, to lay far too much stress upon relatively unimportant modern work, and to present masses of detail of doubtful truth and questionable weight in such a way as to obscure principles.''' ,'''To consult the statistician after an experiment is finished is often merely to ask him to conduct a post mortem examination. He can perhaps say what the experiment died of.''' ,'''I believe sanity and realism can be restored to the teaching of Mathematical Statistics most easily and directly by entrusting such teaching largely to men and women who have had personal experience of research in the Natural Sciences.''' ,]
++++

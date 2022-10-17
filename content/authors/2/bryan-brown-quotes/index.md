@@ -1,0 +1,8 @@
++++
+author = "Bryan Brown"
+title = "Bryan Brown Quotes"
+quotes_len = "9"
+description = "the best 9 Bryan Brown Quotes"
+keywords = "bryan brown,bryan brown quotes,bryan brown quote,bryan brown sayings,bryan brown saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''Because I like theatre and I love a challenge. With 'ZEBRA!' I've found a new Australian play where I can create a character first - that's what I live to do.''' ,'''I'm a Sydney suburban boy shaped entirely by the western suburbs.''' ,'''I wanted to be an actor, and when that day happened that was sort of like the end. Now let it take me.''' ,'''When you live in a place, you're not just taking from it, you're contributing to it. In America I would never be able to make myself a person who could contribute. I wasn't interested in that society; I was interested in this society.''' ,'''We are always going to be influenced by America... I watched the word 'bum' go out and 'butt' come in. And part of me says, oh that's a shame, but Aussie boys are still Aussie boys.''' ,'''You know, I stumble about what I'm going to do. I don't plan. I've never had ambitions.''' ,'''Look, I've always been a confident bloke. I'm grateful to my mother for that.''' ,'''It costs a lot of money to release a movie. What you'd call art-house movies - movies that don't have big stars or big budgets - they're very hard for distributors to get behind 'em and take chances.''' ,'''I simply went down there to catch up with an old mate of mine, who owns the place. He's the one who wrote the book on the place, but no, no movie, just a beer.''' ,]
++++

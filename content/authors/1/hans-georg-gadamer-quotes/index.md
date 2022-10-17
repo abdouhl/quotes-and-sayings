@@ -1,0 +1,8 @@
++++
+author = "Hans-Georg Gadamer"
+title = "Hans-Georg Gadamer Quotes"
+quotes_len = "9"
+description = "the best 9 Hans-Georg Gadamer Quotes"
+keywords = "hans-georg gadamer,hans-georg gadamer quotes,hans-georg gadamer quote,hans-georg gadamer sayings,hans-georg gadamer saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''The focus of subjectivity is a distorting mirror.''' ,'''It is one of the primary motives of modern art that it wants to abolish the distance which the viewer, the consumer, the audience maintain vis-a-vis a work of art.''' ,'''I basically only read books that are over 2,000 years old.''' ,'''The real being of language is that into which we are taken up when we hear it - what is said.''' ,'''The more language is a living operation, the less we are aware of it. Thus it follows from the self-forgetfulness of language that its real being consists in what is said in it.''' ,'''In fact history does not belong to us; but we belong to it.''' ,'''Long before we understand ourselves through the process of self-examination, we understand ourselves in a self-evident way in the family, society and state in which we live.''' ,'''Nothing exists except through language.''' ,'''It was clear to me that the forms of consciousness of our inherited and acquired historical education - aesthetic consciousness and historical consciousness - presented alienated forms of our true historical being.''' ,]
++++

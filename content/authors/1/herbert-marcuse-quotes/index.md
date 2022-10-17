@@ -1,0 +1,8 @@
++++
+author = "Herbert Marcuse"
+title = "Herbert Marcuse Quotes"
+quotes_len = "10"
+description = "the best 10 Herbert Marcuse Quotes"
+keywords = "herbert marcuse,herbert marcuse quotes,herbert marcuse quote,herbert marcuse sayings,herbert marcuse saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''At the highest stage of capitalism, the most necessary revolution appears as the most unlikely one.''' ,'''That which is cannot be true.''' ,'''The web of domination has become the web of Reason itself, and this society is fatally entangled in it.''' ,'''The criterion for free choice can never be an absolute one, but neither is it entirely relative.''' ,'''The people recognize themselves in their commodities; they find their soul in their automobile, hi-fi set, split-level home, kitchen equipment.''' ,'''The range of choice open to the individual is not the decisive factor in determining the degree of human freedom, but what can be chosen and what is chosen by the individual.''' ,'''Obscenity is a moral concept in the verbal arsenal of the establishment, which abuses the term by applying it, not to expressions of its own morality but to those of another.''' ,'''Not every problem someone has with his girlfriend is necessarily due to the capitalist mode of production.''' ,'''Free election of masters does not abolish the masters or the slaves.''' ,'''Under the rule of a repressive whole, liberty can be made into a powerful instrument of domination.''' ,]
++++

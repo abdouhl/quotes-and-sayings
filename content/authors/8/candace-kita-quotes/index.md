@@ -1,0 +1,8 @@
++++
+author = "Candace Kita"
+title = "Candace Kita Quotes"
+quotes_len = "11"
+description = "the best 11 Candace Kita Quotes"
+keywords = "candace kita,candace kita quotes,candace kita quote,candace kita sayings,candace kita saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''I still call Texas home. It is where I spent most of my life growing up.''' ,'''The horror genre is my personal favorite. But then again, I was the kid who read coroner books for fun.''' ,'''I learned American Sign Language in college and seemed to pick it up rather quickly. I really love to sign and wish that I had more friends to sign with.''' ,'''I've never been a waitress, hostess, bartender or any of the typical side jobs you'd expect an actor to have. This is partly because I've always been afraid of dropping plates on customer's heads.''' ,'''Modeling is great because I don't have lines to memorize. But I find acting much more challenging - which is a good thing!''' ,'''Whatever your political affiliation may be, whether you are a conservative or liberal, we should all be bound by the belief that we need to support the troops.''' ,'''One time, I was posing on a car for a calendar shoot. I was doused with oil and literally slid off the car, bikini, heels and all!''' ,'''I love comics and have since I was a kid. That is what gave me the idea to create my own.''' ,'''In my humble opinion, preserving racial purity isn't a worthwhile goal. You should be able to date whomever, whenever, wherever without the threat of a backlash.''' ,'''I love cars, but I love bikes more.''' ,'''I was approached in Texas to be a model a few times. One of my first jobs was the cover of a CD.''' ,]
++++

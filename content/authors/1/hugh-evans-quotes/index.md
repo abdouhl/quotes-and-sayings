@@ -1,0 +1,8 @@
++++
+author = "Hugh Evans"
+title = "Hugh Evans Quotes"
+quotes_len = "7"
+description = "the best 7 Hugh Evans Quotes"
+keywords = "hugh evans,hugh evans quotes,hugh evans quote,hugh evans sayings,hugh evans saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''America has a critical place to play in the end of extreme poverty.''' ,'''History shows that all protest movements rely on symbols - boycotts, strikes, sit-ins, flags, songs. Symbolic action on whatever scale - from the Montgomery Bus Boycott to wearing a simple wristband - is designed to disrupt our everyday complacency and force people to think.''' ,'''The Global Poverty Project's mission is to stand up for the world's poorest people. We fight for the full funding of Millennium Development Goals and advocate meaningful change to government and corporate policies that block progress and entrench injustice.''' ,'''Global poverty is the product of reversible policy failures overseen by politicians, past and present. The poorest of the poor don't vote in American or European elections. They don't make donations to political parties or hire lobbyists in D.C., London or Canberra.''' ,'''When I was 13, I did become a Christian. And so it was when I was 13, that I thought... I just... I really saw a good example in Jesus and how he was just so... such a tremendous radical love and service of the poor. I just thought, 'Man, why can't we all do the same?'''' ,'''I really consider my goal is that, wherever I am in life, I want to be a social advocate.''' ,'''Live Below the Line raises real money to help the world's poorest people, but it is also a symbolic demonstration aimed at highlighting - not replicating - the plight of the world's poor.''' ,]
++++

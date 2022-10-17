@@ -1,0 +1,8 @@
++++
+author = "Lillian Smith"
+title = "Lillian Smith Quotes"
+quotes_len = "9"
+description = "the best 9 Lillian Smith Quotes"
+keywords = "lillian smith,lillian smith quotes,lillian smith quote,lillian smith sayings,lillian smith saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''The lack of belief is a defect that ought to be concealed when it cannot be overcome.''' ,'''To believe in something not yet proved and to underwrite it with our lives: it is the only way we can leave the future open.''' ,'''Man, born of woman, has found it a hard thing to forgive her for giving him birth. The patriarchal protest against the ancient matriarch has borne strange fruit through the years.''' ,'''Rich folks always talk hard times.''' ,'''Faith and doubt both are needed - not as antagonists, but working side by side to take us around the unknown curve.''' ,'''We need not feel ashamed of flirting with the zodiac. The zodiac is well worth flirting with.''' ,'''When you stop learning, stop listening, stop looking and asking questions, always new questions, then it is time to die.''' ,'''Education is a private matter between the person and the world of knowledge and experience, and has little to do with school or college.''' ,'''The human heart dares not stay away too long from that which hurt it most. There is a return journey to anguish that few of us are released from making.''' ,]
++++

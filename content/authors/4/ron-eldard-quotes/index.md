@@ -1,0 +1,8 @@
++++
+author = "Ron Eldard"
+title = "Ron Eldard Quotes"
+quotes_len = "11"
+description = "the best 11 Ron Eldard Quotes"
+keywords = "ron eldard,ron eldard quotes,ron eldard quote,ron eldard sayings,ron eldard saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''I feel blessed that I am able to play really dark guys in a business where they usually want you to play the same character over and over. Poor Michael Rapaport will being playing white homeboys till the day he dies. That's not the kind of career I want.''' ,'''I have to say... Justine Bateman may be the most underrated sitcom actress ever.''' ,'''I love Rob Schneider.''' ,'''I can play really terrible human beings, and I seem to have a quality that people can, if not necessarily forgive me those sins, at least cut me some slack.''' ,'''I have worked with a lot of kids. Most of them have been really lovely. But there are a lot of trappings.''' ,'''Independent films, for the most part, to me, are not so independent. They often feel like people auditioning for a big commercial career. They often do not have independent spirit to them.''' ,'''I'll just say it: I love Sundance; my very first film won Sundance.''' ,'''I tend toward characters who are more lost than found.''' ,'''It was a total accident that I walked into my 'Super 8' audition looking exactly right for the part.''' ,'''I did a show called 'Bakersfield, P.D.' That was one of the best things I have ever done.''' ,'''Because of 'Lost,' particularly, J.J. Abrams's fans are all over his stuff.''' ,]
++++

@@ -1,0 +1,8 @@
++++
+author = "Cliff Burton"
+title = "Cliff Burton Quotes"
+quotes_len = "12"
+description = "the best 12 Cliff Burton Quotes"
+keywords = "cliff burton,cliff burton quotes,cliff burton quote,cliff burton sayings,cliff burton saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''To live is to die.''' ,'''Every once in awhile we may fall on our face, but we insist on doing what we wanna do.''' ,'''As a kid, I said, 'I want to write for movies.' When I finally had that opportunity it was like I was able to exhale. 'Wow, I'm finally doing this for real.'''' ,'''We do what we want. We don't care what anyone else thinks.''' ,'''You don't burn out from going too fast. You burn out from going too slow and getting bored.''' ,'''Control your life through insanity.''' ,'''Just keep going like crazy and look back when it's over. Otherwise you just get confused.''' ,'''Why should we change onstage? We're not trying to be something big and fancy, it's just us, doing what we do, we'd like to keep it that way.''' ,'''Personally, I would say the 'master' of this whole thing is fate... Whoever is on the playing field is fair game, and it's up to them to avoid being used.''' ,'''The studio is just a labor. Getting on stage is the reward.''' ,'''Those that start things have an advantage over those that follow.''' ,'''If someone has it inside them to commit an act, then that act would be committed anyway. It's very easy for someone to place the blame on something other than the person who committed the act. It's people looking for scapegoats, you know?''' ,]
++++

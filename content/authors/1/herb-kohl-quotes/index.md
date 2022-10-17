@@ -1,0 +1,8 @@
++++
+author = "Herb Kohl"
+title = "Herb Kohl Quotes"
+quotes_len = "10"
+description = "the best 10 Herb Kohl Quotes"
+keywords = "herb kohl,herb kohl quotes,herb kohl quote,herb kohl sayings,herb kohl saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''Before we decide to trust you with this power, we ask you to stand before the public and explain your views. Justice may be blind, but it should not be deaf.''' ,'''I will vote my hopes and not my fears.''' ,'''We need to take steps to strengthen and mend Social Security so that its promise of a secure retirement is just as real for seniors in the future as it is today.''' ,'''Bankruptcy is a serious decision that people have to make.''' ,'''After a week of back and forth, and forth and back over firearms, it's good to see a consensus developing on this common-sense amendment to keep handguns away from children.''' ,'''As all of us with any involvement in sports knows, no two umpires or no two referees have the same strike zone or call the same kind of a basketball game.''' ,'''It's time to stop defending a system that is clearly in dire need of reform, stop issuing reports and setting up new roadblocks, and start providing Americans with prescription drugs that are both safe and affordable.''' ,'''When the President makes something a priority, we see action.''' ,'''We cannot and will not ban the creation of violent video games. But, we can prevent the distribution of these disturbing games to children, where their effects can be negative.''' ,'''Even as we pour hundreds of billions of dollars into our efforts in the Middle East, there is much that needs to be done to win the war of ideas in the Muslim world and beyond.''' ,]
++++

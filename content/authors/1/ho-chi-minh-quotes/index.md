@@ -1,0 +1,8 @@
++++
+author = "Ho Chi Minh"
+title = "Ho Chi Minh Quotes"
+quotes_len = "12"
+description = "the best 12 Ho Chi Minh Quotes"
+keywords = "ho chi minh,ho chi minh quotes,ho chi minh quote,ho chi minh sayings,ho chi minh saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''Nothing is more precious than independence and liberty.''' ,'''But by reading them again and again finally I was able to grasp the essential part. What emotion, enthusiasm, enlightenment and confidence they communicated to me! I wept for joy.''' ,'''I only follow one party: the Vietnamese party.''' ,'''It was patriotism, not communism, that inspired me.''' ,'''The Vietnamese people deeply love independence, freedom and peace. But in the face of United States aggression they have risen up, united as one man.''' ,'''The object of my relationship with Vietnam has been to heal the wounds that exist, particularly among our veterans, and to move forward with a positive relationship,... Apparently some in the Vietnamese government don't want to do that and that's their decision.''' ,'''Write in such a way as that you can be readily understood by both the young and the old, by men as well as women, even by children.''' ,'''When the prison doors are opened, the real dragon will fly out.''' ,'''Love other human beings as you would love yourself.''' ,'''You can kill ten of our men for every one we kill of yours. But even at those odds, you will lose and we will win.''' ,'''Remember, the storm is a good opportunity for the pine and the cypress to show their strength and their stability.''' ,'''You will kill 10 of our men, and we will kill 1 of yours, and in the end it will be you who tire of it.''' ,]
++++

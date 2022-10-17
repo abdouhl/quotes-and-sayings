@@ -1,0 +1,8 @@
++++
+author = "Brian Jordan"
+title = "Brian Jordan Quotes"
+quotes_len = "9"
+description = "the best 9 Brian Jordan Quotes"
+keywords = "brian jordan,brian jordan quotes,brian jordan quote,brian jordan sayings,brian jordan saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''I'm in Alabama. First thing I want to say is Roll Tide! I was at the Alabama/Georgia game last year sitting right in the middle of the Alabama section and saw that they rolled all over them!''' ,'''Last year was a tough decision for me, to end my season so short. But it was the right decision for me, because right now I feel great. I can go out here and sprint full speed right now, but I'm just going to pace myself for April 5.''' ,'''It feels great to be home, great to be back as a part of the community.''' ,'''I'm in great shape, back-in-my-football-days shape. I've worked hard to get to this point.''' ,'''I would like to play every day. Whether or not that happens, we'll see.''' ,'''You always want to feel better but I'm good. My thing is once you get to the playoffs, you do whatever it takes. You've got to lay it on the line.''' ,'''I'm going to outplay you. That's the mentality I have, and you should want to outplay me.''' ,'''Last year, the surgery was a tough decision, but I had to make a decision based on my career. It was a decision to get healthy, and start over with a new team at 100 percent.''' ,'''We compete so hard and that changes the whole ballgame.''' ,]
++++

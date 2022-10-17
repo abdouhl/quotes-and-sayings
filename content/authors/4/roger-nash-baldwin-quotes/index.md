@@ -1,0 +1,8 @@
++++
+author = "Roger Nash Baldwin"
+title = "Roger Nash Baldwin Quotes"
+quotes_len = "7"
+description = "the best 7 Roger Nash Baldwin Quotes"
+keywords = "roger nash baldwin,roger nash baldwin quotes,roger nash baldwin quote,roger nash baldwin sayings,roger nash baldwin saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''I cannot consistently, with self respect, do other than I have, namely, to deliberately violate an act which seems to me to be a denial of everything which ideally and in practice I hold sacred.''' ,'''I am for socialism, disarmament, and, ultimately, for abolishing the state itself... I seek the social ownership of property, the abolition of the propertied class, and the sole control of those who produce wealth. Communism is the goal.''' ,'''The smallest deed is better than the grandest intention.''' ,'''The rule of law in place of force, always basic to my thinking, now takes on a new relevance in a world where, if war is to go, only law can replace it.''' ,'''So long as we have enough people in this country willing to fight for their rights, we'll be called a democracy.''' ,'''I would say that social work began in my mind in the Unitarian Church when I was ten or twelve years old, and I started to do things that I thought would help other people.''' ,'''I regard the principle of conscription of life as a flat contradiction of all our cherished ideals of individual freedom, democratic liberty and Christian teaching.''' ,]
++++

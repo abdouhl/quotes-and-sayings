@@ -1,0 +1,8 @@
++++
+author = "Harvey Gantt"
+title = "Harvey Gantt Quotes"
+quotes_len = "8"
+description = "the best 8 Harvey Gantt Quotes"
+keywords = "harvey gantt,harvey gantt quotes,harvey gantt quote,harvey gantt sayings,harvey gantt saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''Every race I've been in, I calculated race into the equation. If you're in America, you calculate it into the equation. It is a factor. I never make it an issue. I don't run the campaign wearing it on my sleeve, but I don't run away from it, either.''' ,'''There has to be life after the Charlotte Mayor's office.''' ,'''John Edwards makes us all proud to be Americans, and those of us from North Carolina are even more proud to claim him, for he represents the best that we can offer America at a time when strong, positive leadership is needed.''' ,'''Jesse Helms has never been an invincible man.''' ,'''John Edwards comes from working folk, just like me. John Edwards worked hard and excelled to get his education, just like me.''' ,'''When you are raised, as John Edwards was, in a small town like Robbins, North Carolina, you get to understand poverty and unemployment, or inadequate health care, first-hand by seeing the daily struggles of your friends and neighbors.''' ,'''In my wildest dreams, I never would have thought we'd come to the point where were talking about the re-election of a black president.''' ,'''I'm from North Carolina, and I stand here humbled, honored, and proud to place in nomination for the office of vice-president of the United States of America, my friend and my senator from the great state of North Carolina: John Edwards.''' ,]
++++

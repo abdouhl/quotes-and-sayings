@@ -1,0 +1,8 @@
++++
+author = "Howard Zinn"
+title = "Howard Zinn Quotes"
+quotes_len = "11"
+description = "the best 11 Howard Zinn Quotes"
+keywords = "howard zinn,howard zinn quotes,howard zinn quote,howard zinn sayings,howard zinn saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''There is no flag large enough to cover the shame of killing innocent people.''' ,'''When people don't understand that the government doesn't have their interests in mind, they're more susceptible to go to war.''' ,'''Dissent is the highest form of patriotism.''' ,'''If the gods had intended for people to vote, they would have given us candidates.''' ,'''Most wars, after all, present themselves as humanitarian endeavors to help people.''' ,'''Americans have been taught that their nation is civilized and humane. But, too often, U.S. actions have been uncivilized and inhumane.''' ,'''War itself is the enemy of the human race.''' ,'''If those in charge of our society - politicians, corporate executives, and owners of press and television - can dominate our ideas, they will be secure in their power. They will not need soldiers patrolling the streets. We will control ourselves.''' ,'''One certain effect of war is to diminish freedom of expression.''' ,'''We need to decide that we will not go to war, whatever reason is conjured up by the politicians or the media, because war in our time is always indiscriminate, a war against innocents, a war against children.''' ,'''In the United States today, the Declaration of Independence hangs on schoolroom walls, but foreign policy follows Machiavelli.''' ,]
++++

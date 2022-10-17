@@ -1,0 +1,8 @@
++++
+author = "Cassandra Wilson"
+title = "Cassandra Wilson Quotes"
+quotes_len = "11"
+description = "the best 11 Cassandra Wilson Quotes"
+keywords = "cassandra wilson,cassandra wilson quotes,cassandra wilson quote,cassandra wilson sayings,cassandra wilson saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''My father had all kinds of instruments in the house that he would hide from my mother. He bought them through mail order!''' ,'''Everything I do is collaborative. It's just my way. I'm really very interested in how the other musicians perceive the song.''' ,'''I'm always looking for ways to develop as an artist, especially as a jazz artist-to find different ways of testing my voice.''' ,'''I'm always imagining some sort of story behind the song, even the ones I haven't written. I'm actively engaging in playacting.''' ,'''Miles Davis was a master. In every phase of his career, he understood that this music was a tribute to the African muse.''' ,'''I was never interested in singing in the church choir or in school. I was more interested in becoming a musician.''' ,'''I've often cringed when I heard myself described as a jazz singer. I've always thought of myself as a jazz vocalist.''' ,'''Being black, I'm involved in the reparations movement. It's focused toward the African-American audience. We could begin to heal.''' ,'''There was a train that would come by our house every night, and I'd hear the whistle blow. That is the sweetest memory I have.''' ,'''Miles Davis was doing something inherently African, something that has to do with all forms of American music, not just jazz.''' ,'''My grandmother sang, too, and she was really loud. It was this wild kind of singing. I count her among my influences.''' ,]
++++

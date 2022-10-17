@@ -1,0 +1,8 @@
++++
+author = "Robert Asprin"
+title = "Robert Asprin Quotes"
+quotes_len = "6"
+description = "the best 6 Robert Asprin Quotes"
+keywords = "robert asprin,robert asprin quotes,robert asprin quote,robert asprin sayings,robert asprin saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''Between you and me, I think that may be one of the things that will help with the collaboration, because there are things Eric thinks I'm moving too quickly on, and there are things I think he's dragging out. When it gets to the editor they can arbitrate.''' ,'''The basic story for the opener is that word came through the bar that someone got knifed and killed up on the Moon Walk. It turns out to be one of the quarter regulars that everybody knows, including Maestro and Bone.''' ,'''It's interesting that instead of having to get tighter and more restricted for a collaboration, strangely enough, from the beginning, we've actually been more confident that we could handle this.''' ,'''New Orleans life is such a night life. The thing that comes up very often is that our day essentially doesn't start until midnight or 2 in the morning.''' ,'''Writing that's not working for a living.''' ,'''We're kidding on that. One of the things I insisted upon when we went into this project was that we are full partners, going fifty-fifty, both on the money and on the say of what's going on with the books.''' ,]
++++

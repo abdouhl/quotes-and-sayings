@@ -1,0 +1,8 @@
++++
+author = "Robert Staughton Lynd"
+title = "Robert Staughton Lynd Quotes"
+quotes_len = "13"
+description = "the best 13 Robert Staughton Lynd Quotes"
+keywords = "robert staughton lynd,robert staughton lynd quotes,robert staughton lynd quote,robert staughton lynd sayings,robert staughton lynd saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''There is nothing that makes us feel so good as the idea that someone else is an evil-doer.''' ,'''Friendship will not stand the strain of very much good advice for very long.''' ,'''There are some people who want to throw their arms round you simply because it is Christmas; there are other people who want to strangle you simply because it is Christmas.''' ,'''Almost any game with any ball is a good game.''' ,'''Knowledge is power only if man knows what facts not to bother with.''' ,'''Every man of genius is considerably helped by being dead.''' ,'''One of the greatest joys known to man is to take a flight into ignorance in search of knowledge.''' ,'''Most remarks that are worth making are commonplace remarks. The things that makes them worth saying is that we really mean them.''' ,'''Most of us can remember a time when a birthday - especially if it was one's own - brightened the world as if a second sun has risen.''' ,'''I sometimes suspect that half our difficulties are imaginary and that if we kept quiet about them they would disappear.''' ,'''It is a glorious thing to be indifferent to suffering, but only to one's own suffering.''' ,'''Most of us believe in trying to make other people happy only if they can be happy in ways which we approve.''' ,'''Cut quarrels out of literature, and you will have very little history or drama or fiction or epic poetry left.''' ,]
++++

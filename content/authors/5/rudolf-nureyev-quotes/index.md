@@ -1,0 +1,8 @@
++++
+author = "Rudolf Nureyev"
+title = "Rudolf Nureyev Quotes"
+quotes_len = "11"
+description = "the best 11 Rudolf Nureyev Quotes"
+keywords = "rudolf nureyev,rudolf nureyev quotes,rudolf nureyev quote,rudolf nureyev sayings,rudolf nureyev saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''A pas de deux is a dialogue of love. How can there be conversation if one partner is dumb?''' ,'''Technique is what you fall back on when you run out of inspiration.''' ,'''You live as long as you dance.''' ,'''I approach dancing from a different angle than those who begin dancing at 8 or 9. Those who have studied from the beginning never question anything.''' ,'''I don't care if Margot is a Dame of the British Empire or older than myself. For me she represents eternal youth; there is an absolute musical quality in her beautiful body and phrasing. Because we are sincere and gifted, an intense abstract love is born between us every time we dance together.''' ,'''I really have to dance more often, and so I travel around. If I don't, I will crumble.''' ,'''The main thing is dancing, and before it withers away from my body, I will keep dancing till the last moment, the last drop.''' ,'''Of course I have a personal life.''' ,'''My feet are dogs.''' ,'''The only critic is a full house.''' ,'''For me, purity of movement wasn't enough. I needed expression, more intensity, more mind.''' ,]
++++

@@ -1,0 +1,8 @@
++++
+author = "Richard Matheson"
+title = "Richard Matheson Quotes"
+quotes_len = "6"
+description = "the best 6 Richard Matheson Quotes"
+keywords = "richard matheson,richard matheson quotes,richard matheson quote,richard matheson sayings,richard matheson saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''I had to write about realistic circumstances. That's the way my brain works. And I think that gave me a sort of place in the field.''' ,'''To me there is nothing that goes against nature. If it seems incomprehensible, it's only because we haven't been able to understand it yet.''' ,'''I could never write about strange kingdoms. I could never do 'Harry Potter' or anything like that. Even when I did science-fiction, I didn't write about foreign planets and distant futures. I certainly never did fantasies about trolls living under bridges.''' ,'''I wrote about real people and real circumstances and real neighborhoods. There was no crypt or castles or H.P. Lovecraft-type environments. They were just about normal people who had something bizarre happening to them in the neighborhood.''' ,'''I think we're yearning for something beyond the every day. And I will tell you I don't believe in the supernatural, I believe in the supernormal.''' ,''''I Am Legend' is quite unusual for its time. I just wanted to write a story about female boxers, and I couldn't get that going in my mind. I don't know exactly where the idea of just a man pitting himself against a robot boxer came from.''' ,]
++++

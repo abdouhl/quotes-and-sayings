@@ -1,0 +1,8 @@
++++
+author = "Charlotte Bunch"
+title = "Charlotte Bunch Quotes"
+quotes_len = "11"
+description = "the best 11 Charlotte Bunch Quotes"
+keywords = "charlotte bunch,charlotte bunch quotes,charlotte bunch quote,charlotte bunch sayings,charlotte bunch saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''I'd make a comment at a meeting and nobody would even acknowledge me. Then some man would say the same thing and they'd all nod.''' ,'''Women have a lot to say about how to advance women's rights, and governments need to learn from that, listen to the movement and respond.''' ,'''There is no private domain of a person's life that is not political, and there is no political issue that is not ultimately personal.''' ,'''Feminism is an entire world view or gestalt, not just a laundry list of women's issues.''' ,'''As a human rights issue, the effort to end violence against women becomes a government's obligation, not just a good idea.''' ,'''What is being called the UN 'gender architecture' is more like a shack. Women need a bigger global house if equality is ever to become a reality.''' ,'''Sexual, racial, gender violence and other forms of discrimination and violence in a culture cannot be eliminated without changing culture.''' ,'''America is like an unfaithful love who promises us more than we got.''' ,'''We need women leaders. But we need them to have a vision for something.''' ,'''People learn to lead because they care about something.''' ,'''Our very strength as lesbians lies in the fact that we are outside of patriarchy; our existence challenges its life.''' ,]
++++

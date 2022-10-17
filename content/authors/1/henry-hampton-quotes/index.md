@@ -1,0 +1,8 @@
++++
+author = "Henry Hampton"
+title = "Henry Hampton Quotes"
+quotes_len = "7"
+description = "the best 7 Henry Hampton Quotes"
+keywords = "henry hampton,henry hampton quotes,henry hampton quote,henry hampton sayings,henry hampton saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''Everybody needs history but the people who need it most are poor folks - people without resources or options.''' ,'''Eyes is the attempt to tell the story of the Civil Rights movement and to create an emotional, intellectual constituency. But what do you do after that? The black community doesn't have institutions that pick up such moments and preserve them.''' ,'''What drives people to public service is a sense of possibility. If you haven't sensed that possibility you don't get started in the same way, you don't feel you can have an impact.''' ,'''Food might be more immediately important than history but if you don't understand what's been done to you - by your own people and the so-called 'they' - you can never get around it.''' ,'''We don't have a full black community in Boston. Our people are scattered. There's a middle class where I live in Highland Park but it's not like a piece of Washington or Chicago.''' ,'''On the one hand, there is no reason that a black person needs to live a portion of his or her life being concerned about the people of color around him. On the other hand, if you don't you're crazy.''' ,'''If you're black in America, race is a factor in your life. Start with that assumption.''' ,]
++++

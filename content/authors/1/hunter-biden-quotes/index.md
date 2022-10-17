@@ -1,0 +1,8 @@
++++
+author = "Hunter Biden"
+title = "Hunter Biden Quotes"
+quotes_len = "11"
+description = "the best 11 Hunter Biden Quotes"
+keywords = "hunter biden,hunter biden quotes,hunter biden quote,hunter biden sayings,hunter biden saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''I've pretty much always lived paycheck to paycheck. I never considered it struggling, but it has always been a high-wire act.''' ,'''I want to be important.''' ,'''I have had no role whatsoever in relation to any investigation of Burisma, or any of its officers. I explicitly limited my role to focus on corporate governance best practices to facilitate Burisma's desire to expand globally.''' ,'''Even though my life has been played out in the media because I am a Biden, my father never once suggested that the family's public profile should be my priority.''' ,'''I've never missed a rally for my dad.''' ,'''The single best thing is, family comes first. Over everything. I can't think of anything that has been more pervasive and played a larger part in my life than that simple lesson.''' ,'''Pain is one of the unavoidable facts of life. We Bidens have had our share. We don't pretend otherwise. And we don't pretend that we are different from families all over America that have to face the loss of loved ones or have to deal with the fallout of divorces.''' ,'''I believe that my father has become an ongoing symbol of what it means to keep on fighting for what is good in oneself, in others, and in our country.''' ,'''Everybody faces pain. Everybody has trauma.''' ,'''My first car was a stick.''' ,'''My father has been a constant source of love and strength in my life.''' ,]
++++

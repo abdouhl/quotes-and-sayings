@@ -1,0 +1,8 @@
++++
+author = "Bart Gordon"
+title = "Bart Gordon Quotes"
+quotes_len = "6"
+description = "the best 6 Bart Gordon Quotes"
+keywords = "bart gordon,bart gordon quotes,bart gordon quote,bart gordon sayings,bart gordon saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''Broadcasters have a responsibility to serve the public interest and protect Americans from objectionable content, particularly during the hours when children are likely to be watching.''' ,'''A free public broadcast license is a privilege.''' ,'''If our country is serious about reducing our dependency on foreign oil, we need to get serious about mobilizing the infrastructure necessary to distribute and dispense the next generation of fuels.''' ,'''If we don't do it, somebody else will. The Chinese, the Europeans and the Japanese all have the goal of going to the moon. Certainly we don't want to wake up and see that they have a base there before we do.''' ,'''When I was elected, I was the youngest member of the Tennessee congressional delegation; now, I'm one of the oldest. In fact, I have members of my staff who weren't even born when I took office. That tells me it's time for a new chapter.''' ,'''While it may be true that the UAE has been an ally since the September 11, 2001, attacks, the American people know it has also harbored and aided some of the al Qaeda agents who were involved in that attack.''' ,]
++++

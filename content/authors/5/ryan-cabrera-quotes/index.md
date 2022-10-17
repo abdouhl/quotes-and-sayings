@@ -1,0 +1,8 @@
++++
+author = "Ryan Cabrera"
+title = "Ryan Cabrera Quotes"
+quotes_len = "12"
+description = "the best 12 Ryan Cabrera Quotes"
+keywords = "ryan cabrera,ryan cabrera quotes,ryan cabrera quote,ryan cabrera sayings,ryan cabrera saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''Running with the wrong crowd will never help you.''' ,'''I got quite the college experience.''' ,'''Baseball is a red-blooded sport for red-blooded men. It's no pink tea, and mollycoddles had better stay out.''' ,'''Sometimes the most happy people in life are the ones with nothing. We can't lose sight of the little things in life that should make us the happiest.''' ,'''I was interested in maintaining the dignity and the hearts of the songs, letting them breathe and become what they are.''' ,'''Hotness is uniqueness and just being yourself - that's hot.''' ,'''I'll do anything for $50. People are always trying to get me to do dumb things. The possibilities are endless.''' ,'''People are so opinionated about things, and they don't even know what they're talking about, or can't even do it themselves.''' ,'''Whenever people get to see you, it's a great thing. Once people see an image and see the character, they can get into the music a lot more.''' ,'''I started playing guitar kind of by accident.''' ,'''There's no point for me to party. I have a girl that I love. I don't need that.''' ,'''I wanted the songs to be themselves, instead of worrying about all this crazy slickster production.''' ,]
++++

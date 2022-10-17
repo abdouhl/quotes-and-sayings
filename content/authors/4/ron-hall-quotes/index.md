@@ -1,0 +1,8 @@
++++
+author = "Ron Hall"
+title = "Ron Hall Quotes"
+quotes_len = "8"
+description = "the best 8 Ron Hall Quotes"
+keywords = "ron hall,ron hall quotes,ron hall quote,ron hall sayings,ron hall saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''Together we can change the world, just one random act of kindness at a time.''' ,'''Most people never really sat down and got to know a homeless person, but every homeless person is just a real person that was created by God and it is the same kind of different as us; they just have a different story.''' ,'''Someone that you obviously can trust and someone that you would trust your life with - that's a really good friend.''' ,'''If Christians want to be the hands and feet of Christ, we need to not judge those that are different from us.''' ,'''The biggest misconception about the homeless is that they got themselves in the mess - let them get themselves out. Many people think they are simply lazy. I urge those to make a friend at a local mission and find out how wrong these assumptions are.''' ,'''Any time you approach anything in fear and aggression or in self-preservation mode, you are going to scare people off. But if you go in love, with the idea of being the feet and hands of Christ, if you go with the idea of showing the love of Christ, then they become softened because love changes all.''' ,'''I had become wealthy as an art dealer, but my life was never rich until I began serving in a mission and began being blessed by those that were basically hopeless. To see them have hope was the biggest blessing in my life.''' ,'''It's not the color of our skin that divides our nation; it's the condition of our hearts.''' ,]
++++

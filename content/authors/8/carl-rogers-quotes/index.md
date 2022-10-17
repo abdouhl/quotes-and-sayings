@@ -1,0 +1,8 @@
++++
+author = "Carl Rogers"
+title = "Carl Rogers Quotes"
+quotes_len = "10"
+description = "the best 10 Carl Rogers Quotes"
+keywords = "carl rogers,carl rogers quotes,carl rogers quote,carl rogers sayings,carl rogers saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''The only person who is educated is the one who has learned how to learn and change.''' ,'''The facts are always friendly, every bit of evidence one can acquire, in any area, leads one that much closer to what is true.''' ,'''The very essence of the creative is its novelty, and hence we have no standard by which to judge it.''' ,'''The good life is a process, not a state of being. It is a direction not a destination.''' ,'''The curious paradox is that when I accept myself just as I am, then I can change.''' ,'''In a person who is open to experience each stimulus is freely relayed through the nervous system, without being distorted by any process of defensiveness.''' ,'''When I look at the world I'm pessimistic, but when I look at people I am optimistic.''' ,'''I believe that the testing of the student's achievements in order to see if he meets some criterion held by the teacher, is directly contrary to the implications of therapy for significant learning.''' ,'''In my early professional years I was asking the question: How can I treat, or cure, or change this person? Now I would phrase the question in this way: How can I provide a relationship which this person may use for his own personal growth?''' ,'''With the price of life these days, you've got to get everything for free you can.''' ,]
++++

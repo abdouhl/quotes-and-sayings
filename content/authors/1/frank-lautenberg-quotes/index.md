@@ -1,0 +1,8 @@
++++
+author = "Frank Lautenberg"
+title = "Frank Lautenberg Quotes"
+quotes_len = "9"
+description = "the best 9 Frank Lautenberg Quotes"
+keywords = "frank lautenberg,frank lautenberg quotes,frank lautenberg quote,frank lautenberg sayings,frank lautenberg saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''I ask the vice president to stop dodging the issue with legalese, and acknowledge his continued ties with Halliburton to the American people.''' ,'''I had hoped to hear the President tonight tell the Congress and the American people exactly how he plans to tackle some of the important issues facing this country, unfortunately I did not.''' ,'''One thing I have learned in my time in politics is that if one of the parties is shameless, the other party cannot afford to be spineless.''' ,'''Anybody who has ever been in business, anybody who has ever paid bills, anybody who has ever lived in a serious adult life knows that indebtedness is a killer.''' ,'''Should those whose actions lead to the death or injury of a child get a free pass?''' ,'''Municipal networks expand economic opportunities. We've got to open new doors, not slam them shut.''' ,'''People at .08 are too impaired to drive. Studies show that at .08, the ability to perform critical driving functions is decreased by as much as 60 percent.''' ,'''I say I don't need a tax cut. It will not do me any more good. I can't buy more, I can't eat more, I can't do more, and I want it distributed among the ordinary people who work every day.''' ,'''The President should spend his time going after the terrorists rather than sharing sensitive counter terrorism information with countries that sponsor terrorism.''' ,]
++++

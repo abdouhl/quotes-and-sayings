@@ -1,0 +1,8 @@
++++
+author = "Robert Novak"
+title = "Robert Novak Quotes"
+quotes_len = "9"
+description = "the best 9 Robert Novak Quotes"
+keywords = "robert novak,robert novak quotes,robert novak quote,robert novak sayings,robert novak saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''CNN canceled all the shows I was on. They're going in a different direction, but that's their privilege. They own the business.''' ,'''He was my favorite senator... I love him. He made the liberals squeal.''' ,'''I'd like CBS, at this point, to say where they got those documents from. I think they should say where they got these documents because I thought it was a very poor job of reporting by CBS.''' ,'''Howard Dean is not the first politician to distort facts in his own interests. But many activists in the party he now leads are puzzled over what he thinks he is accomplishing politically. Is it good politics to contend that Iraq was better off under Saddam Hussein than even a flawed Islamic republic?''' ,'''It is up to the government to keep the government's secrets.''' ,'''If Communism goes, I've still got the U.S. House of Representatives.''' ,'''I didn't dig it out, it was given to me. They thought it was significant, they gave me the name and I used it.''' ,'''The whole new Democratic Party is the old Republican Party. We have a whole bunch of elephants running around in donkey's clothes.''' ,'''Nobody from the administration has officially rejected my column.''' ,]
++++

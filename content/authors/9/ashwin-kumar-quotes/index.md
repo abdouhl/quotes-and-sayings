@@ -1,0 +1,8 @@
++++
+author = "Ashwin Kumar"
+title = "Ashwin Kumar Quotes"
+quotes_len = "8"
+description = "the best 8 Ashwin Kumar Quotes"
+keywords = "ashwin kumar,ashwin kumar quotes,ashwin kumar quote,ashwin kumar sayings,ashwin kumar saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''As a human, you tend to lose your calm at some point. But I ensured I was being myself through the journey. I feel people liked my honesty and casualness.''' ,'''When people around me were signing films, I would wonder why nothing good came my way. See, I wasn't desperate to do films, but I was desperate to do good films.''' ,'''Both my mom and sister are great cooks; some of the best food I have had were made by them.''' ,'''I was always been encouraged to get into the field of acting when I was in college and I even attended an audition once. But my parents weren't supportive of that decision back then.''' ,'''I always work towards being a good human.''' ,'''What you saw on TV is who I am in real life.''' ,'''People have ignored me in the past, thinking that I probably had an attitude. And I couldn't break that perception.''' ,'''Cook with Comali' was a rebirth of sorts for me. I never wanted to be on television because I wanted to be an actor. I didn't have contacts nor did I come from an affluent family. I have faced a lot of insults, rejections and have been pushed to the bottom but I didn't give up.''' ,]
++++

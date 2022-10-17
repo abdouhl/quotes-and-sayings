@@ -1,0 +1,8 @@
++++
+author = "Catherine Asaro"
+title = "Catherine Asaro Quotes"
+quotes_len = "9"
+description = "the best 9 Catherine Asaro Quotes"
+keywords = "catherine asaro,catherine asaro quotes,catherine asaro quote,catherine asaro sayings,catherine asaro saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''I do sing a bit, a solo called 'Rubies,' and the female vocals on 'In Paradisum,' 'The Sound of Silence,' and 'Sapphire Clouds'.''' ,'''The year in school of a student is another factor that affects how an instructor interacts with his or her class.''' ,'''The teaching fellow establishes the atmosphere of a class in the first few meetings. I have found that students appreciate having the ground rules clearly defined from the start.''' ,'''To solve math problems, you need to know the basic mathematics before you can start applying it.''' ,'''The most valuable aid I have found in teaching is to remember my own experiences as a student.''' ,'''I've always had a close connection to both rock and classical music.''' ,'''If I were to try and find a unifying emotion that kept me calm and focused while I was dancing or writing or solving a math problem, I think the one unifying thing about all those that keeps my interest is creativity.''' ,'''The students I have come in contact with at Harvard are highly competent individuals who prefer to be challenged and respond well to encouragement.''' ,'''To write you have to be able to know how to put words together.''' ,]
++++

@@ -1,0 +1,8 @@
++++
+author = "Frank Carson"
+title = "Frank Carson Quotes"
+quotes_len = "12"
+description = "the best 12 Frank Carson Quotes"
+keywords = "frank carson,frank carson quotes,frank carson quote,frank carson sayings,frank carson saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''People in Northern Ireland vote for their church, they don't vote with their heads; it is ridiculous.''' ,'''The thirties were troublesome in Belfast, and then of course there was no work for people, and it was terribly religiously divided.''' ,'''My idea for peace in the Middle East is to go back to the 1966 line, but to build even more houses for the Palestinians, who are a poor people.''' ,'''Have you heard about the Irishman who reversed into a car boot sale and sold the engine?''' ,'''I am accusing him of stealing my best material, he was a very funny man.''' ,'''So I rang up British Telecom, I said 'I want to report a nuisance caller', he said 'Not you again'.''' ,'''America has only 100 Senators for 309 million people, but Stormont has 108 members for 1.7 million.''' ,'''It's never occurred to me to worry about my health, or that I'll get old, or that people will stop laughing at me.''' ,'''I don't think my wife likes me very much, when I had a heart attack she wrote for an ambulance.''' ,'''Most of my jokes are racist - usually about the Irish.''' ,'''What's the difference between my wife and a terrorist? You can negotiate with a terrorist.''' ,'''My wife said to me: 'If you won the lottery, would you still love me?' I said: 'Of course I would. I'd miss you, but I'd still love you.'''' ,]
++++

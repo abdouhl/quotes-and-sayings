@@ -1,0 +1,8 @@
++++
+author = "Helen Frankenthaler"
+title = "Helen Frankenthaler Quotes"
+quotes_len = "9"
+description = "the best 9 Helen Frankenthaler Quotes"
+keywords = "helen frankenthaler,helen frankenthaler quotes,helen frankenthaler quote,helen frankenthaler sayings,helen frankenthaler saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''One really beautiful wrist motion, that is synchronised with your head and heart, and you have it. It looks as if it were born in a minute.''' ,'''We would sift through every inch of what it was that worked, or if it didn't, and wonder what was effective in it, in terms of paint, the subject matter, the size, the drawing.''' ,'''A really good picture looks as if it's happened at once. It's an immediate image.''' ,'''You have to know how to use the accident, how to recognise it, how to control it, and ways to eliminate it so that the whole surface looks felt and born all at once.''' ,'''I wanted things that I couldn't at times articulate.''' ,'''There are no rules. That is how art is born, how breakthroughs happen. Go against the rules or ignore the rules. That is what invention is about.''' ,'''The landscapes were in my arms as I did it.''' ,'''Whatever the medium, there is the difficulty, challenge, fascination and often productive clumsiness of learning a new method: the wonderful puzzles and problems of translating with new materials.''' ,'''The question of sex will take care of itself.''' ,]
++++

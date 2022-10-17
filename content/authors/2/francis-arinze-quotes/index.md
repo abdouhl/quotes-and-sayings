@@ -1,0 +1,8 @@
++++
+author = "Francis Arinze"
+title = "Francis Arinze Quotes"
+quotes_len = "8"
+description = "the best 8 Francis Arinze Quotes"
+keywords = "francis arinze,francis arinze quotes,francis arinze quote,francis arinze sayings,francis arinze saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''There is no dogma that the organ or harmonium can be used in church, but not the drum.''' ,'''With reference to other religions, the Church sees a great difference between them and herself. The other religions are expressions of the human soul seeking God, with some beautiful spiritual insights, but also not without errors. Christianity is rather God seeking humanity.''' ,'''Religion is one dimension of culture, a transcendent element of it.''' ,'''Remarkable is the greater openness of the Catholic Church towards people of other religious traditions and persuasions. The development has not been without problems, since some people have resisted it and others have pushed openness beyond the desirable point.''' ,'''There is a tendency around the world today to copy TV culture. And that is not always a virtue.''' ,'''Vatican II declares the Church... as necessary for salvation.''' ,'''Even among the married, sexual satisfaction must not be sought in a way which disregards man's character as a person and degrades him to the animal level.''' ,'''The Catholic faith never changes. But the language and mode of manifesting this one faith can change according to peoples, times and places.''' ,]
++++

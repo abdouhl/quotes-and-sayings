@@ -1,0 +1,8 @@
++++
+author = "Craig Sheffer"
+title = "Craig Sheffer Quotes"
+quotes_len = "8"
+description = "the best 8 Craig Sheffer Quotes"
+keywords = "craig sheffer,craig sheffer quotes,craig sheffer quote,craig sheffer sayings,craig sheffer saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''I enjoyed my 20s - they were torturous and beautiful. I learned so much about myself and about life and about the nature of people.''' ,'''Focus on making you the best you you can be as an actor and follow your own path. You can't compare an apple to an orange. It will cause a lot of self-esteem issues.''' ,'''I would do a film, make the money, then take off for six months to Europe, India or Russia. My agent told me that I had to stay in town if I ever wanted to build a career, because everyone forgets about you.''' ,'''When you go out on auditions for big movies, and you're not a big star, you get used to getting close but not getting the part.''' ,'''I think it's real easy to look at what's out there and get discouraged. I was never the best-looking guy, I was never the Tom Cruise-looking guy. I think the biggest thing I can say is, 'Don't compare yourself.'''' ,'''Focus on making you the best you can be as an actor, and follow your own path.''' ,'''I was never the best-looking guy; I was never the Tom Cruise-looking guy.''' ,'''You can't compare an apple to an orange. It will cause a lot of self-esteem issues.''' ,]
++++

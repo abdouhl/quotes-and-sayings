@@ -1,0 +1,8 @@
++++
+author = "Robert Half"
+title = "Robert Half Quotes"
+quotes_len = "18"
+description = "the best 18 Robert Half Quotes"
+keywords = "robert half,robert half quotes,robert half quote,robert half sayings,robert half saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''Time spent on hiring is time well spent.''' ,'''Not admitting a mistake is a bigger mistake.''' ,'''Delegating work works, provided the one delegating works, too.''' ,'''Acting on a good idea is better than just having a good idea.''' ,'''It's easy to make good decisions when there are no bad options.''' ,'''There are some who start their retirement long before they stop working.''' ,'''When one teaches, two learn.''' ,'''Laziness is a secret ingredient that goes into failure. But it's only kept a secret from the person who fails.''' ,'''A ruler isn't always straight.''' ,'''Asking the right questions takes as much skill as giving the right answers.''' ,'''Hard work without talent is a shame, but talent without hard work is a tragedy.''' ,'''There is something that is much more scarce, something rarer than ability. It is the ability to recognize ability.''' ,'''People try to live within their income so they can afford to pay taxes to a government that can't live within its income.''' ,'''When your future arrives, will you blame your past?''' ,'''The search for someone to blame is always successful.''' ,'''Convincing yourself doesn't win an argument.''' ,'''No one can be right all of the time, but it helps to be right most of the time.''' ,'''People who look down on other people don't end up being looked up to.''' ,]
++++

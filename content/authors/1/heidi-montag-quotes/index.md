@@ -1,0 +1,8 @@
++++
+author = "Heidi Montag"
+title = "Heidi Montag Quotes"
+quotes_len = "8"
+description = "the best 8 Heidi Montag Quotes"
+keywords = "heidi montag,heidi montag quotes,heidi montag quote,heidi montag sayings,heidi montag saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''I should have known growing up and not having any money ever that I should have kept every dollar that I had.''' ,'''If you want to change your hair colour or your nail colour or things like that its fine, but you have to realize the dangers and repercussions of surgery.''' ,'''I got too caught up in Hollywood, being so into myself and my image.''' ,'''I thought I was investing in myself and my brand, like Kim Kardashian. When she buys these clothes, she's investing in herself, because she is a big brand and is likable. I thought I had that potential. My ego got too big. To think I could be someone like that when I was the most hated girl ever.''' ,'''I'm from really humble beginnings. I've never been this Hollywood diva, but you get caught up in what you're pretending to be.''' ,'''I thought that plastic surgery was easy, but it is really serious and is not something you want to mess around with.''' ,'''I didn't realize that pretending to be this 'Hills Heidi,' this spoiled rich girl who I wasn't, would almost destroy me.''' ,'''I definitely regret the surgeries that I have had over the years, I think I was so young and in such an unstable situation in my life with so much going on and so much pressure.''' ,]
++++

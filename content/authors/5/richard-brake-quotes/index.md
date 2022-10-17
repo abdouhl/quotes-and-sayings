@@ -1,0 +1,8 @@
++++
+author = "Richard Brake"
+title = "Richard Brake Quotes"
+quotes_len = "6"
+description = "the best 6 Richard Brake Quotes"
+keywords = "richard brake,richard brake quotes,richard brake quote,richard brake sayings,richard brake saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''I love how 'Game of Thrones' has resonated with so many people around the world. I feel like it has really tapped into our need to hear stories about the human condition, love, death, good, evil... For me, it really is a modern version of the old Greek theatre or cave men sitting around fires telling stories.''' ,'''We moved to America when I was young, but we were always very Welsh in our home. The humor, food, traditions. Very Welsh.''' ,'''I've played a lot of these characters that aren't particularly pleasant and pretty powerful, bad people, and one thing I've discovered is that there's a real stillness to these guys.''' ,'''Any filmmakers out there want a Welshman with sharp cheekbones and wonky teeth to play the love interest in their movie, give me a call.''' ,'''Obviously, the Night's King is clearly a symbol of something very unpleasant in our psyche, and he even raises wights from the dead, which is probably everybody's worst fear, being actually used after we're dead.''' ,'''I can find some part of me that relates to even the most evil characters. At least in my imagination.''' ,]
++++

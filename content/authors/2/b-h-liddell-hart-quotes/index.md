@@ -1,0 +1,8 @@
++++
+author = "B. H. Liddell Hart"
+title = "B. H. Liddell Hart Quotes"
+quotes_len = "9"
+description = "the best 9 B. H. Liddell Hart Quotes"
+keywords = "b. h. liddell hart,b. h. liddell hart quotes,b. h. liddell hart quote,b. h. liddell hart sayings,b. h. liddell hart saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''Helplessness induces hopelessness, and history attests that loss of hope and not loss of lives is what decides the issue of war.''' ,'''In should be the duty of every soldier to reflect on the experiences of the past, in the endeavor to discover improvements, in his particular sphere of action, which are practicable in the immediate future.''' ,'''In reality, it si more fruitful to wound than to kill. While the dead man lies still, counting only one man less, the wounded man is a progressive drain upon his side.''' ,'''Loss of hope rather than loss of life is what decides the issues of war. But helplessness induces hopelessness.''' ,'''Every action is seen to fall into one of three main categories, guarding, hitting, or moving. Here, then, are the elements of combat, whether in war or pugilism.''' ,'''The chief incalculable in war is the human will.''' ,'''Guerrilla war is a kind of war waged by the few but dependent on the support of many.''' ,'''A complacent satisfaction with present knowledge is the chief bar to the pursuit of knowledge.''' ,'''The search for the truth for truth's sake is the mark of the historian.''' ,]
++++

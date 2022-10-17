@@ -1,0 +1,8 @@
++++
+author = "Catharine Mackinnon"
+title = "Catharine Mackinnon Quotes"
+quotes_len = "9"
+description = "the best 9 Catharine Mackinnon Quotes"
+keywords = "catharine mackinnon,catharine mackinnon quotes,catharine mackinnon quote,catharine mackinnon sayings,catharine mackinnon saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''So the idea that there is nothing essential, in the sense that there are no human universals, is dogma. Ask most anyone who is going to be shot at dawn.''' ,'''It's mainly a few elite women who benefit greatly from standing with the forces that keep women down.''' ,'''It's particularly hard to take being stabbed in the back close to home. There's always a feeling of betrayal when people of your own group oppose you.''' ,'''Instead of being lionized and admired for her genius, instead of being able to earn a decent living as a writer, Andrea Dworkin was misrepresented and demonized.''' ,'''In not having an appointment at Harvard, I'm in the company of a great many people whose work I admire tremendously, in particular women of color.''' ,'''Postmodernism is an academic theory, originating in academia with an academic elite, not in the world of women and men, where feminist theory is rooted.''' ,'''To be a prisoner means to be defined as a member of a group for whom the rules of what can be done to you, of what is seen as abuse of you, are reduced as part of the definition of your status.''' ,'''Can postmodernism hold the perpetrators of genocide accountable?''' ,'''What postmodernism gives us instead is a multicultural defense for male violence - a defense for it wherever it is, which in effect is a pretty universal defense.''' ,]
++++

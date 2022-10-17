@@ -1,0 +1,8 @@
++++
+author = "Quinton Aaron"
+title = "Quinton Aaron Quotes"
+quotes_len = "8"
+description = "the best 8 Quinton Aaron Quotes"
+keywords = "quinton aaron,quinton aaron quotes,quinton aaron quote,quinton aaron sayings,quinton aaron saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''Being a fan of the business for years and wanting to be an actor for years, I knew, if ever the opportunity came for me, I would already know what to expect. I know what comes along with it. The best thing I can do is take it all in and go with the flow.''' ,'''I grew up in the church. I was raised in the church.''' ,'''I do believe in sending positive messages. I am a Christian, so I do believe in a lot of positive messages.''' ,'''Having a chance to be someone other than yourself and to act out stuff that makes people look at you, like, wow, and that's why I love acting so much.''' ,'''Growing up, I was not used to good things happening to me.''' ,'''I feel like if I live the Christian life, then the people should be able to see it in my everyday actions.''' ,'''If I have to degrade myself or do something that I'm not willing to do as a Christian to get something, I'm just not willing to do it.''' ,'''I like to be someone else. I like to be someone other than myself. I grew up watching movies and being a fan of what I'd seen portrayed in the movies, and I always wanted to do that one day.''' ,]
++++

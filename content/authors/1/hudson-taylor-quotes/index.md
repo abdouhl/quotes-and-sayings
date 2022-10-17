@@ -1,0 +1,8 @@
++++
+author = "Hudson Taylor"
+title = "Hudson Taylor Quotes"
+quotes_len = "6"
+description = "the best 6 Hudson Taylor Quotes"
+keywords = "hudson taylor,hudson taylor quotes,hudson taylor quote,hudson taylor sayings,hudson taylor saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''The good works of the unsaved may indeed benefit their fellow-creatures; but until life in Christ has been received, they cannot please God.''' ,'''China is not to be won for Christ by quiet, ease-loving men and women... The stamp of men and women we need is such as will put Jesus, China, souls first and foremost in everything and at every time - even life itself must be secondary.''' ,'''If we are faithful to God in little things, we shall gain experience and strength that will be helpful to us in the more serious trials of life.''' ,'''We sometimes hear the argument, 'All the world' thinks this, or does that, given as a reason for our doing likewise; but that is an argument that should have no weight with the Christian, who is commanded not to be conformed to the world.''' ,'''It is always helpful to us to fix our attention on the God-ward aspect of Christian work; to realise that the work of God does not mean so much man's work for God, as God's own work through man.''' ,'''While salvation is a free gift, the 'winning Christ' can only be through unreserved consecration and unquestioning obedience. Nor is this a hardship, but the highest privilege.''' ,]
++++

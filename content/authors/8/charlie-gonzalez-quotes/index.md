@@ -1,0 +1,8 @@
++++
+author = "Charlie Gonzalez"
+title = "Charlie Gonzalez Quotes"
+quotes_len = "7"
+description = "the best 7 Charlie Gonzalez Quotes"
+keywords = "charlie gonzalez,charlie gonzalez quotes,charlie gonzalez quote,charlie gonzalez sayings,charlie gonzalez saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''When it comes to America's economy, the truth is that Mitt Romney believes that the key to our country's economic future lies in the failed policies of the past, the same ones that put banks before people, Wall Street before Main Street, plunging us into recession and devastating the middle class.''' ,'''We made history when President Obama appointed Sonia Sotomayor, a proud Latina, the first Hispanic Supreme Court justice. And as the President likes to say, 'Every single one of them wasn't just the best Latino for the job, but the best person for the job.'''' ,'''I believe that nothing is more important to our ability to effectively address our present than understanding the lessons learned from those who have come before us.''' ,'''After a lifetime of working, raising families, and contributing to the success of this nation in countless other ways, senior citizens deserve to retire with dignity.''' ,'''This nation's elected leaders owe all Americans the duty of formulating an Iraqi policy based on sound analysis of the actual facts.''' ,'''Under President Barack Obama, the Congressional Hispanic Caucus has been invited into the White House and given a seat at the table. Hispanics are serving in unprecedented numbers at the highest levels of this administration, including in the Cabinet.''' ,'''And one of the most important values of Barack Obama is that he will always level with the American people.''' ,]
++++

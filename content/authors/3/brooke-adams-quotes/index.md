@@ -1,0 +1,8 @@
++++
+author = "Brooke Adams"
+title = "Brooke Adams Quotes"
+quotes_len = "6"
+description = "the best 6 Brooke Adams Quotes"
+keywords = "brooke adams,brooke adams quotes,brooke adams quote,brooke adams sayings,brooke adams saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''I go through periods where I don't shop at all, and then I go crazy and buy everything in sight. I never know what to wear, and I'm at my worst before an audition. I pull everything out of the closet, throw it on my bed. I'll get entirely dressed and then take it all off again until I'm in a kind of frenzy.''' ,'''In films, you are a commodity. You are a look, something that the camera really likes, something that has struck an audience in a certain way. It's not really so much about transforming yourself the way actors do onstage. I think there's a difference between the skill of acting in movies and onstage.''' ,'''My life has gotten so much better since I turned 40.''' ,'''It's glamorous when a movie is released, but then you feel disconnected from it. Someone asked if it wouldn't be more glamorous for me being on Broadway rather than Off Broadway, but I thought, 'What's the difference?' The Orpheum is a smaller house, that's all. And there are no mikes, so you just talk louder.''' ,'''I had wanted to be a movie star and had thought I would be a movie star since I was very little. It was just something I saw in my future. But somehow when it happened, I wasn't ready for it.''' ,'''As an actress, I always felt like the people you met on set were interchangeable with the people you met on other sets - the grips, the gaffers, the actors, the directors - everybody steps into their role.''' ,]
++++

@@ -1,0 +1,8 @@
++++
+author = "Lilly Ledbetter"
+title = "Lilly Ledbetter Quotes"
+quotes_len = "6"
+description = "the best 6 Lilly Ledbetter Quotes"
+keywords = "lilly ledbetter,lilly ledbetter quotes,lilly ledbetter quote,lilly ledbetter sayings,lilly ledbetter saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''Because women still earn just 77 cents for every dollar men make. Those pennies add up to real money.''' ,'''Some of you may know my story: How for nineteen years, I worked as a manager for a tire plant in Alabama. And some of you may have lived a similar story: After nearly two decades of hard, proud work, I found out that I was making significantly less money than the men who were doing the same work as me.''' ,'''The Supreme Court told me that I should have filed a complaint within six months of the company's first decision to pay me less even though I didn't know about it for nearly two decades.''' ,'''The first bill that President Obama signed into law was the Lilly Ledbetter Fair Pay Act. I think it says something about his priorities that the first bill he put his name on has my name on it too. As he said that day with me by his side, 'Making our economy work means making sure it works for everyone.'''' ,'''In the end, I didn't get a dime of the money I was shortchanged.''' ,'''We sought justice because equal pay for equal work is an American value. That fight took me ten years. It took me all the way to the Supreme Court. And, in a 5-4 decision, they stood on the side of those who shortchanged my pay, my overtime, and my retirement just because I am a woman.''' ,]
++++

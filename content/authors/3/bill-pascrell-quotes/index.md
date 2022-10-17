@@ -1,0 +1,8 @@
++++
+author = "Bill Pascrell"
+title = "Bill Pascrell Quotes"
+quotes_len = "6"
+description = "the best 6 Bill Pascrell Quotes"
+keywords = "bill pascrell,bill pascrell quotes,bill pascrell quote,bill pascrell sayings,bill pascrell saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''It is shameful that millions of Americans are suffering the economic injustice of working a full-time job and earning a wage that leaves them below the poverty line.''' ,'''Today a minimum wage earner has to work a day and a half just to pay for a full tank of gas. That is simply shameful.''' ,'''Working-class Americans have waited too long, close to a decade in fact, for an increase in the minimum wage. This has been the second longest period without a pay raise since the Federal minimum wage law was first enacted in 1938.''' ,'''House Republican leadership have refused to allow a clean minimum wage vote. Close to 15 million Americans will be affected if we did this. Do Republicans really expect a family to live on less than $11,000 a year?''' ,'''In an era when information can be sent instantaneously anywhere, it is utterly nonsensical that our Nation's police, the fire, and EMS personnel cannot consistently communicate with each other.''' ,'''In the years since 9/11, more terrorists have been created through this President's policies than were captured or killed. There weren't any terrorists in Iraq in 2003, but there are now.''' ,]
++++

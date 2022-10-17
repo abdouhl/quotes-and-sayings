@@ -1,0 +1,8 @@
++++
+author = "Hugh Bonneville"
+title = "Hugh Bonneville Quotes"
+quotes_len = "18"
+description = "the best 18 Hugh Bonneville Quotes"
+keywords = "hugh bonneville,hugh bonneville quotes,hugh bonneville quote,hugh bonneville sayings,hugh bonneville saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''I do realise how incredibly lucky I am.''' ,'''I had girlfriends, but settling down was the last thing on my mind.''' ,'''At home I have a Tibetan terrier. I'm still not sure if he's a genius or very thick. It's a fine line.''' ,'''I'd love to retire somewhere like Winchester, where you have one foot on the pavement but a sense of being in the country as well.''' ,'''I have an excellent internal compass.''' ,'''I love doing comedy.''' ,'''To go to the White House is a once-in-a-lifetime opportunity. In fact, the building is not that big.''' ,'''When you are in the eye of the storm, you are often not aware of the whiplash around you.''' ,'''I always try to look for the best in most places.''' ,'''Young people are so often dissed by the media.''' ,'''Everyone at some point in their lives feels excluded and misunderstood.''' ,'''A typical Christmas is me shucking oysters. I love them and I always get them in at Christmas.''' ,'''After World War II, the major estates really did collapse.''' ,'''Am I athletic? In my dreams.''' ,'''I've often been the guy who doesn't get the girl.''' ,'''At 19, you know everything; by the time you're 40, you haven't got a clue.''' ,'''I certainly couldn't run a big country house, nor could I organize the greatest show on earth.''' ,'''I've had people come up to me in the past and say they enjoyed whatever show I've been in.''' ,]
++++

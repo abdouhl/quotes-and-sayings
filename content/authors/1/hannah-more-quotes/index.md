@@ -1,0 +1,8 @@
++++
+author = "Hannah More"
+title = "Hannah More Quotes"
+quotes_len = "10"
+description = "the best 10 Hannah More Quotes"
+keywords = "hannah more,hannah more quotes,hannah more quote,hannah more sayings,hannah more saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''Goals help you overcome short-term problems.''' ,'''If faith produce no works, I see That faith is not a living tree. Thus faith and works together grow, No separate life they never can know. They're soul and body, hand and heart, What God hath joined, let no man part.''' ,'''Luxury! more perilous to youth than storms or quicksand, poverty or chains.''' ,'''Idleness among children, as among men, is the root of all evil, and leads to no other evil more certain than ill temper.''' ,'''The wretch who digs the mine for bread, or ploughs, that others may be fed, feels less fatigued than that decreed to him who cannot think or read.''' ,'''Going to the opera, like getting drunk, is a sin that carries its own punishment with it.''' ,'''Depart from discretion when it interferes with duty.''' ,'''Forgiveness is the economy of the heart... forgiveness saves the expense of anger, the cost of hatred, the waste of spirits.''' ,'''Love never reasons, but profusely gives; it gives like a thoughtless prodigal its all, and then trembles least it has done to little.''' ,'''Genius without religion is only a lamp on the outer gate of a palace; it may serve to cast a gleam of light on those that are without, while the inhabitant sits in darkness.''' ,]
++++

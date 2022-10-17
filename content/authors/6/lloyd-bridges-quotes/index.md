@@ -1,0 +1,8 @@
++++
+author = "Lloyd Bridges"
+title = "Lloyd Bridges Quotes"
+quotes_len = "10"
+description = "the best 10 Lloyd Bridges Quotes"
+keywords = "lloyd bridges,lloyd bridges quotes,lloyd bridges quote,lloyd bridges sayings,lloyd bridges saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''I needed to feed my family. I read a couple of the episodes. How can you keep on doing the same thing?''' ,'''As time went on, I got envious and wanted to do a lot of stunts myself.''' ,'''I'm foremost an actor. I feel embarrassed being compared to the guys who really work at it. I fake it, I make believe I know all about it, which is what you're supposed to do as an actor.''' ,'''Sea Hunt was the first time anyone tackled a show that took place underwater. The stories were sort of exciting for kids, like cops and robbers underwater.''' ,'''Bear Valley is the hidden treasure of the Sierra.''' ,'''We worked under a lot of pressure... three days to do an episode, sometimes two in a week, 39 episodes a year.''' ,'''There's a lot to be said about what's happening to our ocean, big companies polluting it with their oil and all the raw garbage that's being spilled in there.''' ,'''For four years doing that same character all the time kind of bothered me. Butit opened up a lot of doors.''' ,'''Carrying those double tanks around all the time got to be a little rough on me. I had to put that damn wetsuit on and take it off, sometimes three or four times a day.''' ,'''We wanted to set a good example for the growing number of divers watching.''' ,]
++++

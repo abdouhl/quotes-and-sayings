@@ -1,0 +1,8 @@
++++
+author = "Hank Haney"
+title = "Hank Haney Quotes"
+quotes_len = "7"
+description = "the best 7 Hank Haney Quotes"
+keywords = "hank haney,hank haney quotes,hank haney quote,hank haney sayings,hank haney saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''I've been ripped for being too sensitive, but I do think people need to walk in another person's shoes before they accuse them of being too sensitive.''' ,'''My feeling was, you plant some seeds. If they grow, great; if they don't, you don't take it personally. Not my problem; I just kept planting. Just like a farmer.''' ,'''One of the things you realize with a lot of high achievers: You have to figure out a way to make things their idea.''' ,'''Well it's not easy being Tiger Woods on the course. It's not easy being Tiger Woods off the course. In his defense, it's not easy being Tiger Woods.''' ,'''I know I was a great friend to Tiger Woods. But when you have a relationship that's involves business and friendship - and the business part comes to an end - things always get a little blurry.''' ,'''To have the opportunity to work with Tiger Woods was just so awesome. I enjoyed it. I enjoyed the challenge. I enjoyed the good parts where he was winning. And I enjoyed the challenge to help him get better. But six years was enough.''' ,'''Does anyone actually think I'm going to call Tiger Woods and tell him what to do with his swing one day, and he's going to go out and do it, simple as that? It doesn't work like that.''' ,]
++++

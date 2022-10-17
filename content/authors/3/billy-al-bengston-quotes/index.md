@@ -1,0 +1,8 @@
++++
+author = "Billy Al Bengston"
+title = "Billy Al Bengston Quotes"
+quotes_len = "8"
+description = "the best 8 Billy Al Bengston Quotes"
+keywords = "billy al bengston,billy al bengston quotes,billy al bengston quote,billy al bengston sayings,billy al bengston saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''I'm doing what all modern artists do now, which is nothing - just sit around and dream about things. I'll do what they call 'the stroke of genius.'''' ,'''For me, the heyday was in 1959. It was before the Ferus Gallery moved across the street, in the days when Ed Kienholz and Walter Hopps ran it. At that time, art was taken very seriously in terms of being an artist, and not as a profession.''' ,'''I never do the cute thing with animals; they are interesting shapes. I just use their profile. Because German shepherds are so easily recognizable, they would fall outside my purview.''' ,'''The art from the East is influenced by nature and touch. That comes from being more attuned to the environment.''' ,'''I paint stupid things; that's what I do. I can't think of anything more boring than a really beautiful thing. You have to mess it up. There has to be something a little kinky to keep their attention.''' ,'''Art is something you can't teach, but you can inspire it.''' ,'''I owe a great debt to motor-racing, and the first place I went to in Europe when I was 20 was Italy, and I was extremely influenced by it in books until I got there.''' ,'''We believed that there's no such thing as good art or bad art. Art is art. If it's bad, it's something else. It was a much, much harder line in the '50s and '60s than it is now, because the idea of art education didn't exist - they didn't have a fine arts program when I was a kid.''' ,]
++++

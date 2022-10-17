@@ -1,0 +1,8 @@
++++
+author = "Finley Peter Dunne"
+title = "Finley Peter Dunne Quotes"
+quotes_len = "16"
+description = "the best 16 Finley Peter Dunne Quotes"
+keywords = "finley peter dunne,finley peter dunne quotes,finley peter dunne quote,finley peter dunne sayings,finley peter dunne saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''The only good husbands stay bachelors: They're too considerate to get married.''' ,'''One of the strangest things about life is that the poor, who need the money the most, are the ones that never have it.''' ,'''Vice is a creature of such hideous mien... that the more you see it the better you like it.''' ,'''A fanatic is a man that does what he thinks the Lord would do if He knew the facts of the case.''' ,'''There are no friends at cards or world politics.''' ,'''Trust everybody, but cut the cards.''' ,'''Don't jump on a man unless he is down.''' ,'''A lie with a purpose is one of the worst kind, and the most profitable.''' ,'''Most vegetarians look so much like the food they eat that they can be classified as cannibals.''' ,'''The past always looks better than it was. It's only pleasant because it isn't here.''' ,'''The world is not growing worse and it is not growing better - it is just turning around as usual.''' ,'''There ain't any news in being good. You might write the doings of all the convents of the world on the back of a postage stamp, and have room to spare.''' ,'''Comfort the afflicted, and afflict the comfortable.''' ,'''Alcohol is necessary for a man so that he can have a good opinion of himself, undisturbed be the facts.''' ,'''It don't make much difference what you study, so long as you don't like it.''' ,'''An appeal is when you ask one court to show its contempt for another court.''' ,]
++++

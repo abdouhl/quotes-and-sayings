@@ -1,0 +1,8 @@
++++
+author = "Carmen Marton"
+title = "Carmen Marton Quotes"
+quotes_len = "6"
+description = "the best 6 Carmen Marton Quotes"
+keywords = "carmen marton,carmen marton quotes,carmen marton quote,carmen marton sayings,carmen marton saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''I can feel my body is starting to get tired, all that training, which I've been doing three or four times a week since I was eight, and recovery is taking longer.''' ,'''When I set my eyes on the gold at the world championships, I was able to maintain that focus that whole day. That's what I aim to do in Rio - my focus is gold, so I can keep in that good state; I can't get too complacent. I can't relax; I can't be content. I need to be 100 per cent switched on.''' ,'''Oh, there's a lot of breaks in our sport. Strained muscles, breaks, tears. I've seen teeth fly out before mouth guards were compulsory. Feet fractures are quite common, cheeks, faces, jaws, legs.''' ,'''I could live on fresh bread. My parents, who are Polish, have brought us up on varieties of bread from European bakeries, and I love rye, caraway seed, dark rye... throw in some butter and cheese, and I'm set.''' ,'''So far in my career, I've achieved what I've achieved because I've believed that I could do it. And I've never believed that anyone's better than me, because I think when you start doing that, you've already lost the fight.''' ,'''I'm told that I look like a nice girl. But, yes, I do a full contact sport, and when people ask what I do, they are a bit surprised when I say, 'A martial art, a full contact sport.'''' ,]
++++

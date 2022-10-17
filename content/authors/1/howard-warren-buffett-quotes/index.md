@@ -1,0 +1,8 @@
++++
+author = "Howard Warren Buffett"
+title = "Howard Warren Buffett Quotes"
+quotes_len = "6"
+description = "the best 6 Howard Warren Buffett Quotes"
+keywords = "howard warren buffett,howard warren buffett quotes,howard warren buffett quote,howard warren buffett sayings,howard warren buffett saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''I've spent so much time with my dad traveling and seeing the ground-level change that we've been able to make through philanthropy and trip over trip, time over time, country over country, home after home we've been invited into, given tea, given food that people didn't have to give us, I mean all of these things.''' ,'''Soil is a living ecosystem, and is a farmer's most precious asset. A farmer's productive capacity is directly related to the health of his or her soil.''' ,'''There are more living organisms in a tablespoon of highly organic soil than there are people on the planet.''' ,'''If I'm home, I'll be happy. And if I'm around family, and if I'm working on projects with friends, I don't know what else I'd want to be doing.''' ,'''When I was 5, my father was very much my hero. And he ran for political office in a very thankless campaign for a very thankless position. And he did it because his mother had instilled in him, if you are someone who has the capacity to make a great change, you have the responsibility.''' ,'''I was pulled out of Omaha when I was younger because my father started to work, when he was done serving as county commissioner, at Archer Daniels Midland.''' ,]
++++

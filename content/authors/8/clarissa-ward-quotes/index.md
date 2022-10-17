@@ -1,0 +1,8 @@
++++
+author = "Clarissa Ward"
+title = "Clarissa Ward Quotes"
+quotes_len = "7"
+description = "the best 7 Clarissa Ward Quotes"
+keywords = "clarissa ward,clarissa ward quotes,clarissa ward quote,clarissa ward sayings,clarissa ward saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''I absolutely love my job. I feel so privileged: I get to travel the world, I get to witness history... and I'm constantly inspired by the different amazing characters I meet along the way.''' ,'''There are times when it's absolutely appropriate to march up to someone, stick out your hand and introduce yourself, and times when it's best to let your male cameraman or producer do the talking and hang back until you've felt out the situation.''' ,'''When you're out in the field and spending time in these different places around the world, humility is one of the most important assets that will serve you well.''' ,'''We're journalists, and so it's our job to be impartial and provide a fair and thorough assessment of what's happening on the ground from the perspective of what we're able to see.''' ,'''I always knew I wanted to be on air and travel the world and tell people's stories. I wanted to convey something from other cultures to the U.S. - and vice versa.''' ,'''Even though I don't have a lot of spare time, what I do have I'm very protective of, and so I make sure to have a normal life and to remember that, while it's important to keep in mind these conflicts are ongoing, it's also important to enjoy simple pleasures, too.''' ,'''The experience of being a young, blonde, naive but well-intentioned young producer was both intimidating and eye-opening.''' ,]
++++

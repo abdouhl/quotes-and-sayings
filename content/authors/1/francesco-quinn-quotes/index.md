@@ -1,0 +1,8 @@
++++
+author = "Francesco Quinn"
+title = "Francesco Quinn Quotes"
+quotes_len = "6"
+description = "the best 6 Francesco Quinn Quotes"
+keywords = "francesco quinn,francesco quinn quotes,francesco quinn quote,francesco quinn sayings,francesco quinn saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''I could be winning the decathlon in high school, which I've won twice, yet, if my dad is in the audience, 'Oh look! It's Anthony Quinn.' And I'm like, 'Hello? Kid just got a gold medal. Hello? I'm over here.'''' ,'''I was born into a profession in which my love of words, chosen with care for their meaning and nuance, was extremely important, not only to me, but also to the people with whom I worked with.''' ,'''There are two kinds of people on this Earth: Those who are content and those who are not.''' ,'''What I'd like to pass on to my children is the thirst for knowledge. It's something I experience every day that I learned from my father. He always taught me that no matter how long you've done something, you can always learn something new and be better at what you do.''' ,'''I've lived an amazing life. There's no reason to focus on the bad. They teach you that in racing school. Keep your eye where you want your front tire to be. You don't want to be stuck in the rut? Then don't look at the rut. Always look at where you want to go.''' ,'''I learned from an early age that my heritage, my love for people, and my desire to be a vehicle that can be used through my voice, that my expressions and actions can transport a person to experience a scene from the past, present and future.''' ,]
++++

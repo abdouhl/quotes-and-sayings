@@ -1,0 +1,8 @@
++++
+author = "Chetan Bhagat"
+title = "Chetan Bhagat Quotes"
+quotes_len = "9"
+description = "the best 9 Chetan Bhagat Quotes"
+keywords = "chetan bhagat,chetan bhagat quotes,chetan bhagat quote,chetan bhagat sayings,chetan bhagat saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''I myself don't know what makes my books work. I enter a bookstore and I'm frankly overwhelmed by the number of books in most of them, and I know people are buying mine.''' ,'''I think original voices get noticed. But most importantly, I think you should have a story to tell.''' ,'''Let's be honest: the trappings of investment banking are quite tempting. I do miss it sometimes. And to be honest, there was a time I'd read the 'WSJ' in the morning, and for years I have done that.''' ,'''In our education system, we are taught to munch figures and remember them for lifetime. But does it help? We are not taught how to make decisions.''' ,'''Panic does not help, even if you are unable to answer. Try to ask questions to the interviewers as well and it should be impressive enough.''' ,'''While I am a capitalist at heart and I have no problems with commercialization as such, I believe that while it's okay if education becomes a profitable business, it's not okay if it becomes corrupt.''' ,'''Even now I try to make each page compelling for the readers to get absorbed in the book.''' ,'''The younger generation is surrounded by the Internet, apps, and video games. But somehow, my books make them read.''' ,'''The real middle class India that has always been looking for a voice that is its very own. I write about it because I belong to it.''' ,]
++++

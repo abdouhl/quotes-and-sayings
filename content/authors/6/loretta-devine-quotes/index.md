@@ -1,0 +1,8 @@
++++
+author = "Loretta Devine"
+title = "Loretta Devine Quotes"
+quotes_len = "8"
+description = "the best 8 Loretta Devine Quotes"
+keywords = "loretta devine,loretta devine quotes,loretta devine quote,loretta devine sayings,loretta devine saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''I get a lot of independent films from people who are starting out.''' ,'''The message has become clearer to the nation about AIDS. People used to think they could catch it all kinds of ways, but we now know that it is absolutely passed through bodily fluids.''' ,'''I still have to audition for most things.''' ,'''I'm in the process of trying to find something that I could do on my own.''' ,'''The fact that a person loves one particular person is what is important; the life lesson, whether you are homosexual or heterosexual, is that you not be promiscuous, and true to one person.''' ,'''People see a lot of huge stuff on Broadway, but there's always Off-Broadway energy and also shows that you can work in.''' ,'''There are etiquette things that actors, new actors, need to know about. Because it only takes one mess-up on a set to get fired. Not being where you're supposed to be or saying something to the wrong person that you're not supposed to say, and those are like basic things that the actors need to know.''' ,'''For movies, I usually do an entire book that has all kinds of things about what is happening at the time the movie is going on and try to get into what my character's going to be like, to try to get some consistency, because they shoot movies out of order.''' ,]
++++

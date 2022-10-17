@@ -1,0 +1,8 @@
++++
+author = "Lawrence Schiller"
+title = "Lawrence Schiller Quotes"
+quotes_len = "6"
+description = "the best 6 Lawrence Schiller Quotes"
+keywords = "lawrence schiller,lawrence schiller quotes,lawrence schiller quote,lawrence schiller sayings,lawrence schiller saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''The most important thing you learn as a sports photographer is anticipation - not where the action is taking place, but where it's going to take place. Not where the subject is now, but where they're going to be.''' ,'''When you've experienced the real Marilyn, it's difficult to watch a movie about her.' I didn't want to have the memories of my experience tarnished in any way.''' ,'''You constantly felt like you wanted to protect her and that you wanted to save her and that's what made her attractive more so to women than even to men. That's why she's still with us. Marilyn Monroe never offended a woman.''' ,'''I knew Marilyn over a two-year period. I met her first on a movie called 'Let's Make Love.' I photographed her at that time on and off through the time of her death. I was 22 years old and she was 34 or 35.''' ,'''Marilyn was a great actress, not a dumb blond bombshell. She was very smart, very astute and a good businesswoman.''' ,'''A close friend of mine, Annie Leibovitz, who I've known for forty years, photographs celebrities every single day of the week but they all seem to look the same even though she's one of the most creative photographers alive. They all just look the same. Brad Pitt is a great actor but all the pictures of Brad Pitt look the same.''' ,]
++++

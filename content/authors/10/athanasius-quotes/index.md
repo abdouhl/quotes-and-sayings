@@ -1,0 +1,8 @@
++++
+author = "Athanasius"
+title = "Athanasius Quotes"
+quotes_len = "7"
+description = "the best 7 Athanasius Quotes"
+keywords = "athanasius,athanasius quotes,athanasius quote,athanasius sayings,athanasius saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''Similarly, anyone who wishes to understand the mind of the sacred writers must first cleanse his own life, and approach the saints by copying their deeds.''' ,'''Thus united to them in the fellowship of life, he will both understand the things revealed to them by God and, thenceforth escaping the peril that threatens sinners in the judgment, will receive that which is laid up for the saints in the kingdom of heaven.''' ,'''The Son of God became man so that we might become God.''' ,'''Anyone who wants to look at sunlight naturally wipes his eye clear first, in order to make, at any rate, some approximation to the purity of that on which he looks; and a person wishing to see a city or country goes to the place in order to do so.''' ,'''Jesus that I know as my Redeemer cannot be less than God.''' ,'''One cannot possibly understand the teaching of the saints unless one has a pure mind and is trying to imitate their life.''' ,'''These are fountains of salvation that they who thirst may be satisfied with the living words they contain. In these alone is proclaimed the doctrine of godliness. Let no man add to these, neither let him take out from these.''' ,]
++++

@@ -1,0 +1,8 @@
++++
+author = "Lynn Westmoreland"
+title = "Lynn Westmoreland Quotes"
+quotes_len = "8"
+description = "the best 8 Lynn Westmoreland Quotes"
+keywords = "lynn westmoreland,lynn westmoreland quotes,lynn westmoreland quote,lynn westmoreland sayings,lynn westmoreland saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''What the Democrats don't seem to understand is that higher taxes mean fewer American jobs and less American production.''' ,'''I'm going to go back and find out where the money is. The money is not getting down there.''' ,'''The condition in New Orleans was changing every day. I said, why don't we appropriate another $10 billion, come back and look at the situation, and do another $10 billion every week, or every 10 days?''' ,'''I talked to General Downer about some of the funding about the National Guard and some of the civil defense workers, the firefighters, the police officers, and the way that FEMA is making them spend that money. We have got a problem there.''' ,'''The greatest threat to the constitutional right to vote is voter fraud.''' ,'''The Women of the Storm made a big difference for me, because it really put some real-life faces with the situation, and not just politicians.''' ,'''I think these ladies, that group of 130 women, are going to make a difference in what goes on down there, because they're going to hold the locals' feet to the fire.''' ,'''Trust me, I'm going to find out where the money has gone and how it has been spent, and see if we can't get it down there quicker to let that rebuilding start.''' ,]
++++

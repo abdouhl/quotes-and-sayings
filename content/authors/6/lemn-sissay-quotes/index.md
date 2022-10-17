@@ -1,0 +1,8 @@
++++
+author = "Lemn Sissay"
+title = "Lemn Sissay Quotes"
+quotes_len = "8"
+description = "the best 8 Lemn Sissay Quotes"
+keywords = "lemn sissay,lemn sissay quotes,lemn sissay quote,lemn sissay sayings,lemn sissay saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''When somebody takes a child from their native culture, that is in itself an act of aggression.''' ,'''My real mother is a survivor, very strong and respected by the people who know her, but our relationship is not easy - but then, it was never going to be.''' ,'''My foster parents were very religious. They told me that they had not decided to take me in, rather that it was God that had decided it for them.''' ,'''Technology will never last if it ignores human beings' basic instinct to express and discover through expression.''' ,'''I have spent most of my adult life proving that I existed. A blog is an accessible way of doing this - there is a date and place in cyberspace that I existed a year ago, to the day, and the proof is still there.''' ,'''I think we are in an age where cash pays for time and space. The more cash you have, the bigger space you can buy and the smaller the technology to put in it.''' ,'''To Western parents that want to adopt a child, I would say to people that money is not everything, wealth does not matter.''' ,'''A blog is neither a diary nor a journal. Many people think of blogging in relation to those two things, confessional or practical. It is neither but includes elements of both.''' ,]
++++

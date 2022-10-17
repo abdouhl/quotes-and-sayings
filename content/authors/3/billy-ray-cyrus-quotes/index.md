@@ -1,0 +1,8 @@
++++
+author = "Billy Ray Cyrus"
+title = "Billy Ray Cyrus Quotes"
+quotes_len = "8"
+description = "the best 8 Billy Ray Cyrus Quotes"
+keywords = "billy ray cyrus,billy ray cyrus quotes,billy ray cyrus quote,billy ray cyrus sayings,billy ray cyrus saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''The people at the record company had asked me if I could write a song about my life, my relationship with God, and where I'm from. Well, I can't write a song on purpose, my songs come in a moment of inspiration or desperation.''' ,'''A lot of people think Christianity is about always being perfect. It's actually the opposite of that. It's realizing that we're all humans, and that's why God sent his Son to this earth - to save people.''' ,'''I always prayed that God would give me the wisdom and the vision to do the things on this earth that I was supposed to do to express His life and love and His will.''' ,'''Each person has their own calling on this Earth.''' ,'''My grandfather was a Pentecostal preacher.''' ,'''Well, I've never left my faith - but have I made a lot of mistakes? But was I fortunate that I was brought up in that Pentecostal church, where I heard about God's love and God's forgiveness.''' ,'''I don't think there's any accidents in my life.''' ,'''I am and always will be a sinner. But that's the beautiful thing about Jesus. I'll always try to be a better person in the eyes of God. But I'm not all of a sudden stepping up on a pedestal and saying I'm holier than thou, 'cause I'm not!''' ,]
++++

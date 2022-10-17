@@ -1,0 +1,8 @@
++++
+author = "Larry Mcmurtry"
+title = "Larry Mcmurtry Quotes"
+quotes_len = "11"
+description = "the best 11 Larry Mcmurtry Quotes"
+keywords = "larry mcmurtry,larry mcmurtry quotes,larry mcmurtry quote,larry mcmurtry sayings,larry mcmurtry saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''No illusion is more crucial than the illusion that great success and huge money buy you immunity from the common ills of mankind, such as cars that won't start.''' ,'''Members of the Academy are mostly urban people. We are an urban nation. We are not a rural nation. It's not easy even to get a rural story made.''' ,'''Incompetents invariably make trouble for people other than themselves.''' ,'''One of the things that Ang brings to all of his projects is his deep sense of being a double exile, an outsider's outsider.''' ,'''If we know anything about man, it's that he's not pacific. The temptation to butcher anyone considered undesirable seems to be a common temptation, not always resisted.''' ,'''Americans don't want cowboys to be gay.''' ,'''Backward is just not a natural direction for Americans to look - historical ignorance remains a national characteristic.''' ,'''A man that ain't willin' to cheat for a poke don't want it bad enough.''' ,'''Self-parody is the first portent of age.''' ,'''True maturity is only reached when a man realizes he has become a father figure to his girlfriends' boyfriends - and he accepts it.''' ,'''You expect far too much of a first sentence. Think of it as analogous to a good country breakfast: what we want is something simple, but nourishing to the imagination.''' ,]
++++

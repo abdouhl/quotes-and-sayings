@@ -1,0 +1,8 @@
++++
+author = "Hun Sen"
+title = "Hun Sen Quotes"
+quotes_len = "11"
+description = "the best 11 Hun Sen Quotes"
+keywords = "hun sen,hun sen quotes,hun sen quote,hun sen sayings,hun sen saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''The lessons of the past should steer us towards ensuring lasting legacies for generations yet to be born.''' ,'''The trial organized with U.N. participation of some kind will be for crimes committed by Khmer Rouge leaders from 1975 to 1979. That's it.''' ,'''Yet, our achievements also mask many continuing failings and seem to expose more future dangers.''' ,'''Cambodia possesses now the rights to look far into the future and everything for making a future construction is waiting for the Cambodian own efforts.''' ,'''Cambodia is not going to be bought by anyone.''' ,'''We want to see all demonstrations stopped.''' ,'''Let me reassure that the Kingdom of Cambodia a country with independence, neutrality, peace, freedom, democracy and human rights as you all have seen, shall be existing with no end.''' ,'''We have lost the art of sharing and caring.''' ,'''There are gays and lesbians in every country, so there should be no discrimination against them just because of their destiny.''' ,'''Pol Pot will surrender, be captured or commit suicide.''' ,'''Peace, so elusive in the past many decades, now finally prevails all over the country.''' ,]
++++

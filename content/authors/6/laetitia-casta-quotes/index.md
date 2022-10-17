@@ -1,0 +1,8 @@
++++
+author = "Laetitia Casta"
+title = "Laetitia Casta Quotes"
+quotes_len = "12"
+description = "the best 12 Laetitia Casta Quotes"
+keywords = "laetitia casta,laetitia casta quotes,laetitia casta quote,laetitia casta sayings,laetitia casta saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''It's always fun to immerse yourself in a different time period.''' ,'''What is interesting about me isn't that I am a mother, it is who I am. I love my family, but if I just talk to you about being a mother, it's boring. I am sorry, but it's reducing who I really am, and it's really boring.''' ,'''And there is a beautiful thing which is wonderful, to look like a woman, not a green bean.''' ,'''Yves Saint Laurent was the first person who made me feel like a woman.''' ,'''It is when I am working that the real me comes out - that is when I am the most real and honest.''' ,'''I don't understand why women journalists always ask women about motherhood? It's far more important and interesting for women to talk about their work, their thoughts, their creativity and their individual identity.''' ,'''Real beauty is to be true to oneself. That's what makes me feel good.''' ,'''Working with kids can be tricky because they can be pretty unpredictable.''' ,'''I want to work on interesting parts that I can believe in.''' ,''''The Master' is a wonderful film, honestly, and the actors, Joaquin Phoenix and Phillip Seymour Hoffman, are incredible.''' ,'''I didn't like the idea of changing myself for the industry. I felt to have my teeth straightened and bleached and to starve myself to change my body was not respecting who I was.''' ,'''I was very excited to work with Nick Jarecki and, of course, to be in a film with Richard Gere and Susan Sarandon!''' ,]
++++

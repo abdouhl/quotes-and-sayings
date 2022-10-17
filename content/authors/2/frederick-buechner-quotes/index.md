@@ -1,0 +1,8 @@
++++
+author = "Frederick Buechner"
+title = "Frederick Buechner Quotes"
+quotes_len = "8"
+description = "the best 8 Frederick Buechner Quotes"
+keywords = "frederick buechner,frederick buechner quotes,frederick buechner quote,frederick buechner sayings,frederick buechner saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''Pay mind to your own life, your own health, and wholeness. A bleeding heart is of no help to anyone if it bleeds to death.''' ,'''Religion points to that area of human experience where in one way or another man comes upon mystery as a summons to pilgrimage.''' ,'''Compassion is sometimes the fatal capacity for feeling what it is like to live inside somebody else's skin. It is the knowledge that there can never really be any peace and joy for me until there is peace and joy finally for you too.''' ,'''It is as impossible for man to demonstrate the existence of God as it would be for even Sherlock Holmes to demonstrate the existence of Arthur Conan Doyle.''' ,'''The grace of God means something like: Here is your life. You might never have been, but you are because the party wouldn't have been complete without you.''' ,'''In his holy flirtation with the world, God occasionally drops a handkerchief. These handkerchiefs are called saints.''' ,'''If it seems a childish thing to do, do it in remembrance that you are a child.''' ,'''You can't be too careful what you tell a child because you never know what he'll take hold of and spend the rest of his life remembering you by.''' ,]
++++

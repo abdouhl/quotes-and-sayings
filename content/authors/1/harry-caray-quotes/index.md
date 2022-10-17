@@ -1,0 +1,8 @@
++++
+author = "Harry Caray"
+title = "Harry Caray Quotes"
+quotes_len = "11"
+description = "the best 11 Harry Caray Quotes"
+keywords = "harry caray,harry caray quotes,harry caray quote,harry caray sayings,harry caray saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''When I die, I hope they don't cremate me 'cuz I'll burn forever.''' ,'''It might be, it could be... it is! A home run!''' ,'''I've only been doing this fifty-four years. With a little experience, I might get better.''' ,'''Holy cow!''' ,'''Now, you tell me, if I have a day off during the baseball season, where do you think I'll spend it? The ballpark. I still love it. Always have, always will.''' ,'''It's the fans that need spring training. You gotta get 'em interested. Wake 'em up and let 'em know that their season is coming, the good times are gonna roll.''' ,'''I knew the profanity used up and down my street would not go over the air... So I trained myself to say 'Holy Cow' instead.''' ,'''My whole philosophy is to broadcast the way a fan would broadcast.''' ,'''You know they're not going to lose 162 consecutive games.''' ,'''I'll tell you what's helped me my entire life. I look at baseball as a game. It's something where people can go out, enjoy and have fun. Nothing more.''' ,'''I know it is the fans that are responsible for me being here. I've always tried in each and every broadcast to serve the fans to the best of my ability.''' ,]
++++

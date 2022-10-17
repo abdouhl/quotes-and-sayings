@@ -1,0 +1,8 @@
++++
+author = "Rohinton Mistry"
+title = "Rohinton Mistry Quotes"
+quotes_len = "7"
+description = "the best 7 Rohinton Mistry Quotes"
+keywords = "rohinton mistry,rohinton mistry quotes,rohinton mistry quote,rohinton mistry sayings,rohinton mistry saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''In the broad sense, as a processing of everything one hears or witnesses, all fiction is autobiographical - imagination ground through the mill of memory. It's impossible to separate the two ingredients.''' ,'''Children don't make judgments about which details are important... a child captures them all.''' ,'''Traffic in the streets of Bombay is chaotic at best. Riding a bicycle is a dangerous occupation. However, there are hundreds of them on the streets competing with the cars and buses and lorries because it is the poor man's mode of transport.''' ,'''Zoroastrianism is about the opposition of good and evil. For the triumph of good, we have to make a choice. We can enlist on the side of good by prospering, making money and using our wealth to help others.''' ,'''The worst part of great poverty is that you become blind to it.''' ,'''I met my wife when we were both 19 or 20, at a music school where she was taking voice and piano lessons and I was doing classes in music theory and composition.''' ,'''All fiction relies on the real world in the sense that we all take in the world through our five senses and we accumulate details, consciously or subconsciously. This accumulation of detail can be drawn on when you write fiction.''' ,]
++++

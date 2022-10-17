@@ -1,0 +1,8 @@
++++
+author = "Carol Roth"
+title = "Carol Roth Quotes"
+quotes_len = "9"
+description = "the best 9 Carol Roth Quotes"
+keywords = "carol roth,carol roth quotes,carol roth quote,carol roth sayings,carol roth saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''Many businesses fail because the owner wasn't willing to invest and wasn't educated on the difference between spending money frivolously and investing money into the business for growth, and the risks and rewards of that cash infusion.''' ,'''I have been working in male-dominated industries most of my life. When I started my career in investment banking, I was one of two women in my analyst class.''' ,'''When men hold the greater majority of all professional positions of power, it is impossible for a woman to advance her career without the support of men.''' ,'''Most people end up owning a business by accident. Therefore, they don't usually have a thought process and a strategic plan in place.''' ,'''A lot of people who own a business aren't entrepreneurial at all.''' ,'''Eighty to 90 percent of success in a company has nothing to do with business at all - it's all personal.''' ,'''Over the years, I have created close friendships with many successful men, many of whom I have made a lot of money for through deals that I brought to them or business counsel that I have provided.''' ,'''Social media can be a powerful tool to listen to, engage with and gain access to customers that you would otherwise not be able to connect with.''' ,'''Men, if you are in a position of power or authority, please respectfully continue to mentor and work with talented individuals and those with promise, regardless if they are men or women.''' ,]
++++

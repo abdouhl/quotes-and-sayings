@@ -1,0 +1,8 @@
++++
+author = "Hugh Sidey"
+title = "Hugh Sidey Quotes"
+quotes_len = "7"
+description = "the best 7 Hugh Sidey Quotes"
+keywords = "hugh sidey,hugh sidey quotes,hugh sidey quote,hugh sidey sayings,hugh sidey saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''The problems seem so easy out there on the stump. Deficits shrink with a rhetorical flourish.''' ,'''A sense of humor... is needed armor. Joy in one's heart and some laughter on one's lips is a sign that the person down deep has a pretty good grasp of life.''' ,'''Kennedy did not have to run the risk of having his ideas and his words shortened and adulterated by a correspondent. This was the television era, not only in campaigning, but in holding the presidency.''' ,'''The legions of reporters who cover politics don't want to quit the clash and thunder of electoral combat for the dry duty of analyzing the federal budget. As a consequence, we have created the perpetual presidential campaign.''' ,'''The prime minister found something hopeful in the man's eyes and manner. The 30 or so people who run this world analyze one another that way and then make decisions of life and death for us. Scary, but true.''' ,'''They can see the brave silhouette from almost anywhere in the District of Columbia and use it as a compass to locate other monuments and eventually to find their way out of the great, gray federal wilderness.''' ,'''A White House dinner is the American family assembled, from labor leaders to billionaires, actors, architects, academicians and athletes.''' ,]
++++

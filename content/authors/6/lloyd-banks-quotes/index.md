@@ -1,0 +1,8 @@
++++
+author = "Lloyd Banks"
+title = "Lloyd Banks Quotes"
+quotes_len = "11"
+description = "the best 11 Lloyd Banks Quotes"
+keywords = "lloyd banks,lloyd banks quotes,lloyd banks quote,lloyd banks sayings,lloyd banks saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''If you stay in one place, you can only rap about one thing because that's all you know.''' ,'''I have family in Ponce. It's a shame that my grandfather passed and I wasn't able to be there with him.''' ,'''A true revolution of values will soon look uneasily on the glaring contrast of poverty and wealth.''' ,'''You know, I feel that God isn't going to put something in front of me that I can't deal with.''' ,'''Ultimately a genuine leader is not a searcher for consensus but a molder of consensus.''' ,'''I take things like honor and loyalty seriously. It's more important to me than any materialistic thing or any fame I could have.''' ,'''I see myself as a flashlight in the dark. I'm not trying to be overlooked anymore.''' ,'''I've seen and learned enough to keep my music fresh and spread out.''' ,'''I feel like I made it already, because I got already what everybody on the corners of the neighborhood I grew up in is striving to get.''' ,'''When you get money you're always a target because there's always somebody who needs money out there.''' ,'''We got extremely lucky. It's a tough business to work with.''' ,]
++++

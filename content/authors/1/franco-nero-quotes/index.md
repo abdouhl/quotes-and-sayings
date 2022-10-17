@@ -1,0 +1,8 @@
++++
+author = "Franco Nero"
+title = "Franco Nero Quotes"
+quotes_len = "11"
+description = "the best 11 Franco Nero Quotes"
+keywords = "franco nero,franco nero quotes,franco nero quote,franco nero sayings,franco nero saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''I studied at the Piccolo Teatro di Milano; I was a theatre actor.''' ,'''There were many, many other 'Django' films following mine, with other actors and directors, but there is only one 'Django.'''' ,'''If you're a big Hollywood star, you make one movie a year at the most. I can make five in Europe.''' ,'''I'm crazy about westerns. I need to do a western once in a while. It's like you know, eating bread, eating pasta, drinking wine. It's in my blood. I need it.''' ,'''Every western I did and will do; I will do it for the never ending young kid inside of me.''' ,'''It doesn't matter. What matters is that you're about to die.''' ,'''Everyone has a first love, and mine was the western. When I was a child and dreamed of the movies, it was always as a cowboy on a white horse.''' ,'''Someone who was a part of my life. Probably the only one that really mattered.''' ,'''You're the one who likes cigars right? Try smoking this.''' ,'''I could be a star and maybe make lots of money, or I could change roles all the time and have a more interesting - and longer - career.''' ,'''Left love behind many years ago. Now it rests under a cross in the cemetery in Tombstone.''' ,]
++++

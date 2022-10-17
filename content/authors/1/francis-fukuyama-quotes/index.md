@@ -1,0 +1,8 @@
++++
+author = "Francis Fukuyama"
+title = "Francis Fukuyama Quotes"
+quotes_len = "6"
+description = "the best 6 Francis Fukuyama Quotes"
+keywords = "francis fukuyama,francis fukuyama quotes,francis fukuyama quote,francis fukuyama sayings,francis fukuyama saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''I'm a tenured professor. But I'd get rid of tenure.''' ,'''I've figured out in the course of my life that the one thing I'm good at doing is writing books, and it would be crazy to trade that in for something else.''' ,'''I've always had a Marxist understanding of history: democracy is a result of a broad modernization process that happens in every country. Neocons think the use of political power can force the pace of change, but ultimately it depends on societies doing it themselves.''' ,'''I'm basically an optimist because I do think there's this historical modernisation process, and by and large it's been very beneficial to people. But there are blips. History doesn't proceed in a linear way.''' ,'''In general, Americans are not very good at nation-building and not very good colonialists.''' ,'''The rationale for tenure is still valid. But the system has turned the academy into one of the most conservative and costly institutions in the country. Yes, conservative: Economists joke that their discipline advances one funeral at a time, but many fields must wait for wholesale generational turnover before new approaches take hold.''' ,]
++++

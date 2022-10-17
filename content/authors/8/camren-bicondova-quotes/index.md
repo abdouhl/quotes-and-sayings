@@ -1,0 +1,8 @@
++++
+author = "Camren Bicondova"
+title = "Camren Bicondova Quotes"
+quotes_len = "10"
+description = "the best 10 Camren Bicondova Quotes"
+keywords = "camren bicondova,camren bicondova quotes,camren bicondova quote,camren bicondova sayings,camren bicondova saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''Mexican, Mediterranean, Italian, sushi, I love it all. Put it on a plate, and as long as I know what it is, I will eat it.''' ,'''I love all animals. I just happen to prefer cats. They're really chill, and they're loving yet not loving. I relate to them, in a way.''' ,'''I personally like to talk to people when I'm not doing a scene, still acting as if I'm in Gotham when I'm on set because I don't really like to break character, since I sometimes get distracted. I may get distracted when I'm talking to people and having fun; then I have to check myself.''' ,'''I think it's weird seeing myself on the television, but it's great!''' ,'''The best gift I've ever gotten... My grandpa gave me a Polaroid camera when I was younger. It was awesome!''' ,'''Honestly, I wasn't familiar with the whole DC comics world and the Batman world before I was part of 'Gotham.'''' ,'''I love New York. I can walk half a block and I'm at the grocery store. I don't have to drive anywhere.''' ,'''I always thought it would be cool to go to the island of misfit toys.''' ,'''I've always wanted to act; I just didn't know how to get into it. It kind of just happened. Dance brought me into it.''' ,'''My mom says I either have to go to college or go into the military.''' ,]
++++

@@ -1,0 +1,8 @@
++++
+author = "Bob Hoskins"
+title = "Bob Hoskins Quotes"
+quotes_len = "14"
+description = "the best 14 Bob Hoskins Quotes"
+keywords = "bob hoskins,bob hoskins quotes,bob hoskins quote,bob hoskins sayings,bob hoskins saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''If you are going to do a film properly you have to give yourself completely to it.''' ,'''I realised one day that men are emotional cripples. We can't express ourselves emotionally, we can only do it with anger and humour. Emotional stability and expression comes from women.''' ,'''I'm a feminist, yes! Very strongly.''' ,'''Quantum physics is a bit of a passion of mine. It's extraordinary. There's a branch of mathematics that is based on lunacy, and that's wonderful.''' ,'''It's your life, live it your way.''' ,'''It's not easy to walk out on a marriage and two young kids, and it's the most difficult thing I've ever had to do.''' ,'''I'd say I am partial to women.''' ,'''I'm very romantic. I've emptied flower shops.''' ,'''I've played so many historical characters because most horrible dictators are short, fat, middle-aged men.''' ,'''One of the things I've realised is that I am very simple. My wife asked me once if I loved her. I said: 'Look love, I'm a simple man. I love you. End of story.' But I guess you gotta keep saying it with women. I guess she needed reassurance.''' ,'''Monogamy is a possibility - and a necessity. Kids have got to have something they can rely on. You have got to have something you rely on.''' ,'''I am fairly rich. Money's very handy, let's face it.''' ,'''Actors are just entertainers, even the serious ones. That's all an actor is. He's like a serious Bruce Forsyth.''' ,'''I've watched films and even forgotten I'm in them.''' ,]
++++

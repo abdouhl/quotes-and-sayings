@@ -1,0 +1,8 @@
++++
+author = "Lane Garrison"
+title = "Lane Garrison Quotes"
+quotes_len = "9"
+description = "the best 9 Lane Garrison Quotes"
+keywords = "lane garrison,lane garrison quotes,lane garrison quote,lane garrison sayings,lane garrison saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''I'm originally from Dallas, Texas, where Bonnie and Clyde were from, so when I was a little kid, my grandfather used to drive me past the Barrow Filling Station. At my elementary school, there was a barn outside that they used to say was a Bonnie and Clyde hangout.''' ,'''To be a good actor you have to feel life and observe life.''' ,'''Gene Hackman is one of the great American actors of all time.''' ,'''In the end, crime doesn't pay.''' ,'''I have much to say about the pain I've felt and seen inside of prison. It has been an eye-opening and harrowing experience.''' ,'''If you speak to anyone who's ever done time, the fact that you make it out of there alive is a miracle.''' ,'''Bonnie and Clyde were almost like a modern-day Robin Hood, stealing 'the government's money.' I think that's a bit of why they were glorified.''' ,'''I grew up learning from a father who said, 'When you make a mistake or you make a bad decision, you man up and take responsibility.'''' ,'''One of the things about jail that's weird is that you're sent to a place where you're supposed to sit there and think about your actions and their consequences and why you're there. And I think now, it turns more into - the minute you go there, it's just survival.''' ,]
++++

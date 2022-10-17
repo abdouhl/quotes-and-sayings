@@ -1,0 +1,8 @@
++++
+author = "Herb Brooks"
+title = "Herb Brooks Quotes"
+quotes_len = "11"
+description = "the best 11 Herb Brooks Quotes"
+keywords = "herb brooks,herb brooks quotes,herb brooks quote,herb brooks sayings,herb brooks saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''You know, Willie Wonka said it best: we are the makers of dreams, the dreamers of dreams.''' ,'''And maybe I'm a little smarter now than I was before for all the stupid things I've done.''' ,'''You're looking for players whose name on the front of the sweater is more important than the one on the back. I look for these players to play hard, to play smart and to represent their country.''' ,'''You're playing worse and worse every day and right now you're playing like it's next month.''' ,'''We should be dreaming. We grew up as kids having dreams, but now we're too sophisticated as adults, as a nation. We stopped dreaming. We should always have dreams.''' ,'''If I'd have went on the ice when this thing happened, someone would have speared me or something. It's a great feeling of accomplishment and pride. They had to do it; it was their moment.''' ,'''I'm a dreamer.''' ,'''Great moments are born from great oppurtunities.''' ,'''Everything goes in cycles, to a degree.''' ,'''Maybe I'm sort of like the players - there's still a lot of little boy in me.''' ,'''This is your moment. You're meant to be here.''' ,]
++++

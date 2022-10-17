@@ -1,0 +1,8 @@
++++
+author = "Robert Richardson"
+title = "Robert Richardson Quotes"
+quotes_len = "9"
+description = "the best 9 Robert Richardson Quotes"
+keywords = "robert richardson,robert richardson quotes,robert richardson quote,robert richardson sayings,robert richardson saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''I have developed my eye as a cinematographer through the craft of operating. When I am not operating, I am often anxious, uncertain, restless, sometimes irritable. When I am in the position of working with Steadicam or remote cameras, I fly with a broken wing.''' ,'''I find that on most films it's very difficult to have a backlit movie in an exterior.''' ,'''I feel comfortable with either digital or film - the director and the project should determine the course of choice.''' ,'''It's far better to shoot a good picture than a good-looking picture.''' ,'''The beauty of a Tarantino film is that the visuals match the rhythm of the words. That's his goal. And that's my goal.''' ,'''During a movie, you lose all ability to focus on your own interests. Your life is in service. After that you just want to disappear, switch off the phone, and sleep and watch movies for a month.''' ,'''Sadly, cinemas with film as the primary source are disappearing. We need to remain open to change. That does not require one to divorce the past but to respect and process both the present and the future.''' ,'''The most important thing for Quentin and the most important thing for me is to make the best film possible.''' ,'''My career is based primarily upon finding a balance with a director and their vision, and that means sublimating my own personal ego toward their material.''' ,]
++++

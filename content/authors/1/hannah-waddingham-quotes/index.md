@@ -1,0 +1,8 @@
++++
+author = "Hannah Waddingham"
+title = "Hannah Waddingham Quotes"
+quotes_len = "9"
+description = "the best 9 Hannah Waddingham Quotes"
+keywords = "hannah waddingham,hannah waddingham quotes,hannah waddingham quote,hannah waddingham sayings,hannah waddingham saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''When I did 'Spamalot,' the joke was that I was a foot taller than Tim Curry.''' ,'''I spent a whole year in 'Spamalot' and didn't have one drop of alcohol.''' ,'''I can't really say my height has hindered me in the theater, though it really has hindered me in TV. It's just something you have to embrace, your height.''' ,'''If L. Frank Baum had written 'Wicked,' I'd have done. It doesn't appeal to me at all and never did.''' ,'''And I couldn't have a less witchy nose in real life, could I? I mean, it's a button.''' ,'''It was a complete no-brainer. Literally, the call came through: Andrew Lloyd Webber wanting to offer you, with no audition, The Wicked Witch of the West at the London Palladium - I'm in!''' ,'''Sondheim informs us, more than any other composer, about the joys, passion and pain of being a woman living in various social conditions through the ages with frightening accuracy. Playing a variety of his characters has always made me feel like I'm having a free therapy session through his words and music!''' ,'''I like to think that I offer more woman per square inch.''' ,'''People say to me, 'Why do you do these ugly parts?' And it's because at the end of the day, I'm an actress, and I crave the dark and the light within one job.''' ,]
++++

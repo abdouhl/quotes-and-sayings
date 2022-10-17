@@ -1,0 +1,8 @@
++++
+author = "Roberta Flack"
+title = "Roberta Flack Quotes"
+quotes_len = "11"
+description = "the best 11 Roberta Flack Quotes"
+keywords = "roberta flack,roberta flack quotes,roberta flack quote,roberta flack sayings,roberta flack saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''Bill Evans is a real serious jazz pianist who, in my book, crossed over boundaries in terms of color. He used the piano as his canvas.''' ,'''As musicians, and as people who sell material for people to hear and absorb, it's important that we use that voice wisely.''' ,'''Our criteria for deciding what's good and what's bad is very fickle, especially in this country.''' ,'''I've been overweight all my life.''' ,'''Remember: Always walk in the light. And if you feel like you're not walking in it, go find it. Love the light.''' ,'''I didn't know how well my first album had done; it was enough to get me to do the second album, which was a continuation of the music I'd worked on and perfected.''' ,'''I have been on diets that were supervised by doctors, that were carefully supervised where I lost weight.''' ,'''So see every opportunity as golden, and keep your eyes on the prize - yours, not anybody else's.''' ,'''That's a wonderful thing, because one of the primary qualities of a good performance is honesty.''' ,'''Once you're successful with a certain kind of music, it's hard not to have faith in it as a means to stay successful.''' ,'''My hope is that out of all the anger and seeming hostility that we hear in some of today's music will come some sort of coalition that will become politically involved.''' ,]
++++

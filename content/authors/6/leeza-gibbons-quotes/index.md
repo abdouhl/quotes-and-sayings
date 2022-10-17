@@ -1,0 +1,8 @@
++++
+author = "Leeza Gibbons"
+title = "Leeza Gibbons Quotes"
+quotes_len = "11"
+description = "the best 11 Leeza Gibbons Quotes"
+keywords = "leeza gibbons,leeza gibbons quotes,leeza gibbons quote,leeza gibbons sayings,leeza gibbons saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''If caregivers are not healthy, mentally well-balanced and spiritually sound, then those for whom they care will suffer.''' ,'''When you compete with good people, it makes everybody better.''' ,'''My husband acts and I have such respect for those that do it well, that I wouldn't even try to pretend I can act.''' ,'''Caring for an Alzheimer's patient is a situation that can utterly consume the lives and well-being of the people giving care, just as the disorder consumes its victims.''' ,'''Anybody who's serious about their passion in life gets doors slammed in their face, literally and figuratively.''' ,'''There's a terrible price to pay for stress in your life - it really takes a hit on your heart.''' ,'''Alzheimer's caregivers are heroes.''' ,'''I've seen the power of Life Coaching firsthand and I know how beneficial it can be.''' ,'''I was a middle child and was used to negotiating. But there was nothing I could do to reverse my mother's condition.''' ,'''Both organizations are growing rapidly due in part to answering the urgent need in the community for services and programs to help with the day-to-day struggles that come with memory disorders.''' ,'''I'm giving life lessons and tips on how to take care of your emotional heart, because heart disease is the number-one killer in America.''' ,]
++++

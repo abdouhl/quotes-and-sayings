@@ -1,0 +1,8 @@
++++
+author = "Red Adair"
+title = "Red Adair Quotes"
+quotes_len = "10"
+description = "the best 10 Red Adair Quotes"
+keywords = "red adair,red adair quotes,red adair quote,red adair sayings,red adair saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''I've done made a deal with the devil. He said he's going to give me an air-conditioned place when I go down there, if I go there, so I won't put all the fires out.''' ,'''It scares you: all the noise, the rattling, the shaking. But the look on everybody's face when you're finished and packing, it's the best smile in the world; and there's nobody hurt, and the well's under control.''' ,'''If you think it's expensive to hire a professional to do the job, wait until you hire an amateur.''' ,'''I've got cut half in two, once, and blowed up a time or two, but nothing permanent.''' ,'''Never fear a job, always respect it, and always leave yourself a hind door to escape. May your hind door always be open.''' ,'''With bombs and fires, you get only one mistake.''' ,'''I've got too many of my friends that retired and went home and got on a rocking chair, and about a year and a half later, I'm always going to the cemetery.''' ,'''Retire? I don't know what that word means. As long as a man is able to work and he's productive out there and he feels good - keep at it.''' ,'''The good Lord put oil and gas there for us to find and use, and we'd better do it.''' ,'''Throughout my years, I've had the pleasure of assembling and training what I believe to be the best group of people in the world. People with the presence of mind to deal with any flare-up, including my own. People who share the belief that nothing is impossible.''' ,]
++++

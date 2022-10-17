@@ -1,0 +1,8 @@
++++
+author = "Ray Guy"
+title = "Ray Guy Quotes"
+quotes_len = "7"
+description = "the best 7 Ray Guy Quotes"
+keywords = "ray guy,ray guy quotes,ray guy quote,ray guy sayings,ray guy saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''I still get a few dirty looks over the racks in the supermarket, but nobody kicks me in the shins on Water Street. I've made sort of a point, apart from being a social dud, not to fraternize with the people I write about.''' ,'''I've written just about everything for the sake of putting shoes on the children's feet - and a bottle of gin in the cupboard.''' ,'''The old attitude toward newspapers was that they were completely disposable - today's newspaper is tomorrow's fish wrap.''' ,'''Newfoundlanders, what are we? We're slobbering idiots, slack-jawed simpletons, rustic fish billies living in Dogpatch-on-the-rocks, lower than lower Slobovians, the laughing stock and 'white trash' of Canada.''' ,'''Writing is like hitting yourself on the head with a hammer. It always feels good when you finish.''' ,'''This satire business, that was one of the worst things that ever happened to me. I was certified funny. From then on, I had to be funny - people expected it. Twice the work for the same pay.''' ,'''I always had this feeling when writing about all politics... that when it's so lopsided, that if a newspaper or news organization has any weight whatsoever, it should automatically go to the other side.''' ,]
++++

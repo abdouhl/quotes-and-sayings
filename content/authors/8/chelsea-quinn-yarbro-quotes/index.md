@@ -1,0 +1,8 @@
++++
+author = "Chelsea Quinn Yarbro"
+title = "Chelsea Quinn Yarbro Quotes"
+quotes_len = "11"
+description = "the best 11 Chelsea Quinn Yarbro Quotes"
+keywords = "chelsea quinn yarbro,chelsea quinn yarbro quotes,chelsea quinn yarbro quote,chelsea quinn yarbro sayings,chelsea quinn yarbro saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''When you're a mid-list writer, it pays to write fast.''' ,'''Isn't that an odd philosophy for a vampire?''' ,'''Storylines are how characters create the plots involved in their stories.''' ,'''I outline fairly extensively because I'm usually dealing with real events. I don't need to give myself as much information as I used to, but I still like to have two pages of outline for every projected 100 pages of manuscript.''' ,'''I'm not a good collaborator in general.''' ,'''Common folk didn't have last names in the 8th and 9th centuries.''' ,'''Providing a writer isn't put off by conventions - and some are - attending them can be a nice break from the necessary isolation of writing.''' ,'''If they aren't real enough to surprise me, then they aren't real enough to go on the page.''' ,'''I ride horseback - arthritic knees permitting - or listen to opera. Sometimes I cook. I used to do needlework, but it's hard on my hands now, so I only do it occasionally, but I like it. And, of course, I read.''' ,'''Very few editors worry about heresy - their goals are much too commercial, thank goodness.''' ,'''I think it is probably more important to attend specialized conventions for a journeyman writer than any other, but it's useful at all stages of a career, if for nothing else, to find out how the industry is working at any given time.''' ,]
++++

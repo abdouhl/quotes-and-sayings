@@ -1,0 +1,8 @@
++++
+author = "Lamar Hunt"
+title = "Lamar Hunt Quotes"
+quotes_len = "7"
+description = "the best 7 Lamar Hunt Quotes"
+keywords = "lamar hunt,lamar hunt quotes,lamar hunt quote,lamar hunt sayings,lamar hunt saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''I have no doubts that it will be a major sport-in the United States. I'm probably not going to live to see that day because Americans are a little afraid of getting interested in something at which they're not very good.''' ,'''He is not someone who went off to play in Europe and only a few Americans follow. He has the potential to be on magazine covers and more newspaper coverage.''' ,'''We literally had all 10 teams alive for a playoff position in the final week of the season. That outstanding balance and those close races created a major surge in attendance in the last month of the season.''' ,'''The stadiums are like none I've ever seen. I think there must have been some strong competition nationally between Korea and Japan to make the best facilities because they are very well designed.''' ,'''I get asked this a lot: Why has soccer not succeeded? My answer is, soccer has succeeded. It is already the fastest growing youth participation sport in the U.S. It has already succeeded at the youth level, no question.''' ,'''You can't compare a Super Bowl crowd, which tends to be more polite and a little more neutral to that. The Super Bowl only has 7,000 to 8,000 fans for each team.''' ,'''Well, we've made huge strides since the 1990 World Cup, USA '94, and obviously since '98. Unfortunately, those strides only register with the public once every four years.''' ,]
++++

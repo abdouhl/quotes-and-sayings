@@ -1,0 +1,8 @@
++++
+author = "Irma S. Rombauer"
+title = "Irma S. Rombauer Quotes"
+quotes_len = "7"
+description = "the best 7 Irma S. Rombauer Quotes"
+keywords = "irma s. rombauer,irma s. rombauer quotes,irma s. rombauer quote,irma s. rombauer sayings,irma s. rombauer saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''I know who in the family is a great cook. I know where the great recipes are.''' ,'''A pig resembles a saint in that he is more honored after death than during his lifetime.''' ,'''Most cocktails containing liquor are made today with gin and ingenuity. In brief, take an ample supply of the former and use your imagination. For the benefit of a minority, it is courteous to serve chilled fruit juice in addition to cocktails made with liquor.''' ,'''Soybeans really need an uplift, being on the dull side, but, like dull people, respond readily to the right contacts.''' ,'''The automatic bread maker is not as good as breads made by hand, but waking up to the smell of fresh bread is worth the price of admission. We use it for fresh cinnamon raisin toast - mmmmmmm!''' ,'''The new 'Joy' was needed for a number of reasons. Recent developments in nutrition and new ingredients were two of the major reasons for the revision. One of the other big reasons was America's new love for big flavors. Yay!''' ,'''Custard puddings, sauces and fillings accompany the seven ages of man in sickness and in health.''' ,]
++++

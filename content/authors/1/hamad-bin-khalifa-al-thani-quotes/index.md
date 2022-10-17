@@ -1,0 +1,8 @@
++++
+author = "Hamad Bin Khalifa Al Thani"
+title = "Hamad Bin Khalifa Al Thani Quotes"
+quotes_len = "7"
+description = "the best 7 Hamad Bin Khalifa Al Thani Quotes"
+keywords = "hamad bin khalifa al thani,hamad bin khalifa al thani quotes,hamad bin khalifa al thani quote,hamad bin khalifa al thani sayings,hamad bin khalifa al thani saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''Of course we are coming to invest in Germany - that is certain. Most airplanes in the fleet of Qatar Airways are from Airbus.''' ,'''I really don't want you to think of Qatar as a hydrocarbon country alone. We know that hydrocarbons will come and go. But education will stay. It is the most important thing for us.''' ,'''I don't see why OPEC countries should continue to cut production just to keep the price of oil high. This will not affect the industrial countries alone, it will also hit poor countries in Africa, Asia and Latin America. Who will look after them?''' ,'''It is better for the Arab countries themselves to interfere out of their national, humanitarian, political and military duties and to do what is necessary to stop the bloodshed in Syria.''' ,'''We in the Middle East like to talk politics, we like to argue. Just look at the three prophets - Moses, Jesus and Mohammad. They are all from this small region which creates problems all the time.''' ,'''I would like to extend to you our deep appreciation and thanks for the position the United States has taken in support of the democratization process that has taken place in Tunisia, in Egypt, and what is attempting to take place in Libya.''' ,'''Based on 30 years of experience with the Iranians, they will give you 100 words. Trust only one of the 100.''' ,]
++++

@@ -1,0 +1,8 @@
++++
+author = "Howard E. Wasdin"
+title = "Howard E. Wasdin Quotes"
+quotes_len = "8"
+description = "the best 8 Howard E. Wasdin Quotes"
+keywords = "howard e. wasdin,howard e. wasdin quotes,howard e. wasdin quote,howard e. wasdin sayings,howard e. wasdin saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''Seal Team Six is a different unit than the rest of the SEAL teams inasmuch as they concentrate primarily on one thing, counter-terrorism, hostage rescue.''' ,'''If you've never met a Navy SEAL and you ran into one at a bar, you probably still wouldn't know he's a Navy SEAL.''' ,'''I want to share some insight into why someone would want to be a SEAL. A lot of us faced obstacles growing up. I didn't have any type of real nurturing as a kid. I hope people will relate to my story and go, 'Hey, if this guy can do it, so can I.'''' ,'''All SEALS in my mind are equally elite. It doesn't matter if you're SEAL Team Two, One, Six, 10, it doesn't matter. All SEALS are equally elite.''' ,'''The heart and soul of a Navy SEAL is somebody who's committed to their country and committed to their teammates.''' ,'''The guy who finally pulled the trigger on Osama bin Laden is not patting himself on the back. He's giving as much credit to his teammates who got him to that position.''' ,'''I can take just about anyone and make them physically strong.''' ,'''People think SEALs are cold-blooded, heartless, wound-up, brainwashed killers. They imagine you can just point a SEAL in a direction and say, 'Go kill.' The truth is you're talking about a bunch of kind-hearted, jovial guys. The only thing that separates them is mental toughness.''' ,]
++++

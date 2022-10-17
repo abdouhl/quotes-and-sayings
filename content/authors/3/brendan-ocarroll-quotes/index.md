@@ -1,0 +1,8 @@
++++
+author = "Brendan O'Carroll"
+title = "Brendan O'Carroll Quotes"
+quotes_len = "9"
+description = "the best 9 Brendan O'Carroll Quotes"
+keywords = "brendan o'carroll,brendan o'carroll quotes,brendan o'carroll quote,brendan o'carroll sayings,brendan o'carroll saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''I miss the comedy of the '70s and '80s, like 'Only Fools And Horses' and 'Fawlty Towers,' so I'm glad I'm put in that category.''' ,'''For many people, Mrs. Brown has come from the middle of nowhere. But Mrs. Brown was first written for radio. I wrote it for a radio series in 1992. It was a five-minute piece for radio, and it's been absolutely astonishing.''' ,'''Anyone who thinks they can write the perfect comedy that everyone will love is a fool. I can only write what I think is funny and hope that there is a likeminded audience out there.''' ,'''If you are writing comedy and try to please everybody, you'll please nobody.''' ,'''I can only write what makes me laugh, and what makes me laugh is the comedy I grew up on.''' ,'''People have really taken Mrs. Brown to their hearts. I think she reminds them of their own mammies... Fierce and scary but full of love.''' ,'''You write what makes you laugh, and you hope that the audience agree, and so far they do.''' ,'''I think with 'Modern Family,' you'll struggle to find anything better. It's brilliantly, brilliantly written.''' ,'''I don't know the secret of Mrs. Brown, but what I do know is that there are things that Mrs. Brown says and does that Brendan O'Carroll couldn't get away with. I think maybe it's a leniency that they're with an old woman. It's the old woman thing. I think secretly we all just want to be Joan Rivers.''' ,]
++++

@@ -1,0 +1,8 @@
++++
+author = "Charlotte Ross"
+title = "Charlotte Ross Quotes"
+quotes_len = "8"
+description = "the best 8 Charlotte Ross Quotes"
+keywords = "charlotte ross,charlotte ross quotes,charlotte ross quote,charlotte ross sayings,charlotte ross saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''I would assume most people hate my character. But I'm hoping that I'm the character you love to hate.''' ,'''What woman wants a camera following around her naked butt?''' ,'''I've been doing TV for fourteen years, and I've always had a fascination with the political business side. It's ruled my life. Ratings or no ratings have decided where I live, who I work with, and how long I'll be doing that particular job.''' ,'''This show has shown me how to throw a punch. But watching my future sister-in-law go through breast cancer has also shown me how to take one.''' ,'''The thought of playing a New York detective scared the hell out of me. I didn't know if people would believe me in the role just because of my physicality, which made me want to do it even more.''' ,'''This is my sixth series, and I'm burned out wondering if a show is going to change my life. Don't get me wrong, I love when people recognize my work. But I've given up worrying about whether it'll be seen by two people or two million or 22 million.''' ,'''I've never played a character where I've had so much fun on the physical end. I don't want to say I like it too much but it's fun having a gun on you and getting to manhandle men.''' ,'''Mammograms are really sort of a gift. You can either catch something early or count your lucky stars because nothing was discovered. Either way, you're ahead of the game.''' ,]
++++

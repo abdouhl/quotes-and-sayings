@@ -1,0 +1,8 @@
++++
+author = "Heather Langenkamp"
+title = "Heather Langenkamp Quotes"
+quotes_len = "12"
+description = "the best 12 Heather Langenkamp Quotes"
+keywords = "heather langenkamp,heather langenkamp quotes,heather langenkamp quote,heather langenkamp sayings,heather langenkamp saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''I'm such a Goody Two-shoes, but I get a vicarious thrill at someone sticking it to the Man.''' ,'''I do wish I'd had a better career. Who wouldn't?''' ,'''One of the annoying things when you're in a movie is that gets talked about is everyone projects meaning onto everyone's intentions.''' ,'''My husband and Charlie Sheen played Little League together. They've always been best friends.''' ,'''You can never empathize with your parents as a teenager. You just think they're just on another planet.''' ,'''I totally love being on camera.''' ,'''I'm always concerned that I'm insulting the elder statesmen on the set by my crass behavior.''' ,'''I love those shows where they go to all the greasy diners in America.''' ,'''Point a light at me, and I'll start tap dancing.''' ,'''The organization that it takes to make a movie like 'Star Trek' is amazing, intimidating and fascinating.''' ,'''I was fortunate enough to have my kids early, so being a mom always ended up being a better gig than these other parts that came along. So I always justified not really working a lot because I had a family.''' ,'''When I decided to become an actress, I think I let some people down. It was a kind of rebellion.''' ,]
++++

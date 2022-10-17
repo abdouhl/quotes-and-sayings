@@ -1,0 +1,8 @@
++++
+author = "Alexander Alekhine"
+title = "Alexander Alekhine Quotes"
+quotes_len = "10"
+description = "the best 10 Alexander Alekhine Quotes"
+keywords = "alexander alekhine,alexander alekhine quotes,alexander alekhine quote,alexander alekhine sayings,alexander alekhine saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''I think that for the highest achievements nowadays... need to have the stable as a rock scientific base. And also need to own modesty.''' ,'''Oh! this opponent, this collaborator against your will, whose notion of beauty always differs from yours and whose means are often too limited for active assistance to your intentions!''' ,'''The fact that a player is very short of time is, to my mind, as little to be considered an excuse as, for instance, the statement of the law-breaker that he was drunk at the time he committed the crime.''' ,'''I have had to work long and hard to eradicate the dangerous delusion that, in a bad position, I could always, or nearly always, conjure up some unexpected combination to extricate me from my difficulties.''' ,'''Chess is not only knowledge and logic.''' ,'''In my opinion, a master is morally obliged to seize every sort of opportunity and to try to solve the problems of the position without fear of some simplifications.''' ,'''Chess for me is not a game, but an art. Yes, and I take upon myself all those responsibilities which an art imposes on its adherents.''' ,'''Chess first of all teaches you to be objective.''' ,'''I believe that true beauty of chess is more than enough to satisfy all possible demands.''' ,'''The purpose of human life and the sense of happiness is to give the maximum what the man is able to give.''' ,]
++++

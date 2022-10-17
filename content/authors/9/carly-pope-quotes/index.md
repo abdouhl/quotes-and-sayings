@@ -1,0 +1,8 @@
++++
+author = "Carly Pope"
+title = "Carly Pope Quotes"
+quotes_len = "5"
+description = "the best 5 Carly Pope Quotes"
+keywords = "carly pope,carly pope quotes,carly pope quote,carly pope sayings,carly pope saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''People are totally overusing LOL and a wink - and I'm very guilty of using the wink - that's probably my favourite emoticon to use because 'I'm being sarcastic, don't misinterpret; don't misconstrue; I'm just kidding.' Again, for as many benefits as it has, also picking up the phone and having a conversation speaks volumes.''' ,'''I think when you're starting up a situation, it's really fun texting or BBMing or whatever.''' ,'''I've kept my phone on silent for a year and a half. For me, it's too much noise. It's not my jam. I like to keep things a lot more easygoing. The world's not going to stop if you don't pick up your phone.''' ,'''I kind of see myself as a cartoon that's on its way to becoming a real person that has to find that special amulet or mushroom to get to that next realm or level. I don't feel like anything is that tangible. It freaks me out, why I feel unhappy or conflicted and why that can change on a dime.''' ,'''I do think we've become so reliant that the phones are never out of our reach. We're always trying to stay connected that way and the irony is that it's actually disconnecting us from everything else because we're not just focused on what's in front of us; we focus on what's in our hand or off to the side.''' ,]
++++

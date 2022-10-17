@@ -1,0 +1,8 @@
++++
+author = "Benny Goodman"
+title = "Benny Goodman Quotes"
+quotes_len = "10"
+description = "the best 10 Benny Goodman Quotes"
+keywords = "benny goodman,benny goodman quotes,benny goodman quote,benny goodman sayings,benny goodman saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''Some of the overflow audience actually sat on the stage.''' ,'''That night at Carnegie Hall was a great experience. When the thing was first put up to me I was a little dubious, not knowing just what would be expected of us.''' ,'''To this day, I don't like people walking on stage not looking good. You have to look good. If you feel special about yourself then you're going to play special.''' ,'''As soon as it was understood that we could handle things in our own way, it was the thrill of my life to walk out on that stage with people just hemming the band in.''' ,'''Too many young musicians today want to win polls before they learn their instruments.''' ,'''I remember Glenn Miller coming to me once, before he had his own band, saying, How do you do it? How do you get started? It's so difficult. I told him, I don't know but whatever you do don't stop. Just keep on going.''' ,'''If a guy's got it, let him give it. I'm selling music, not prejudice.''' ,'''One way or the other, if you want to find reasons why you shouldn't keep on, you'll find 'em. The obstacles are all there; there are a million of 'em.''' ,'''After you've done all the work and prepared as much as you can, what the hell, you might as well go out and have a good time.''' ,'''Sometimes when you start losing detail, whether it's in music or in life, something as small as failing to be polite, you start to lose substance.''' ,]
++++

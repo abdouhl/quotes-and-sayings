@@ -1,0 +1,8 @@
++++
+author = "Adam Derek Scott"
+title = "Adam Derek Scott Quotes"
+quotes_len = "9"
+description = "the best 9 Adam Derek Scott Quotes"
+keywords = "adam derek scott,adam derek scott quotes,adam derek scott quote,adam derek scott sayings,adam derek scott saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''I keep a very low profile in Switzerland. There are only about 2,000 people in the village I live in, so it's a quiet town.''' ,'''The good part is if I play a solid round of golf, it will be very hard for the others to beat me. And that's all I'm thinking about.''' ,'''It is amazing that it is my destiny to be the first Aussie to win the Masters.''' ,'''If all else fails, birdie the last.''' ,'''There's one guy who inspired a nation of golfers, and that's Greg Norman. He's been incredible to me and all the great golfers.''' ,'''To make a couple putts to win the Masters is just an amazing feeling.''' ,'''To win a major championship - I think, at the end of the day, that's what a golfer's career is based upon.''' ,'''You know, I go to work in a great office every day, and the amount of freedom that goes with being a pro golfer on the tour is awesome. So I get to enjoy my weeks off away from the course, and then I get to go to work on some of the best golf courses in the world out here.''' ,'''When I was in high school, there's no doubt I was trying to swing like Tiger Woods when he first came on tour.''' ,]
++++

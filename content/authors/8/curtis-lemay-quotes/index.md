@@ -1,0 +1,8 @@
++++
+author = "Curtis Lemay"
+title = "Curtis Lemay Quotes"
+quotes_len = "9"
+description = "the best 9 Curtis Lemay Quotes"
+keywords = "curtis lemay,curtis lemay quotes,curtis lemay quote,curtis lemay sayings,curtis lemay saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''We should bomb Vietnam back into the stone age.''' ,'''That was the era when we might have destroyed Russia completely and not even skinned our elbows doing it.''' ,'''I think there are many times when it would be most efficient to use nuclear weapons. However, the public opinion in this country and throughout the world throw up their hands in horror when you mention nuclear weapons, just because of the propaganda that's been fed to them.''' ,'''My solution to the problem would be to tell the North Vietnamese Communists frankly that they've got to drawn in their horns and stop their aggression or we're going to bomb them into the stone age.''' ,'''Killing Japanese didn't bother me very much at that time... I suppose if I had lost the war, I would have been tried as a war criminal.''' ,'''If you kill enough of them, they stop fighting.''' ,'''Sometime in the future - 25, 50, 75 years hence - what will the situation be like then? By that time the Chinese will have the capability of delivery too.''' ,'''That's the reason some schools of thinking don't rule out a destruction of the Chinese military potential before the situation grows worse than it is today. It's bad enough now.''' ,'''Every soldier thinks something of the moral aspects of what he is doing. But all war is immoral and if you let that bother you, you're not a good soldier.''' ,]
++++

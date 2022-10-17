@@ -1,0 +1,8 @@
++++
+author = "Illinois Jacquet"
+title = "Illinois Jacquet Quotes"
+quotes_len = "6"
+description = "the best 6 Illinois Jacquet Quotes"
+keywords = "illinois jacquet,illinois jacquet quotes,illinois jacquet quote,illinois jacquet sayings,illinois jacquet saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''When I was 16 or 17 I heard the Count Basie band with Jo Jones and Lester Young and Herschel Evans and I couldn't believe it. They were the greatest swing band. I really fell in love with that sound. Everybody danced!''' ,'''When I got my band in 1983, I knew what I had to do. If I'm going to have a big band, they're going to have to sound equally as good as what I'm used to hearing.''' ,'''Hamp would ask me about tempos in the band: 'Jacquet,' he'd say, 'knock off that tempo.' A lot of jazz musicians didn't prefer to play for dancers, which was their loss, really. But good jazz has always had that dance feel.''' ,'''Their eagerness for the big-band music and their ability to grasp the essence of it made me realize that today's generation has not been properly exposed to the big-band sound.''' ,'''People like to hear songs that they can dance to. Even if they're sitting, they like being made to want to dance and move. By me being a dancer, I know how I'd dance at certain tempos. I was always good at it.''' ,'''The patterns of big-band music are smooth and classical. It's got to be fresh. The brass section should crackle, like the sound of eggs being dropped into hot grease.''' ,]
++++

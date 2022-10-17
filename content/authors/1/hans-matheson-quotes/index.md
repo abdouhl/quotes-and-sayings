@@ -1,0 +1,8 @@
++++
+author = "Hans Matheson"
+title = "Hans Matheson Quotes"
+quotes_len = "5"
+description = "the best 5 Hans Matheson Quotes"
+keywords = "hans matheson,hans matheson quotes,hans matheson quote,hans matheson sayings,hans matheson saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''When I auditioned for drama college, they asked me to do my Shakespeare. I couldn't do it. They asked me to do my modern, and I couldn't do it. They asked me if I had a song prepared, and I said 'No,' so I sang 'Happy Birthday.' And I did a reasonable improvisation, a reasonable one, nothing special at all. I don't know how I got in, but I did.''' ,'''Put me in a costume, and I'm your man. I must have one of those faces which seems to suit period drama more than modern films and TV programmes. But I'm not complaining, I love going back in time. I feel quite lucky because nobody knows who I am. I can walk about and have ordinary conversations with people.''' ,'''That's quite a difficult thing in life, to be who you are. And when you are doing interviews, you kind of feel this need to say something interesting.''' ,'''Playing characters who are wonderful and beautiful is hard because you don't feel like that most of the time... well, I don't. It's like this whole heart-throb nonsense. It's flattering, but that's not how I feel in the morning. It's something that goes with the job.''' ,'''I think the problem I have with films is that, because there's so much hype around them, they become bigger than they should be, really. There are things that people do every day in their little workshops that they'll take to heaven with them. You've got to realise that it's not everything, making films.''' ,]
++++

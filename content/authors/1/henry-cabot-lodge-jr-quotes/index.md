@@ -1,0 +1,8 @@
++++
+author = "Henry Cabot Lodge, Jr."
+title = "Henry Cabot Lodge, Jr. Quotes"
+quotes_len = "7"
+description = "the best 7 Henry Cabot Lodge, Jr. Quotes"
+keywords = "henry cabot lodge, jr.,henry cabot lodge, jr. quotes,henry cabot lodge, jr. quote,henry cabot lodge, jr. sayings,henry cabot lodge, jr. saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''As you begin your tour of the United States, you may as well know that one American national trait which irritates many Americans and must be convenient for our critics is that we relentlessly advertise our imperfections.''' ,'''May the United Nations ever be vigilant and potent to defeat the swallowing up of any nation, at any time, by any means-by armies with banners, by force or by fraud, by tricks or by midnight treachery.''' ,'''The primary, the fundamental, the essential purpose of the United Nations is to keep peace. Everything it does which helps prevent World War III is good. Everything which does not further that goal, either directly or indirectly, is at best superfluous.''' ,'''The fact that the talk may be boring or turgid or uninspiring should not cause us to forget the fact that it is preferable to war.''' ,'''Membership of the United Nations gives every member the right to make a fool of himself, and that is a right of which the Soviet Union in this case has taken full advantage.''' ,'''It has been well said that a hungry man is more interested in four sandwiches than four freedoms.''' ,'''This organization is created to prevent you from going to hell. It isn't created to take you to heaven.''' ,]
++++

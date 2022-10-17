@@ -1,0 +1,8 @@
++++
+author = "Howard Thurman"
+title = "Howard Thurman Quotes"
+quotes_len = "8"
+description = "the best 8 Howard Thurman Quotes"
+keywords = "howard thurman,howard thurman quotes,howard thurman quote,howard thurman sayings,howard thurman saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''Commitment means that it is possible for a man to yield the nerve center of his consent to a purpose or cause, a movement or an ideal, which may be more important to him than whether he lives or dies.''' ,'''During times of war, hatred becomes quite respectable even though it has to masquerade often under the guise of patriotism.''' ,'''He who fears is literally delivered to destruction.''' ,'''A dream is the bearer of a new possibility, the enlarged horizon, the great hope.''' ,'''Community cannot for long feed on itself; it can only flourish with the coming of others from beyond, their unknown and undiscovered brothers.''' ,'''There is something in every one of you that waits and listens for the sound of the genuine in yourself. It is the only true guide you will ever have. And if you cannot hear it, you will all of your life spend your days on the ends of strings that somebody else pulls.''' ,'''At the core of life is a hard purposefulness, a determination to live.''' ,'''Twilight - a time of pause when nature changes her guard. All living things would fade and die from too much light or too much dark, if twilight were not.''' ,]
++++

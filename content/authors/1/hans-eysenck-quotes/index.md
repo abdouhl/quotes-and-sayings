@@ -1,0 +1,8 @@
++++
+author = "Hans Eysenck"
+title = "Hans Eysenck Quotes"
+quotes_len = "7"
+description = "the best 7 Hans Eysenck Quotes"
+keywords = "hans eysenck,hans eysenck quotes,hans eysenck quote,hans eysenck sayings,hans eysenck saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''Tact and diplomacy are fine in international relations, in politics, perhaps even in business; in science only one thing matters, and that is the facts.''' ,'''There thus appears to be an inverse correlation between recovery and psychotherapy; the more psychotherapy, the smaller the recovery rate.''' ,'''If the truth contradicts deeply held beliefs, that is too bad.''' ,'''I always felt that a scientist owes the world only one thing, and that is the truth as he sees it.''' ,'''They show that roughly two-thirds of a group of neurotic patients will recover or improve to a marked extent within about two years of the onset of their illness, whether they are treated by means of psychotherapy or not.''' ,'''In general, certain conclusions are possible from these data. They fail to prove that psychotherapy, Freudian or otherwise, facilitates the recovery of neurotic patients.''' ,'''In our tabulation of psychoanalytic results, we have classed those who stopped treatment together with those not improved. This appears to be reasonable; a patient who fails to finish his treatment, and is not improved, is surely a therapeutic failure.''' ,]
++++

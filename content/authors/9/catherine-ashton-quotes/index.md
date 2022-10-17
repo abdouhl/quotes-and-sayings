@@ -1,0 +1,8 @@
++++
+author = "Catherine Ashton"
+title = "Catherine Ashton Quotes"
+quotes_len = "9"
+description = "the best 9 Catherine Ashton Quotes"
+keywords = "catherine ashton,catherine ashton quotes,catherine ashton quote,catherine ashton sayings,catherine ashton saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''In the EU you have half a billion people who share a common belief in democracy, in rights, in the kind of economic life we want.''' ,'''I'm not interested in the limelight.''' ,'''I am proud of the fact that women have been recognised as being as capable, as able to do the senior jobs in Europe as any man.''' ,'''Foreign policy is about trying to deliver for them the best possible economic benefits, the chance to travel, to study, to work, the opportunity through trade to be able to sell their goods and services and as much peace and security so they can live and bring their kids up so they don't have to fear war.''' ,'''In foreign policy, there are times when speaking with one voice - and it doesn't have to be mine - allows us to engage better on issues, and enables us to do things more effectively.''' ,'''Am I an ego on legs? No I am not. Do I want to be seen out there all the time saying everything? No, I don't.''' ,'''I was the first woman British commissioner, the first woman trade commissioner, so I am also proud to be the first woman High Representative.''' ,'''I look for the consensus because the consensus drives the policy into new places.''' ,'''Judge me on what I do and I think you will be pleased and proud of me.''' ,]
++++

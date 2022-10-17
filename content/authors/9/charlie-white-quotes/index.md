@@ -1,0 +1,8 @@
++++
+author = "Charlie White"
+title = "Charlie White Quotes"
+quotes_len = "9"
+description = "the best 9 Charlie White Quotes"
+keywords = "charlie white,charlie white quotes,charlie white quote,charlie white sayings,charlie white saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''I've always had to train harder than others to get the oxygen to my muscles because of my lung capacity. I have to push myself past the point of being comfortable.''' ,'''Being an athlete in a cold-weather sport is really difficult to deal with the asthma.''' ,'''I have never been particularly picky when it comes to what I'm putting in my hair. Most of it is just the genes I'm so fortunate to have inherited from my parents.''' ,'''From my own personal standpoint, I've always preferred my hair shorter because it's just easier.''' ,'''As an ice dancer, we take our on-ice relationships so seriously, and that's really the way we like to go about it.''' ,'''The most important thing is being passionate about what you're doing and always give it your all. That is the key to success.''' ,'''When you win the Olympics, you hope that the medal that you get, that weight makes it feel like you really earned something.''' ,'''It was always so nice to step away from figure skating and school with hockey. To this day I'm still a huge fan.''' ,'''I've never had anyone just stick their hands through my hair. Yet. If they ask, I go, 'OK, you can, if you want to. It's probably just going to feel like most people's.' I take it as a compliment.''' ,]
++++
