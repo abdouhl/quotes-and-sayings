@@ -1,0 +1,8 @@
++++
+author = "Sammy Cahn"
+title = "Sammy Cahn Quotes"
+quotes_len = "8"
+description = "the best 8 Sammy Cahn Quotes"
+keywords = "sammy cahn,sammy cahn quotes,sammy cahn quote,sammy cahn sayings,sammy cahn saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''I must say that it's easy to write nice things about Chicago because it's that kind of town.''' ,'''I'm a professional songwriter - personal attitudes have nothing to do with writing a song.''' ,'''My chutzpah was me singing to Mario Lanza. So Mario looked at me after I talk-sang 'Be My Love' for the first time; he took the lyric out of my hand as contemptuously as you can take a lyric out of someone's hand, and he sang 'Be My Love' back at me.''' ,'''Take a simple name like Nicholas: you can rhyme it with ridiculous. If you aren't too meticulous. You know, every word's rhymable.''' ,'''Every song, the title dictates the architecture of the song.''' ,'''I had no particular image of Chicago in mind when I wrote 'My Kind of Town.' All I wanted to do was write a song in praise of Chicago, and that's what I did.''' ,'''The one I tell everyone, the one I'm very, very proud of is 'Call Me Irresponsible.' Simply because I want to say and it's not as facetious as it sounds. It has five syllable words in it.''' ,'''Do you think I'm wandering around all day thinking, 'I must write a song called 'Three Coins In The Fountain'?' Only an idiot would do that.''' ,]
++++

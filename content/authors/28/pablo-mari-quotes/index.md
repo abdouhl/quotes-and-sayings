@@ -1,0 +1,8 @@
++++
+author = "Pablo Mari"
+title = "Pablo Mari Quotes"
+quotes_len = "10"
+description = "the best 10 Pablo Mari Quotes"
+keywords = "pablo mari,pablo mari quotes,pablo mari quote,pablo mari sayings,pablo mari saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''Look, a player has to have one thing very clear: how much you're prepared to lose to be a professional. You have to ask yourself that question and be honest.''' ,'''I go to the beach with some family. I like to go there because I'm alone and I can think.''' ,'''I like to fish. I always go when I'm on holidays in Spain.''' ,'''I love England and so does my wife. The centre of London is unbelievable. We are really happy here.''' ,'''England's good for me: there's a thousand things to improve, but I fit. I'm happy and I'd really like Arsenal to use the purchase option.''' ,'''My footballing curve; I never thought this could happen. But over the years of work, injuries, without opportunities, I've learned that deep inside an attitude builds which says: 'The moment someone gives me the chance, there's no way I'm letting go.'''' ,'''I signed for City in 2013 but I've never met Pep Guardiola or any of the first-team players.''' ,'''I liked the idea of playing for a huge club.''' ,'''If I have to, I'll keep going until my career ends, but I think I've found a club to put down roots. A traditional club that supports its people, people who believe in it and give everything. I'd like to be part of that, a great footballer for many years for Arsenal.''' ,'''I have a lot of things to learn but I think my football can be really good with the Arsenal.''' ,]
++++

@@ -1,0 +1,8 @@
++++
+author = "Garry Wills"
+title = "Garry Wills Quotes"
+quotes_len = "10"
+description = "the best 10 Garry Wills Quotes"
+keywords = "garry wills,garry wills quotes,garry wills quote,garry wills sayings,garry wills saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''I have nothing against priests. In fact, I tried for a time to be one... It should be clear, then, that I respect, and am often fond of, the many priests in my life.''' ,'''There's an interesting contrast between born Catholics and converts. Converts are often much more rule-directed. Catholicism isn't something that they breathed in from their childhood, so they think that if you don't toe the line on abstract doctrine you can't be part of the Church.''' ,'''I don't really write for an audience. I just write what the subject seems to me to require.''' ,'''The leader is one who mobilizes others toward a goal shared by leaders and followers... Leaders, followers and goals make up the three equally necessary supports for leadership.''' ,'''I have been an outsider in journalism and in the academy, because I never fully belonged to any of them.''' ,'''I'm hardly macho. I present myself as very unnoticeable.''' ,'''I would rather listen to plays in the car than read them.''' ,'''I don't get far enough into a boring book to hate it.''' ,'''Leadership - mobilization toward a common goal.''' ,'''Only the winners decide what were war crimes.''' ,]
++++

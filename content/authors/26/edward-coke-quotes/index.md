@@ -1,0 +1,8 @@
++++
+author = "Edward Coke"
+title = "Edward Coke Quotes"
+quotes_len = "16"
+description = "the best 16 Edward Coke Quotes"
+keywords = "edward coke,edward coke quotes,edward coke quote,edward coke sayings,edward coke saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''Certainty is the mother of quiet and repose, and uncertainty the cause of variance and contentions.''' ,'''Success in crime always invites to worse deeds.''' ,'''Things are worth what they will fetch at a sale.''' ,'''The home to everyone is to him his castle and fortress, as well for his defence against injury and violence, as for his repose.''' ,'''How long soever it hath continued, if it be against reason, it is of no force in law.''' ,'''Those who consent to the act and those who do it shall be equally punished.''' ,'''We have a maxim in the House of Commons, and written on the walls of our houses, that old ways are the safest and surest ways.''' ,'''The cause ceasing, the effect ceases also.''' ,'''Magna Charta is such a fellow, that he will have no sovereign.''' ,'''Reason is the life of the law; nay, the common law itself is nothing else but reason - the law which is perfection of reason.''' ,'''One threatens the innocent who spares the guilty.''' ,'''Corporations cannot commit treason, nor be outlawed, nor excommunicated, for they have no souls.''' ,'''You should trust any man in his own art provided he is skilled in it.''' ,'''Though the bribe be small, yet the fault is great.''' ,'''So use your own property as not to injure that of another.''' ,'''Where there are many counsellors there is safety.''' ,]
++++

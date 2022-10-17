@@ -1,0 +1,8 @@
++++
+author = "Sue Johanson"
+title = "Sue Johanson Quotes"
+quotes_len = "11"
+description = "the best 11 Sue Johanson Quotes"
+keywords = "sue johanson,sue johanson quotes,sue johanson quote,sue johanson sayings,sue johanson saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''Sex is... perfectly natural. It's something that's pleasurable. It's enjoyable and it enhances a relationship. So why don't we learn as much as we can about it and become comfortable with ourselves as sexual human beings because we are all sexual?''' ,'''Americans are a decade behind Canada when it comes to sex education and understanding their bodies.''' ,'''Kids are all computer-savvy. Sit down and write to your parents on the computer. And just say, I have some questions and I'm scared. There's some stuff I don't know and I really need to talk to you about sex. Tear it off and put it on their pillow. They'll read it.''' ,'''It's sad that the most glorious of sexual experiences can make us feel guilty, ashamed, embarrassed, and abnormal.''' ,'''If you don't know about it, you can't get it.''' ,'''As long as I'm having fun, I'm not quitting.''' ,'''They are uncomfortable talking about sex because they don't want people to think they know about it.''' ,'''Get to like your own body.''' ,'''We teach teens what we think they ought to know, and we never tell them what they want to know.''' ,'''Kids and adults have sex for many, many reasons... Put out a question box.''' ,'''If you can't laugh about sex, you shouldn't be doing it.''' ,]
++++

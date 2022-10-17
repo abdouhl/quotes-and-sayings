@@ -1,0 +1,8 @@
++++
+author = "Gaylord Nelson"
+title = "Gaylord Nelson Quotes"
+quotes_len = "9"
+description = "the best 9 Gaylord Nelson Quotes"
+keywords = "gaylord nelson,gaylord nelson quotes,gaylord nelson quote,gaylord nelson sayings,gaylord nelson saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''Franklin Roosevelt was very concerned about environmental issues.''' ,'''Loads of chemicals and hazardous wastes have been introduced into the atmosphere that didn't even exist in 1948. The environmental condition of the planet is far worse than it was 42 years ago.''' ,'''In the state of Wisconsin it's mandated that teachers in the social sciences and hard sciences have to start giving environmental education by the first grade, through high school.''' ,'''Teddy Roosevelt of course was a great outdoorsman all his life.''' ,'''We must recognize that we're all part of a web of life around the world. Anytime you extinguish a species, the consequences are serious.''' ,'''I think the internal combustion engine will disappear from the streets of our cities in the next thirty years because transportation will be mass transportation, or probably electrical power.''' ,'''The issues are by some geometric number - 100 or 200 or 500 - times more complicated today than we appreciated them to be when Franklin Roosevelt was around.''' ,'''The most important environmental issue is one that is rarely mentioned, and that is the lack of a conservation ethic in our culture.''' ,'''If we continue to address the issue of the environment where we live as though we're the only species that lives here, we'll create a disaster for ourselves.''' ,]
++++

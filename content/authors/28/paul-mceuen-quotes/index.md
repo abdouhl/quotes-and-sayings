@@ -1,0 +1,8 @@
++++
+author = "Paul Mceuen"
+title = "Paul Mceuen Quotes"
+quotes_len = "6"
+description = "the best 6 Paul Mceuen Quotes"
+keywords = "paul mceuen,paul mceuen quotes,paul mceuen quote,paul mceuen sayings,paul mceuen saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''Nanotechnology is the idea that we can create devices and machines all the way down to the nanometer scale, which is a billionth of a meter, about half the width of a human DNA molecule.''' ,'''It's amazing that something only an atom thick can be an impenetrable barrier. You can have gas on one side and vacuum or liquid on the other, and with a wall only one atom thick, nothing would go through it.''' ,'''As an undergrad, I studied engineering physics at the University of Oklahoma, and all my degrees are from engineering departments. My father wanted me to join him in the oil-field business in Oklahoma, but I wanted to be a scientist.''' ,'''The lessons learned as we try to build ever more sophisticated nanomachines will almost certainly inform our understanding of the origins of life.''' ,'''I remember being fascinated by ants and wasps and other bugs when I was a kid. I'd set out a Coke can and stand back 20 feet and use my telescope to watch wasps land on it.''' ,'''Carbon nanotubes are amazing because they're really good electrical conductors, yet they are only a few atoms in diameter. You can make transistors out of them in the same way you can with silicon. At Berkeley, we made the narrowest device anybody had ever made. It was basically a single molecule.''' ,]
++++

@@ -1,0 +1,8 @@
++++
+author = "Paul Horgan"
+title = "Paul Horgan Quotes"
+quotes_len = "10"
+description = "the best 10 Paul Horgan Quotes"
+keywords = "paul horgan,paul horgan quotes,paul horgan quote,paul horgan sayings,paul horgan saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''Everybody around me was talented and gave everybody talent. Everybody painted. My mother had a beautiful voice. My father was a marvelous drawing-room actor.''' ,'''He who fears to be out of the mode does not deserve to belong to himself.''' ,'''Everybody is a regionalist. Tolstoy is a regionalist - one is where one lives, where one writes.''' ,'''The true artist is never afraid of anything - including the glories of the past.''' ,'''King Charles, who was also the Holy Roman Emperor, lived and worked in hard bare rooms with no carpets, crowding to the fire in winter, using the window's sunshine in summer.''' ,'''In many joyfully-admired recent novels, love appears as little more than sex-manual instruction.''' ,'''There is hardly a person alive who does not want to know 'what happened next,' in any context.''' ,'''The most valuable writers are those in whom we find not themselves, or ourselves, or the fugitive era of their lifetimes, but the common vision of all times.''' ,'''It is always edifying for mortals to look at a god.''' ,'''I couldn't put into a capsule one thing that represents me, I don't think.''' ,]
++++

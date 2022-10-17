@@ -1,0 +1,8 @@
++++
+author = "David Anders"
+title = "David Anders Quotes"
+quotes_len = "9"
+description = "the best 9 David Anders Quotes"
+keywords = "david anders,david anders quotes,david anders quote,david anders sayings,david anders saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''I've come to terms with the fact that I'm not convincing as an American.''' ,'''I love TV, don't get me wrong. But with film, you're just banging out this one product and you're not waiting on another script. You have your script. It's great, in that way.''' ,'''When you're with Chris Wylde, there's never not laughter.''' ,'''I love TV, don't get me wrong. But with film, you're just banging out this one product, and you're not waiting on another script. You have your script. It's great in that way. It's as close to theater as you can get.''' ,'''Japanese is a very difficult language.''' ,'''I did a 'Children of the Corn' remake for Sci Fi Channel. I play the Peter Horton role from the original, and Candace McClure from 'Battlestar Galactica' is my Linda Hamilton.''' ,'''I owe my career to J.J. Abrams. He fought for me.''' ,'''TV has been very good to me, and I hope I've been good to it, but I also love film.''' ,'''I do these conventions sometimes. We've been doing a lot of 'The Vampire Diaries' conventions, but I do Comic-Con and stuff all over the world. They can be taxing, and they can take it out of you a little bit, but it's just great for the fans.''' ,]
++++

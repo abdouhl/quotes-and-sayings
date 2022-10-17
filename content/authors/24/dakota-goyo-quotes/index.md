@@ -1,0 +1,8 @@
++++
+author = "Dakota Goyo"
+title = "Dakota Goyo Quotes"
+quotes_len = "12"
+description = "the best 12 Dakota Goyo Quotes"
+keywords = "dakota goyo,dakota goyo quotes,dakota goyo quote,dakota goyo sayings,dakota goyo saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''The hardest part of acting is not when I'm acting, It's when I'm not.''' ,'''I never went to school for acting; it just comes to me. I never practice. I read the script, I'll memorize it. I don't even practice the acting. I'll just do it the day, and it will just come to me.''' ,'''I love watching scary movies because you always wonder what happens next, and that's what's going to happen on 'The Haunting Hour:' you're always going to want to know what happens next.''' ,'''When I'm Los Angeles, it's work. That's what I'm there for is work.''' ,'''I'm happy I have fans; obviously, they're such great people. When I'm on Twitter and Facebook, they say such nice things that I really appreciate.''' ,'''I love doing voiceover work.''' ,'''I go to a regular school still, and I have the normal life of a regular kid.''' ,'''Actually, my mom doesn't let me touch any of my money out of my bank. She says she is going to keep it there until I am 18, and I don't think anyone can touch that. No money has been taken out of there.''' ,'''I think I am staying in Toronto. It keeps me grounded and I can be with my family and friends.''' ,'''I want to keep acting. I'll be acting probably until I get a lot older.''' ,'''I would like to be in a superhero movie where I do martial arts.''' ,'''I always watch superhero movies, and I like the action and the fighting and all the different kinds of powers.''' ,]
++++

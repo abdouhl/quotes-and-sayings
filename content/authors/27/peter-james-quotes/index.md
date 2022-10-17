@@ -1,0 +1,8 @@
++++
+author = "Peter James"
+title = "Peter James Quotes"
+quotes_len = "9"
+description = "the best 9 Peter James Quotes"
+keywords = "peter james,peter james quotes,peter james quote,peter james sayings,peter james saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''There's a really classic cliche every time you switch the TV on - you see cops arguing. I have spent a day a week for many years in the presence of police and I have never seen them argue. It's a military hierarchy. They do what they're told. There's no bickering.''' ,'''Music is an important part of my writing process.''' ,'''There are people who can achieve huge success in life, while adding a bit of fun and a splash of colour to this increasingly grey world.''' ,'''I get asked to read new works a lot, in the hope that I will give a quotation and I will only give a 'puff' for a book I truly love.''' ,'''Almost every officer is going to put their life on the line at some point in their career.''' ,'''My day starts with Radio 4's Today live or 'listen again' wherever I am in the world, thanks to digital radio - I even have an app on my iPhone that receives it.''' ,'''The police feel that most of the public are against them and that there is a lot of bad feeling.''' ,'''I think the police are a major part of the glue that holds civilised life together. They're not highly paid.''' ,'''I travel abroad constantly on book promotion and research, and the Internet is invaluable to me for accessing U.K. news in places such as America, which most of the time hasn't heard of England.''' ,]
++++

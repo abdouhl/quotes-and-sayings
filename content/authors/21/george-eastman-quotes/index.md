@@ -1,0 +1,8 @@
++++
+author = "George Eastman"
+title = "George Eastman Quotes"
+quotes_len = "9"
+description = "the best 9 George Eastman Quotes"
+keywords = "george eastman,george eastman quotes,george eastman quote,george eastman sayings,george eastman saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''The world is moving, and a company that contents itself with present accomplishments soon falls behind.''' ,'''If a man has wealth, he has to make a choice, because there is the money heaping up. He can keep it together in a bunch, and then leave it for others to administer after he is dead. Or he can get it into action and have fun, while he is still alive. I prefer getting it into action and adapting it to human needs, and making the plan work.''' ,'''It is a medical fact that children can have a better chance in life with better looks, better health and more vigor if the teeth, nose, throat and mouth are taken proper care of at the crucial time of childhood.''' ,'''I don't believe in men waiting until they are ready to die before using any of their money for helpful purposes.''' ,'''You push the button, we do the rest.''' ,'''What we do during our working hours determines what we have; what we do in our leisure hours determines what we are.''' ,'''I used to think that music was like lace upon a garment, nice to have but not necessary. I have come to believe that music is absolutely essential to our community life.''' ,'''The progress of the world depends almost entirely upon education.''' ,'''Light makes photography. Embrace light. Admire it. Love it. But above all, know light. Know it for all you are worth, and you will know the key to photography.''' ,]
++++

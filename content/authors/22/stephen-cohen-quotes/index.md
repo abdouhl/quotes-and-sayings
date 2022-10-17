@@ -1,0 +1,8 @@
++++
+author = "Stephen Cohen"
+title = "Stephen Cohen Quotes"
+quotes_len = "7"
+description = "the best 7 Stephen Cohen Quotes"
+keywords = "stephen cohen,stephen cohen quotes,stephen cohen quote,stephen cohen sayings,stephen cohen saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''Thirteen years after the end of the Soviet Union, the American press establishment seemed eager to turn Ukraine's protested presidential election on November 21 into a new cold war with Russia.''' ,'''The cost of acquiring new customers and maintaining those relationships in an online environment versus bricks and mortar is significant.''' ,'''The opportunities that Gorbachev created for international relations have also been missed, perhaps even lost - here, however, primarily because of the United States.''' ,'''On March 11, 1985, Mikhail Gorbachev became leader of the Soviet Union, and within a few weeks the full-scale reformation he attempted to carry out both inside his country and in its cold war relations with the West, particularly the United States, began to unfold.''' ,'''There remains, however, the hope, at least in Russia, that, as sometimes happens in history, the memory of lost alternatives will one day inspire efforts to regain them.''' ,'''The essential meaning of perestroika for Gorbachev and his supporters was creating and acting on alternatives to failed and dangerous policies at home and abroad.''' ,'''But critics of the war have no reason to regret their views.''' ,]
++++

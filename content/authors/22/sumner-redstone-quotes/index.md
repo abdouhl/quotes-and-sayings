@@ -1,0 +1,8 @@
++++
+author = "Sumner Redstone"
+title = "Sumner Redstone Quotes"
+quotes_len = "12"
+description = "the best 12 Sumner Redstone Quotes"
+keywords = "sumner redstone,sumner redstone quotes,sumner redstone quote,sumner redstone sayings,sumner redstone saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''I think we're in the beginning of a bull market. When a bull market begins, nine months later the economy turns around.''' ,'''Viacom's results for the first quarter put the company on a fast track for another record year in 2004.''' ,'''The Internet is a powerful way to make lots of money... But we are not going to buy Yahoo!''' ,'''We recognize the need to adapt to a changing competitive environment.''' ,'''We understand that the real market value of Blockbuster may never be fully realized as a wholly owned part of Viacom.''' ,'''It was always tough, but today we are in the throes of something we have never seen in our history. It's clear in recent times the market is looking for a bottom.''' ,'''The reason we have not gone to newspapers is because its a slow growth industry and I think they are dying. I'm not sure there will be newspapers in 10 years. I read newspapers every day. I even read Murdoch's Wall Street Journal.''' ,'''Murdoch paid too much for the Wall Street Journal even when he didn't have any competition.''' ,'''Success is not built on success. It's built on failure. It's built on frustration. Sometimes its built on catastrophe.''' ,'''The newspaper is dying. I'm not sure there will be newspapers and its one business I'd never be in.''' ,'''Sometimes divorce is better than marriage.''' ,'''We need to listen to consumers' needs.''' ,]
++++

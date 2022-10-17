@@ -1,0 +1,8 @@
++++
+author = "Steven R. Mcqueen"
+title = "Steven R. Mcqueen Quotes"
+quotes_len = "7"
+description = "the best 7 Steven R. Mcqueen Quotes"
+keywords = "steven r. mcqueen,steven r. mcqueen quotes,steven r. mcqueen quote,steven r. mcqueen sayings,steven r. mcqueen saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''I've always been attracted to the 'don't follow the rules' type of girl, the rocker girl. I've always been attracted to somebody who you can lose yourself in the moment with. You can hang out with her, and it's like you're the only two people in the room.''' ,'''I think the beautiful thing about acting is you don't really know who you are. You're able to be whatever you want any day during the week. So I really couldn't see myself being anything else.''' ,'''I go to the gym, do some martial arts, and I love poetry. I have a tattoo of my family crest, and another on my back that says 'The Road Not Taken,' which is a poem by Robert Frost.''' ,'''I started watching movies my grandpa did, and I saw what an impact they made on the world. That's when I said, 'Hey, I want to do that too.'''' ,'''Knowing that my granddad was a highly respected actor wasn't necessarily intimidating, but it definitely meant there was always a pressure to live up to his reputation. I think that's why acting wasn't something I even considered doing, as a kid.''' ,'''I've learned more and more on each show that I've done. I've been blessed and I've gotten to work with some very talented actors - James Gandolfini, Treat Williams. I've kind of always asked for advice and tried to take in as much as I could whenever working with them.''' ,'''I've been watching 'Dexter' recently; I love that show. It's my favorite.''' ,]
++++

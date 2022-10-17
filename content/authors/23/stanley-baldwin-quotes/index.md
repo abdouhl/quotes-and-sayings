@@ -1,0 +1,8 @@
++++
+author = "Stanley Baldwin"
+title = "Stanley Baldwin Quotes"
+quotes_len = "11"
+description = "the best 11 Stanley Baldwin Quotes"
+keywords = "stanley baldwin,stanley baldwin quotes,stanley baldwin quote,stanley baldwin sayings,stanley baldwin saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''The only defense is offense, which means that you have to kill more women and children more quickly than the enemy if you wish to save yourselves.''' ,'''I am one of those who would rather sink with faith than swim without it.''' ,'''Since the day of the air, the old frontiers are gone. When you think of the defense of England you no longer think of the chalk cliffs of Dover; you think of the Rhine.''' ,'''War would end if the dead could return.''' ,'''The intelligent are to the intelligentsia what a gentleman is to a gent.''' ,'''A platitude is simply a truth repeated till people get tired of hearing it.''' ,'''I would rather trust a woman's instinct than a man's reason.''' ,'''I am not struck so much by the diversity of testimony as by the many-sidedness of truth.''' ,'''Let us never forget this: since the day of the air, the old frontiers are gone. When you think of the defense of England you no longer think of the chalk cliffs of Dover; you think of the Rhine. That is where our frontier lies.''' ,'''A statesman wants courage and a statesman wants vision; but believe me, after six months' experience, he wants first, second, third and all the time - patience.''' ,'''You will find in politics that you are much exposed to the attribution of false motive. Never complain and never explain.''' ,]
++++

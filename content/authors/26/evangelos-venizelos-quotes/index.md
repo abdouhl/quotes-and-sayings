@@ -1,0 +1,8 @@
++++
+author = "Evangelos Venizelos"
+title = "Evangelos Venizelos Quotes"
+quotes_len = "11"
+description = "the best 11 Evangelos Venizelos Quotes"
+keywords = "evangelos venizelos,evangelos venizelos quotes,evangelos venizelos quote,evangelos venizelos sayings,evangelos venizelos saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''I am the head of the Socialists, but the party is not my property.''' ,'''Those who have a lot of money in Greece invest in housing abroad. It's all immoral. The Greek crisis is structural, but also political.''' ,'''We only have a Plan A. The acceptance and full implementation of the existing plan, the so-called Plan A, is the best solution for Greece, for the euro zone and also for creditors and holders.''' ,'''Voters will decide how they want to be governed.''' ,'''The country needs someone with experience and determination to make tough decisions. All the money aside, it is important that Greece restore its reputation.''' ,'''Everyone should respect the sovereignty of the EU countries.''' ,'''Without Greece, it is not possible to preserve the integrity of the European phenomenon.''' ,'''Protect those who protect you.''' ,'''Greece is a medium-sized country in Europe. Our debt accounts for only 2.5 percent of the total of all members of the euro zone.''' ,'''Europe and the euro zone have no reason, rationally, to push Greece out of the euro. But this is a system in which many parties, many countries, many governments, many electorates participate and we could have events which, rationally, are not controllable.''' ,'''The vast majority of Greeks accept the need for reform and want to keep our country inside the euro zone.''' ,]
++++

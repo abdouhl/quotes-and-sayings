@@ -1,0 +1,8 @@
++++
+author = "Sandra Dee"
+title = "Sandra Dee Quotes"
+quotes_len = "11"
+description = "the best 11 Sandra Dee Quotes"
+keywords = "sandra dee,sandra dee quotes,sandra dee quote,sandra dee sayings,sandra dee saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''I'm no genius, sure, but I'm no dum-dum.''' ,'''My first year and a half in Hollywood, I did three films. Then in 1959, I was in 'Gidget,' 'Imitation of Life' and 'A Summer Place.' After that, I was a star. It was fun.''' ,'''The reviewers tear me apart. I bleed. I'm a favorite target. They go along for six months looking at movies, praying for rain, and then a new Sandra Dee movie comes out, and their eyes open, and they lick their lips. Before they've ever seen it.''' ,'''Me, I'm good at nothing but walking on the set with a pretty dress.''' ,'''I used to sign vouchers and sign-out sheets with 'Alexandra Dee.'''' ,'''In December 1988, my mother died of lung cancer. I died too. I couldn't function.''' ,'''Sometimes I feel like a has-been who never was.''' ,'''My mother fed me with a spoon until I was 6 years old.''' ,'''I could run for Congress. Why not? Good heavens, if Ronald Reagan can be president, I ought to make a great secretary of the treasury.''' ,'''I've always had a problem saying what I feel for fear of having someone dislike me.''' ,'''I get terrible reviews, but there are people who like to see me in the movies, I guess.''' ,]
++++

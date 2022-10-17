@@ -1,0 +1,8 @@
++++
+author = "Peter Noone"
+title = "Peter Noone Quotes"
+quotes_len = "8"
+description = "the best 8 Peter Noone Quotes"
+keywords = "peter noone,peter noone quotes,peter noone quote,peter noone sayings,peter noone saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''Simon Cowell seems like a very nice guy, but I think he's a secondhand Mickie Most to be honest.''' ,'''I used to love the Beatles and the Stones and I'd always want to hang out with them, even though they were about seven years older.''' ,'''You never get tired of the buzz of touring.''' ,'''There's an element of tongue-in-cheek in every one of our songs. Walking off into the sunset, holding hands, and being married forever was not exactly a brand new idea.''' ,'''I only went a year to high school. I should have been in high school, but I was in a band, and when you're successful doing that - well, you aren't too likely to go back.''' ,'''Everybody gets to a stage when it's time to move on. I was bored, and the band wasn't going anywhere, so I left. I did a couple of shows on Broadway and some other things. I was busy. I just wasn't making records.''' ,'''What's really fun is seeing mothers bringing their daughters to the shows. And the best part is the mothers know they don't have to worry about sexual innuendo in the songs. The shows are family shows.''' ,'''I'm spoiled - in all ways. I've been in a rock 'n' roll band since I was 13, and we had incredible success. When it ended, it had been so good that I just looked at it as time to try something different.''' ,]
++++

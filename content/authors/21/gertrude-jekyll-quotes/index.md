@@ -1,0 +1,8 @@
++++
+author = "Gertrude Jekyll"
+title = "Gertrude Jekyll Quotes"
+quotes_len = "8"
+description = "the best 8 Gertrude Jekyll Quotes"
+keywords = "gertrude jekyll,gertrude jekyll quotes,gertrude jekyll quote,gertrude jekyll sayings,gertrude jekyll saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''There is a lovable quality about the actual tools. One feels so kindly to the thing that enables the hand to obey the brain. Moreover, one feels a good deal of respect for it; without it the brain and the hand would be helpless.''' ,'''The love of gardening is a seed once sown that never dies.''' ,'''It is no use asking me or anyone else how to dig... Better to go and watch a man digging, and then take a spade and try to do it.''' ,'''In garden arrangement, as in all other kinds of decorative work, one has not only to acquire a knowledge of what to do, but also to gain some wisdom in perceiving what it is well to let alone.''' ,'''The lesson I have thoroughly learnt, and wish to pass on to others, is to know the enduring happiness that the love of a garden gives.''' ,'''A garden is a grand teacher. It teaches patience and careful watchfulness; it teaches industry and thrift; above all it teaches entire trust.''' ,'''There is no spot of ground, however arid, bare or ugly, that cannot be tamed into such a state as may give an impression of beauty and delight.''' ,'''What is one to say about June, the time of perfect young summer, the fulfillment of the promise of the earlier months, and with as yet no sign to remind one that its fresh young beauty will ever fade.''' ,]
++++

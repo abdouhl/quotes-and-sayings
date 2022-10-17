@@ -1,0 +1,8 @@
++++
+author = "Dieter Rams"
+title = "Dieter Rams Quotes"
+quotes_len = "13"
+description = "the best 13 Dieter Rams Quotes"
+keywords = "dieter rams,dieter rams quotes,dieter rams quote,dieter rams sayings,dieter rams saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''I don't like computers. I still like to do my drawings by hand.''' ,'''Good design is making something intelligible and memorable. Great design is making something memorable and meaningful.''' ,'''I sit, I think, I make some drawings. As a designer, you cannot retire totally.''' ,'''Quiet is better than loud.''' ,'''I like to be in New York. Le Corbusier described it in the 1930s as a 'wonderful catastrophe.' It is still a wonderful catastrophe, but inspiring.''' ,'''Not the spectacular things are the important things - the unspectacular things are the important things, especially in the future.''' ,'''All too much of the man-made is ugly, inefficient, depressing chaos.''' ,'''Design should not dominate things, should not dominate people. It should help people. That's its role.''' ,'''Products have to be designed in a way that they are comprehensible.''' ,'''I believe designers should eliminate the unnecessary. That means eliminating everything that is modish because this kind of thing is only short-lived.''' ,'''I am not an early bird. I go to bed normally between midnight and 1 o'clock, so it is understandable that I cannot be an early bird. I wake up around 9 o'clock.''' ,'''There is a lot of bad architecture. What we need more is to look at how our landscape should look in the next decades.''' ,'''As designers, we have a great responsibility.''' ,]
++++

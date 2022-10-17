@@ -1,0 +1,8 @@
++++
+author = "Giuseppe Mazzini"
+title = "Giuseppe Mazzini Quotes"
+quotes_len = "9"
+description = "the best 9 Giuseppe Mazzini Quotes"
+keywords = "giuseppe mazzini,giuseppe mazzini quotes,giuseppe mazzini quote,giuseppe mazzini sayings,giuseppe mazzini saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''Slumber not in the tents of your fathers. The world is advancing.''' ,'''Insurrection by means of guerrilla bands is the true method of warfare for all nations desirous of emancipating themselves from a foreign yoke. It is invincible, indestructible.''' ,'''So long as you are ready to die for humanity, the life of your country is immortal.''' ,'''The theory of rights enables us to rise and overthrow obstacles, but not to found a strong and lasting accord between all the elements which compose the nation.''' ,'''Music is the harmonious voice of creation; an echo of the invisible world.''' ,'''Constancy is the complement of all other human virtues.''' ,'''Good council has no price.''' ,'''A Country is not a mere territory; the particular territory is only its foundation. The Country is the idea which rises upon that foundation; it is the sentiment of love, the sense of fellowship which binds together all the sons of that territory.''' ,'''God has given you your country as cradle, and humanity as mother; you cannot rightly love your brethren of the cradle if you love not the common mother.''' ,]
++++

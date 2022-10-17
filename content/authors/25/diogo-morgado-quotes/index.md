@@ -1,0 +1,8 @@
++++
+author = "Diogo Morgado"
+title = "Diogo Morgado Quotes"
+quotes_len = "10"
+description = "the best 10 Diogo Morgado Quotes"
+keywords = "diogo morgado,diogo morgado quotes,diogo morgado quote,diogo morgado sayings,diogo morgado saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''You just make yourself available to be full of love. And to be truthful and honest, 100 percent.''' ,'''Kids can learn a lot by seeing things rather than reading it.''' ,'''I grew up as a Christian, and I always think of Jesus as someone right next to us, you know, someone really close, and I never actually saw that onscreen in a way that could be identified.''' ,'''I was 14 years old. I did an audition for extra work as an actor, with two lines. Suddenly I was auditioning for a bigger role, and then got a part on a Portuguese TV series at age 15. My whole life changed completely.''' ,'''We live in a visual world now.''' ,'''Laughter and joy are part of the beauty of life.''' ,'''The best story is the story that gets to the most people.''' ,'''If the message of Jesus was love, hope and compassion, and I can bring that to more people by being a more appealing Jesus, I am happy with that.''' ,'''If the goal of an actor is to tell the best story ever, there's no higher story than Jesus Christ.''' ,'''It makes you observe small details; even if it's just a kid playing with his dad, if you watch them closely, you can use that in your work. It helps you fully understand people better.''' ,]
++++

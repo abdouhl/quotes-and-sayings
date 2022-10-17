@@ -1,0 +1,8 @@
++++
+author = "Emily Rose"
+title = "Emily Rose Quotes"
+quotes_len = "8"
+description = "the best 8 Emily Rose Quotes"
+keywords = "emily rose,emily rose quotes,emily rose quote,emily rose sayings,emily rose saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''Art imitates life. It's definitely helpful to feel that way. You feel that way when you're leading a show and you're on a set.''' ,'''I went to Lunenburg, when we were filming there, and I was like, 'We can't film anywhere else. This place is perfect. It is 'Haven.' It's absolutely beautiful. That town is eye candy.''' ,'''I want to do a Western so bad because I want to ride horses and act. Those are two of my favorite things in the world to do. I want to do that.''' ,'''What's so great about playing a female lead, especially in law enforcement, is that these women do exist, and they're really quite interesting. They're fascinating.''' ,'''It's so rare that you actually get to find a really well-written female lead.''' ,'''I was a huge 'Deadwood' fan because I'm a huge David Milch fan, so I've always wanted to play something like Calamity Jane on 'Deadwood' and just be the biggest Western tomboy girl, ever.''' ,'''Every week in a small town is very different. Something is going on.''' ,'''The reason you can take the leap of faith with Stephen King, when it comes to the paranormal, or the things that happen in the world that he creates, is because the characters that he writes are accessible.''' ,]
++++

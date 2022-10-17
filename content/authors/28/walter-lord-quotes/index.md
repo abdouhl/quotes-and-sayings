@@ -1,0 +1,8 @@
++++
+author = "Walter Lord"
+title = "Walter Lord Quotes"
+quotes_len = "9"
+description = "the best 9 Walter Lord Quotes"
+keywords = "walter lord,walter lord quotes,walter lord quote,walter lord sayings,walter lord saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''I look for something that is highly unusual, involving ordinary people caught in extraordinary situations.''' ,'''You have to study the people and the ones that measure up are not always the ones you expect.''' ,'''There were exceptions, a couple of families that just plain didn't want to even think about it, although forty years had passed but mostly the people were very interested in talking about it.''' ,'''It would be nice to say the rich people, the fancy people, all behaved like bastards and the poor slobs all came through like heroes. But as a matter of fact, sometimes the poor slobs behave like slobs and the great, noble, privileged characters come off very well, indeed.''' ,'''Someone once told me the one thread that runs through them all is a premium on personal courage - not intellectual courage, but just plain physical courage.''' ,'''Events alone rarely provide much guide to the future.''' ,'''I never earned a dollar that was not somehow through writing.''' ,'''Brilliantly lit from stem to stern, she looked like a sagging birthday cake.''' ,'''It's a funny thing, but today the Titanic is probably much more - that is people are much more aware of it than they were in 1954, when I was doing my research.''' ,]
++++

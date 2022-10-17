@@ -1,0 +1,8 @@
++++
+author = "Sarah Ferguson"
+title = "Sarah Ferguson Quotes"
+quotes_len = "11"
+description = "the best 11 Sarah Ferguson Quotes"
+keywords = "sarah ferguson,sarah ferguson quotes,sarah ferguson quote,sarah ferguson sayings,sarah ferguson saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''He's by best friend and the father of my children. He's a great ex.''' ,'''I wanted to work; it's not right for a princess of the royal house to be commercial, so Andrew and I decided to make the divorce official so I could go off and get a job.''' ,'''I wish we'd never got divorced. He and I both wish we'd never got divorced, but we did. I wish I could go back and be the bride again, but I can't.''' ,'''I felt that I ostracized myself by my behavior, by the past, by living with all the regrets of my mistakes, that I sort of wore a hair shirt and beat myself up most of the day thinking and regretting why did I make such a mistake? Why have I made so many mistakes?''' ,'''When Andrew went with the girls, we were talking all morning and he was saying, 'It's okay. Just remember we had such a good day. Our wedding was so perfect.' Because we're such a unit together. He made me feel very part of the day on April the 29th.''' ,'''Diana was one of the quickest wits I knew; nobody made me laugh like her.''' ,'''The queen and I always got on well, still do; I uphold everything Her Majesty represents, has given up her life for. It's her duty. For her country, she's selfless to the grave.''' ,'''It was dreadful. They tried to put the little redhead in a cage.''' ,'''I left my marriage knowing I'd have to work. I have.''' ,'''I didn't want a divorce but had to because of circumstance.''' ,'''I really miss Diana. I loved her so much.''' ,]
++++

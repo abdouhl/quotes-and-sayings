@@ -1,0 +1,8 @@
++++
+author = "Gary Becker"
+title = "Gary Becker Quotes"
+quotes_len = "7"
+description = "the best 7 Gary Becker Quotes"
+keywords = "gary becker,gary becker quotes,gary becker quote,gary becker sayings,gary becker saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''Fines are preferable to imprisonment and other types of punishment because they are more efficient. With a fine, the punishment to offenders is also revenue to the State.''' ,'''Still, intuitive assumptions about behavior is only the starting point of systematic analysis, for alone they do not yield many interesting implications.''' ,'''Why in almost all societies have married women specialized in bearing and rearing children and in certain agricultural activities, whereas married men have done most of the fighting and market work?''' ,'''My work on human capital began with an effort to calculate both private and social rates of return to men, women, blacks, and other groups from investments in different levels of education.''' ,'''I was not sympathetic to the assumption that criminals had radically different motivations from everyone else.''' ,'''The Treatise tries to analyze not only modern Western families, but also those in other cultures and the changes in family structure during the past several centuries.''' ,'''A stronger yuan could lead to greater Chinese asset accumulation in the U.S. and elsewhere.''' ,]
++++

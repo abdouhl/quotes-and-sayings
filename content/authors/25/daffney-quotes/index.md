@@ -1,0 +1,8 @@
++++
+author = "Daffney"
+title = "Daffney Quotes"
+quotes_len = "12"
+description = "the best 12 Daffney Quotes"
+keywords = "daffney,daffney quotes,daffney quote,daffney sayings,daffney saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''I'm different than your everyday average girl, but... I like to be taken more seriously as a wrestler.''' ,'''I may not be the best technical wrestler in the world, but I felt like I had learned enough of my sport that I could deliver some good matches.''' ,'''I don't think people realize how badly I've been hurt.''' ,'''The most important thing to remember is, that, CTE, and head injuries and concussions, they can only really now be... They can now really only be diagnosed after you are dead.''' ,'''I'm in constant pain and have muscle spasms in my left shoulder, shoulder blade and bicep.''' ,'''I wrestled a lot in Texas at Anarchy Championship Wrestling.''' ,'''I almost wish I hadn't been painted in such a light that I was just hardcore and that I couldn't deliver a good match in the ring.''' ,'''I think if I got in the ring and took any more bumps, I wouldn't be able to function as a normal human being. It would just be too hard on my body.''' ,'''I want to be studied.''' ,'''I get sharp pains in my wrist and fingers.''' ,'''WWE seems to me to have gone back to the state they were at when their women's division was on top. They're making their divas really learn how to work.''' ,'''It was so nice to see a lot of my close friends get recruited and join the women's division in TNA and be able to be on national television.''' ,]
++++

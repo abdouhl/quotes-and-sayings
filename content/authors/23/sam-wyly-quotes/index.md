@@ -1,0 +1,8 @@
++++
+author = "Sam Wyly"
+title = "Sam Wyly Quotes"
+quotes_len = "12"
+description = "the best 12 Sam Wyly Quotes"
+keywords = "sam wyly,sam wyly quotes,sam wyly quote,sam wyly sayings,sam wyly saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''I come from a long line of people that write. My folks ran a weekly newspaper.''' ,'''The air is dirty because of the electricity monopolists. They have powerful money lobbyists.''' ,'''Al Gore is an heir to the old czars and commissars. He never saw a regulation he didn't like.''' ,'''Originally, I was in both software and in online computing. The first innovation really was sort of at that time that we're marrying the telephone and the computer so that people wouldn't have to drive to the computer center. We didn't have $1,000 computers.''' ,'''I debated free trade in college. I came out as a free trader. I'm a free markets guy. I'm an Adam Smith guy.''' ,'''In managers, I look for people who can get things done through other people. The most important thing for a good manager is that the people on his team feel like he or she has integrity.''' ,'''I think it's good politics to beat up on big companies and rich people.''' ,'''I'm a monomaniac with one goal: clean air from clean energy.''' ,'''The purpose of a business is to create customers.''' ,'''Actually, I bought one share of Warren Buffett's stock, probably 35 years ago, in order to read his letters.''' ,'''I'm interested in personalities, not political parties.''' ,'''Actually, I've never thought myself as being a particularly hard worker. I've always worked, and I guess my mind is busy all the time. I've been in a lot of things just because of my own intellectual curiosity.''' ,]
++++

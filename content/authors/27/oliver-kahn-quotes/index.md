@@ -1,0 +1,8 @@
++++
+author = "Oliver Kahn"
+title = "Oliver Kahn Quotes"
+quotes_len = "9"
+description = "the best 9 Oliver Kahn Quotes"
+keywords = "oliver kahn,oliver kahn quotes,oliver kahn quote,oliver kahn sayings,oliver kahn saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''If we perform as a unit and if every single player gives it his very best, everything can happen.''' ,'''There is no reason to change this system. I don't think we'll abandon it. For us the most important thing is to be compact in the back. That's the kind of game we have to play here and it will be very difficult to beat us.''' ,'''A Germany team should not be afraid going into a tournament. History shows that we can raise the level of our game when it matters.''' ,'''Complaining and arguing will not help. We are fully concentrating on the game against the Czechs.''' ,'''We are Bayern Munich and English teams always have trouble as soon as they leave the island.''' ,'''When you look at our programme for the next few weeks, you do not fancy a trip to the Oktoberfest.''' ,'''If I play, I try to concentrate on producing my best.''' ,'''I have a feeling we are going to be world champions, I can't really explain why. Brazil are probably the best team in the world in terms of individual players. But the team with the most gifted players do not always win.''' ,'''This match is about sport and I separate that completely from politics.''' ,]
++++

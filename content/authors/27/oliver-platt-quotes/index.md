@@ -1,0 +1,8 @@
++++
+author = "Oliver Platt"
+title = "Oliver Platt Quotes"
+quotes_len = "10"
+description = "the best 10 Oliver Platt Quotes"
+keywords = "oliver platt,oliver platt quotes,oliver platt quote,oliver platt sayings,oliver platt saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''I think of myself as an actor.''' ,'''You know that was much more of a kind of cameo, I love the movie, I love the story, I love Johnny as a fun little role but it was more of a cameo, not anywhere near as developed as this role.''' ,'''I love the script and I just thought it was a great role. Like I say, it's like this - the script is like this sad, funny, desperate love song to the lost American man.''' ,'''People start to act very unusually when they find out that they're dying, that they don't have that many years left.''' ,'''The only thing I wanted to do when I was a young naive kid was to become a New York stage actor.''' ,'''Beauty is in the eye of the beholder.''' ,'''You know I feel very fortunate that my life has turned out the way that it has - whatever that means - I mean... you know, to say that I would be glad would mean that I planned it.''' ,'''The directors that I end up having a really good time with are the ones that understand the fluidity of the medium and are interested in catching lightning in a bottle.''' ,'''You know, grieve your wife, this is an impulsive thing and you have no idea the kind of trouble you're getting yourself into it. And of course he doesn't listen to me and he adopts this child.''' ,'''2005 was a great year for me for fantastic roles that nobody saw.''' ,]
++++

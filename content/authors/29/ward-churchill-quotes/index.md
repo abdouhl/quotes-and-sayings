@@ -1,0 +1,8 @@
++++
+author = "Ward Churchill"
+title = "Ward Churchill Quotes"
+quotes_len = "11"
+description = "the best 11 Ward Churchill Quotes"
+keywords = "ward churchill,ward churchill quotes,ward churchill quote,ward churchill sayings,ward churchill saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''When you kill 500,000 children in order to impose your will on other countries, then you shouldn't be surprised when somebody responds in kind.''' ,'''There's always merit to having a debate.''' ,'''There is no consensus, there is no homogeneity, there is no truth.''' ,'''My comments are reserved for reputable journalists.''' ,'''If I can't drive my old pickup to wherever I'm going, well, chances are good that I just won't go.''' ,'''If U.S. foreign policy results in massive death and destruction abroad, we cannot feign innocence when some of that destruction is returned.''' ,'''The term 'human rights defender,' incidentally, isn't something I or my attorneys came up with. Personally, I find it a little embarrassing.''' ,'''Truth is the best defense.''' ,'''I am not a 'defender' of the September 11 attacks, but simply pointing out that if U.S. foreign policy results in massive death and destruction abroad, we cannot feign innocence when some of that destruction is returned.''' ,'''They were targeting those people I referred to as 'little Eichmanns.' These were legitimate targets.''' ,'''I have never said that people 'should' engage in armed attacks on the United States, but that such attacks are a natural and unavoidable consequence of unlawful U.S. policy.''' ,]
++++

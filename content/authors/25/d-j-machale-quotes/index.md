@@ -1,0 +1,8 @@
++++
+author = "D. J. Machale"
+title = "D. J. Machale Quotes"
+quotes_len = "9"
+description = "the best 9 D. J. Machale Quotes"
+keywords = "d. j. machale,d. j. machale quotes,d. j. machale quote,d. j. machale sayings,d. j. machale saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''Storytelling is storytelling. Good stories need compelling characters and interesting conflicts. That's the bottom line no matter what medium you're writing for.''' ,'''I'd love to play the piano, and I'm going to work on it.''' ,'''The single best piece of advice I give to aspiring writers is to always write about things that they know. I suggest that they write about people and places and events and conflicts they are familiar with. That way their writing will be real and hopefully readers will respond to it. I try to take my own advice.''' ,'''It is much more fun to write about villains then heroes. The villains are the ones that think out the scheme, and the heroes just kind of come along for the ride.''' ,'''To write, you need to find what you love.''' ,'''A screenplay is really a blueprint for something that will be filmed. Therefore you must always keep in mind that whatever you write is going to be staged, for real.''' ,'''I believe that stories find writers, writers don't find stories. With the 'Pendragon' series, I actually had multiple story ideas and decided that instead of writing them individually, I would create a character whose journey would thread them all together.''' ,'''My life is an ongoing, ever changing adventure.''' ,'''To write a good mystery you have to know where it will end before you can decide where it will begin... and I've always known where it will end.''' ,]
++++

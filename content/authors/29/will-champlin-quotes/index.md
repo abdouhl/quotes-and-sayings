@@ -1,0 +1,8 @@
++++
+author = "Will Champlin"
+title = "Will Champlin Quotes"
+quotes_len = "9"
+description = "the best 9 Will Champlin Quotes"
+keywords = "will champlin,will champlin quotes,will champlin quote,will champlin sayings,will champlin saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''Own every note I sing and sell it. Make a connection to the audience. That's what it comes down to, you know?''' ,'''I'm definitely a fighter, like Christina Aguilera would say.''' ,'''I chose 'The Voice' because I knew they had a lot more respect for each artist, as opposed to the other shows. They don't get it. I don't think those shows ever got it. I was turned off by some of the other shows and how they did things.''' ,'''I've seen a lot of my friends go through different reality shows, and they just get caught up in a lot of stagnant positions, unfortunately.''' ,'''I'm very hands-on with my own music.''' ,'''Being yourself is the most important element for me, because, if you're trying to be something you're not, the audience will pick up on that.''' ,'''Competition is all in numbers; it's a numbers game, but I looked at it like it's a passion, and it's art.''' ,'''I just wanted to keep consistent and keep true to America and not seem contrived. I didn't want to seem contrived at all with any song choice that might be a detriment to my journey on 'The Voice.'''' ,'''It's liberating and rewarding to see your own ideas coming to fruition.''' ,]
++++

@@ -1,0 +1,8 @@
++++
+author = "Summer Walker"
+title = "Summer Walker Quotes"
+quotes_len = "11"
+description = "the best 11 Summer Walker Quotes"
+keywords = "summer walker,summer walker quotes,summer walker quote,summer walker sayings,summer walker saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''Performing gives me so much anxiety.''' ,'''I would be more at peace if I could just record music and slide it under the door.''' ,'''Black women I'm talking to you, because it's not white women, it's not Latino, it's not Native American - I checked, it's y'all. The self hate is ridiculous. Why do you hate yourself so much, why do you hate your texture, why do you hate your culture, why do you hate your history?''' ,'''There's a lot of people out here faking a smile on their face like they got it together but inside actually suffering from some sort of traumatic experience, a loss, depressed, fearful, envious or whatever the case may be, but I can feel it.''' ,'''I take showers, I don't like them because I like baths in very nice jacuzzi or garden tubs.''' ,'''I been me from day one, I'm not 'bout to start acting different, talking different, treating people different, or looking different.''' ,'''I fart. My backstage ritual is flatulence.''' ,'''I'm just a regular person, nothing more.''' ,'''As you know, I have been very open about my struggle with social anxiety.''' ,'''I don't want to lose myself for someone else.''' ,'''At the end of the day, I'm a person. I have feelings. I get tired. I get sad.''' ,]
++++

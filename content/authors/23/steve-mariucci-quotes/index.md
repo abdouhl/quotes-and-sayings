@@ -1,0 +1,8 @@
++++
+author = "Steve Mariucci"
+title = "Steve Mariucci Quotes"
+quotes_len = "7"
+description = "the best 7 Steve Mariucci Quotes"
+keywords = "steve mariucci,steve mariucci quotes,steve mariucci quote,steve mariucci sayings,steve mariucci saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''I care about this state... and I feel a responsibility to get things done. If we stay healthy and play smart we can be a playoff team. I think we're on the right track.''' ,'''This league is getting big. We have way more 300-pound guys than ever before. That's not to say all the people in athletics who have died are 300-pound guys. There are so many different reasons.''' ,'''Whether you're a quarterback and you just threw a pick, or you're a corner and you just got beat for a touchdown, you've got to have a short-term memory, shake it off and play the next play.''' ,'''I've been a lucky guy.''' ,'''Everything we talk about is about beating the Packers, the Bears and the Vikings. Obviously there are other teams in the league, but if you can dominate and be on top of your division you are always in the playoff hunt. It's time for us to win that thing.''' ,'''That's the same in college. It's the same in high school. Kids are getting bigger, stronger, faster, more into the weightlifting, more into nutrition, more into size.''' ,'''Young quarterbacks do well because they have a great defense.''' ,]
++++

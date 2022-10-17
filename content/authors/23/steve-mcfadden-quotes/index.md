@@ -1,0 +1,8 @@
++++
+author = "Steve Mcfadden"
+title = "Steve Mcfadden Quotes"
+quotes_len = "6"
+description = "the best 6 Steve Mcfadden Quotes"
+keywords = "steve mcfadden,steve mcfadden quotes,steve mcfadden quote,steve mcfadden sayings,steve mcfadden saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''My approach to 'Eastenders' is the same as my approach to film and the same approach to theatre. Whatever I do, I use the same skills and tools.''' ,'''It's an absolute honor to be taking part in the pageant for the Diamond Jubilee. This is a once-in-a-lifetime opportunity and will be a moment in history that will always be remembered. I'm really looking forward to being out on the river with friends and family. To mark this historic moment will be extremely special.''' ,'''If you're a kid at a secondary comprehensive in North London as I was in the seventies, prancing around doing acting and being a luvvie wasn't really a good idea for your personal security.''' ,''''EastEnders' keeps me so busy - that is where I'm at and I can't see that changing too soon. There's nothing that has quite got the punch of an 'EastEnders' script.''' ,'''I do see a lot of my kids, but sometimes I feel as though we have snatched moments. I turn up half way through something, or I only see her at bedtime. I'd like there to be more.''' ,'''When I was a kid if I was unhappy, I'd stroke my dog. I was into bringing injured birds into the house, RSPCA activities. And the relationship that you have with animals, you can get that from your children: that unquestioning love and adoration and equal need.''' ,]
++++

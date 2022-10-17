@@ -1,0 +1,8 @@
++++
+author = "Edith Hamilton"
+title = "Edith Hamilton Quotes"
+quotes_len = "11"
+description = "the best 11 Edith Hamilton Quotes"
+keywords = "edith hamilton,edith hamilton quotes,edith hamilton quote,edith hamilton sayings,edith hamilton saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''The fullness of life is in the hazards of life.''' ,'''When the freedom they wished for most was freedom from responsibility, then Athens ceased to be free and was never free again.''' ,'''Theories that go counter to the facts of human nature are foredoomed.''' ,'''Faith is not belief. Belief is passive. Faith is active.''' ,'''None but a poet can write a tragedy. For tragedy is nothing less than pain transmuted into exaltation by the alchemy of poetry.''' ,'''To be able to be caught up into the world of thought - that is being educated.''' ,'''Mind and spirit together make up that which separates us from the rest of the animal world, that which enables a man to know the truth and that which enables him to die for the truth.''' ,'''Great art is the expression of a solution of the conflict between the demands of the world without and that within.''' ,'''When the mind withdraws into itself and dispenses with facts it makes only chaos.''' ,'''The modern minds in each generation are the critics who preserve us from a petrifying world, who will not leave us to walk undisturbed in the ways of our fathers.''' ,'''A people's literature is the great textbook for real knowledge of them. The writings of the day show the quality of the people as no historical reconstruction can.''' ,]
++++

@@ -1,0 +1,8 @@
++++
+author = "George Macdonald Fraser"
+title = "George Macdonald Fraser Quotes"
+quotes_len = "7"
+description = "the best 7 George Macdonald Fraser Quotes"
+keywords = "george macdonald fraser,george macdonald fraser quotes,george macdonald fraser quote,george macdonald fraser sayings,george macdonald fraser saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''Political correctness is about denial, usually in the weasel circumlocutory jargon which distorts and evades and seldom stands up to honest analysis.''' ,'''I'm rather a cynic, I suppose. I do not believe in the niceness of humanity.''' ,'''I think little of people who will deny their history because it doesn't present the picture they would like.''' ,'''It may be tripe, but it's my tripe - and I do urge other authors to resist encroachments on their brain-children and trust their own judgment rather than that of some zealous meddler with a diploma in creative punctuation who is just dying to get into the act.''' ,'''Tony Blair is not just the worst prime minister we've ever had, but by far the worst prime minister we've ever had. It makes my blood boil to think of the British soldiers who've died for that little liar.''' ,'''What is overlooked is the astonishing amount of history Hollywood has got right... For better or worse, nothing has been more influential in shaping our visions of the past than the commercial cinema.''' ,'''I loathe all political parties, which I regard as inventions of the devil. My favourite prime minister was Sir Alec Douglas-Home, not because he was on the Right, but because he spent a year in office without, on his own admission, doing a damned thing.''' ,]
++++

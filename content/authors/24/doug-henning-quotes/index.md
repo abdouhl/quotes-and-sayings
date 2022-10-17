@@ -1,0 +1,8 @@
++++
+author = "Doug Henning"
+title = "Doug Henning Quotes"
+quotes_len = "9"
+description = "the best 9 Doug Henning Quotes"
+keywords = "doug henning,doug henning quotes,doug henning quote,doug henning sayings,doug henning saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''When I was in college, being a magician was not the classiest thing to be. It was like being a folk singer before Bob Dylan.''' ,'''Magic is something that happens that appears to be impossible. What I call 'illusion magic' uses laws of science and nature that are already known. Real magic uses laws that haven't yet been discovered.''' ,'''It's important to me to create the largest wonder.''' ,'''I have a policy of not saying anything negative about anything another magician does.''' ,'''When I did my first few television specials, my illusions were so advanced that it took a couple of years before the other illusionists could even figure out what I was doing, let alone try to imitate me.''' ,'''Now there was no wonder in the Statue of Liberty illusion because he, Copperfield, attempted to do something so large that it stretched the credibility of the audience to the point where most people didn't believe any of it anymore.''' ,'''The reason I can give wonder is that I feel wonder about the world: the stars, a tree, my body - everything.''' ,'''I don't put a girl in a box and clap my hands three times, and she's gone. I get in the box, and I vanish, and I reappear at the other side of the stage. That way, people don't think, 'That's a great illusion.' They think, 'Doug's a great magician.'''' ,'''If I produce a 450-pound Bengal tiger, it's going to create a lot more wonder than if I produce a rabbit.''' ,]
++++

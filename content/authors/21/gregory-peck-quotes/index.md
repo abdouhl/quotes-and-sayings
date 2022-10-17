@@ -1,0 +1,8 @@
++++
+author = "Gregory Peck"
+title = "Gregory Peck Quotes"
+quotes_len = "10"
+description = "the best 10 Gregory Peck Quotes"
+keywords = "gregory peck,gregory peck quotes,gregory peck quote,gregory peck sayings,gregory peck saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''My feeling about him is that the America that we have today, the freedoms we enjoy and the privileges we have, are really the reflection of Abe Lincoln's convictions, his vision, and his toughness.''' ,'''I never liked the name Eldred. Since nobody knew me in New York, I just changed to my middle name.''' ,'''Inside of all the makeup and the character and makeup, it's you, and I think that's what the audience is really interested in... you, how you're going to cope with the situation, the obstacles, the troubles that the writer put in front of you.''' ,'''Faith gives you an inner strength and a sense of balance and perspective in life.''' ,'''There we were, hundreds of us lined up, waving at the great man as he tipped his hat to us. And that is the extent of my acquaintance with Albert Einstein.''' ,'''I don't lecture and I don't grind any axes. I just want to entertain.''' ,'''I'm not a do-gooder. It embarrassed me to be classified as a humanitarian. I simply take part in activities that I believe in.''' ,'''Tough times don't last, tough people do, remember?''' ,'''What did I do in high school? I grew from 5 feet 4 inches to 6 feet 2 inches.''' ,'''I had that stubborn streak, the Irish in me I guess.''' ,]
++++

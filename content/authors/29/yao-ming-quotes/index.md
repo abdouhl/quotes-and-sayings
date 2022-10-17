@@ -1,0 +1,8 @@
++++
+author = "Yao Ming"
+title = "Yao Ming Quotes"
+quotes_len = "11"
+description = "the best 11 Yao Ming Quotes"
+keywords = "yao ming,yao ming quotes,yao ming quote,yao ming sayings,yao ming saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''Fortune cookies are a good idea. If the message is positive, it can make your day a little better.''' ,'''I'm getting fat... because my size, I put on 20 or 30 pounds, it doesn't show very much... I'm thinking about going back to work out in a very short time.''' ,'''Basketball, in America, is like a culture. It is like a foreigner learning a new language. It is difficult to learn foreign languages and it will also be difficult for me to learn the culture for basketball here.''' ,'''I finished my high school. I think an educate is very, very important.''' ,'''Everybody is improving but I am improving slowly, which seemingly widens our distance.''' ,'''If you're going to learn a new language, you can't try to be perfect. You'll stop yourself from talking. You just have to let go.''' ,'''Endangered species are our friends.''' ,'''When I was young, we were taught not to dunk. We were taught not to stand out from the rest of the team. It's different now.''' ,'''Putting our ecosystem in great peril is certainly not a part of Chinese culture that I know.''' ,'''No matter whether you are new or an old team member, you need time to adjust to one another.''' ,'''A good leader must be fair.''' ,]
++++

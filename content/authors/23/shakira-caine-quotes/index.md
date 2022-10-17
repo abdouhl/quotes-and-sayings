@@ -1,0 +1,8 @@
++++
+author = "Shakira Caine"
+title = "Shakira Caine Quotes"
+quotes_len = "14"
+description = "the best 14 Shakira Caine Quotes"
+keywords = "shakira caine,shakira caine quotes,shakira caine quote,shakira caine sayings,shakira caine saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''Well-tailored clothes I can wear forever.''' ,'''At one time, very wealthy ladies only wore real jewels. Now they want costume.''' ,'''Michael encouraged me to do it, but I'm not ambitious to be a star.''' ,'''I am an independent person expressing myself.''' ,'''He was everything I didn't expect. I had just seen him in Get Carter' and he seemed so aggressive and ruthless. Instead, I found him charming and very gentle, someone whom I'd like to spend part of my life with. Michael was at that time still very much against marriage.''' ,'''South Hampton is the A group; East Hampton is the B group; Bridge Hampton both A and B groups; and Sag Harbor, Water Mill, Amagansett and Sagaponak the Fun Group.''' ,'''It feels wonderful to be accomplishing something on my own.''' ,'''I am not totally subdued, I do scream and shout.''' ,'''People are unfair when you're married to someone famous. They believe you haven't got thoughts of your own. That's where they are wrong.''' ,'''It doesn't take a lot of effort to get well-dressed.''' ,'''I happened to get interested in jewelry when an ethnic tendency was reawakening in fashion.''' ,'''South Hampton is Jacket-With-No-Socks, East Hampton is Socks-With-No-Jacket, Bridge Hampton is Jacket-and-Socks and Sag Harbor, along with the Fun Group, is No-Jacket-and-No-Socks.''' ,'''I can't imagine Michael as Alfie.'''' ,'''If a marriage goes wrong, 60 percent of the blame is with the woman.''' ,]
++++

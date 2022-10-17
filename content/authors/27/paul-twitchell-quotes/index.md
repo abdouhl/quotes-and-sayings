@@ -1,0 +1,8 @@
++++
+author = "Paul Twitchell"
+title = "Paul Twitchell Quotes"
+quotes_len = "8"
+description = "the best 8 Paul Twitchell Quotes"
+keywords = "paul twitchell,paul twitchell quotes,paul twitchell quote,paul twitchell sayings,paul twitchell saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''To recognize negativism as a force of creation is to give up the creative standpoint altogether.''' ,'''Our spiritual attitude is determined by our conception of our relation to infinite spirit.''' ,'''The higher one climbs on the spiritual ladder, the more they will grant others their own freedom, and give less interference to another's state of consciousness.''' ,'''The minister and the priest teach that the organization is greater. No great philosophy has ever come from an organization, but from an individual whose research has been a personal study of God and ITS ways.''' ,'''Substance must emanate from spirit and is nothing else than the record of the spirit's conception of itself finding expression in space and time.''' ,'''My sense of divine brings with it a strange sound of music with its glories, a marvellous melody sounding like a multitude of flutes.''' ,'''There is no teacher, living or past, who can give us the actual understanding of Truth. A teacher can only put our feet upon the path and point the way. That is all. It is wholly dependent on the individual to make his way to Truth.''' ,'''Y'know, the real reason why I was such a failure in the sense of being unable to make any sort of a living was because I was really not motivated. I had no motivation.''' ,]
++++

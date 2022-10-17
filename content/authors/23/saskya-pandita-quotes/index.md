@@ -1,0 +1,8 @@
++++
+author = "Saskya Pandita"
+title = "Saskya Pandita Quotes"
+quotes_len = "8"
+description = "the best 8 Saskya Pandita Quotes"
+keywords = "saskya pandita,saskya pandita quotes,saskya pandita quote,saskya pandita sayings,saskya pandita saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''Even in decline, a virtuous man increases the beauty of his behavior. A burning stick, though turned to the ground, has its flame drawn upwards.''' ,'''Not to be cheered by praise, not to be grieved by blame, but to know thoroughly ones own virtues or powers are the characteristics of an excellent man.''' ,'''It may be doubtful, at first, whether a person is an enemy or friend. Meat, if not properly digested, becomes poison; But poison, if used rightly, may turn medicinal.''' ,'''If a wise man behaves prudently, how can he be overcome by his enemies? Even a single man, by right action, can overcome a host of foes.''' ,'''Great affection is often the cause of violent animosity. The quarrels of men often arise from too great a familiarity.''' ,'''When many work together for a goal, Great things may be accomplished. It is said a lion cub was killed By a single colony of ants.''' ,'''Much talking is the cause of danger. Silence is the means of avoiding misfortune. The talkative parrot is shut up in a cage. Other birds, without speech, fly freely about.''' ,'''By depending on the great, The small may rise high. See: the little plant ascending the tall tree Has climbed to the top.''' ,]
++++

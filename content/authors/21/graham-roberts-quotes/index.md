@@ -1,0 +1,8 @@
++++
+author = "Graham Roberts"
+title = "Graham Roberts Quotes"
+quotes_len = "14"
+description = "the best 14 Graham Roberts Quotes"
+keywords = "graham roberts,graham roberts quotes,graham roberts quote,graham roberts sayings,graham roberts saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''Every game I played was a bonus.''' ,'''I work hard. I work 80-90 hours a week in part-time football.''' ,'''Spurs haven't got the funds they need so success has to be achieved gradually.''' ,'''I'm sure Alex will be having to get the masseurs in to work on those legs. You feel tired when you're losing but when you are winning it gives you that bit of an edge.''' ,'''I earned the right to get in the team, and fought every game to be in it.''' ,'''I find young kids. I enjoy coaching and enjoy making them better players.''' ,'''I would run through brick walls for Spurs.''' ,'''My ambition is to go back to Spurs and Rangers in some capacity and give something back that they gave to me.''' ,'''I thought we were going to win the game but we won't take the disappointments, we will take the positives.''' ,'''I'm a Rangers fan and I love the club but this will be a difficult game.''' ,'''Every week Rangers have different former players come out at half-time. Spurs should have a couple a former players on the board, who know what the supporters want.''' ,'''The worst thing Spurs ever did was get rid of Keith Burkinshaw. They have never replaced him.''' ,'''But Rangers don't need to go there and win, they need to go there and get a point. I think the hardest thing about it is there will be no supporters. Playing in an empty ground will be a problem for the players.''' ,'''Football is a game of skill, we kicked them a bit and they kicked us a bit.''' ,]
++++

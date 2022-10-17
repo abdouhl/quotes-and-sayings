@@ -1,0 +1,8 @@
++++
+author = "Philip Schaff"
+title = "Philip Schaff Quotes"
+quotes_len = "9"
+description = "the best 9 Philip Schaff Quotes"
+keywords = "philip schaff,philip schaff quotes,philip schaff quote,philip schaff sayings,philip schaff saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''Christ himself wrote nothing, but furnished endless material for books and songs of gratitude and praise.''' ,'''The apostolic writings are of three kinds: historical, didactic, and prophetic.''' ,'''The New Testament evinces its universal design in its very, style, which alone distinguishes it from all the literary productions of earlier and later times.''' ,'''Jesus Christ is the beginning, the middle, and the end of all. In the Gospels he walks in human form upon the earth, and accomplishes the work of redemption.''' ,'''It is more than a book, it is an institution which rules the Christian world.''' ,'''The living Church of the redeemed is his book. He founded a religion of the living spirit, not of a written code, like the Mosaic law. Yet his words and deeds are recorded by as honest and reliable witnesses as ever put pen to paper.''' ,'''The style of the Bible in general is singularly adapted to men of every class and grade of culture, affording the child the simple nourishment for its religious wants, and the profoundest thinker inexhaustible matter of study.''' ,'''The New Testament presents, in its way, the same union of the divine and human as the person of Christ. In this sense also 'the word became flesh, and dwells among us.'''' ,'''To the first class belong the Gospels and Acts; to the second, the Epistles; to the third, the Revelation.''' ,]
++++

@@ -1,0 +1,8 @@
++++
+author = "Virginia Satir"
+title = "Virginia Satir Quotes"
+quotes_len = "10"
+description = "the best 10 Virginia Satir Quotes"
+keywords = "virginia satir,virginia satir quotes,virginia satir quote,virginia satir sayings,virginia satir saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''Feelings of worth can flourish only in an atmosphere where individual differences are appreciated, mistakes are tolerated, communication is open, and rules are flexible - the kind of atmosphere that is found in a nurturing family.''' ,'''So much is asked of parents, and so little is given.''' ,'''Life is not what it's supposed to be. It's what it is. The way you cope with it is what makes the difference.''' ,'''Every word, facial expression, gesture, or action on the part of a parent gives the child some message about self-worth. It is sad that so many parents don't realize what messages they are sending.''' ,'''We must not allow other people's limited perceptions to define us.''' ,'''Adolescents are not monsters. They are just people trying to learn how to make it among the adults in the world, who are probably not so sure themselves.''' ,'''We can learn something new anytime we believe we can.''' ,'''We need 4 hugs a day for survival. We need 8 hugs a day for maintenance. We need 12 hugs a day for growth.''' ,'''Problems are not the problem; coping is the problem.''' ,'''What lingers from the parent's individual past, unresolved or incomplete, often becomes part of her or his irrational parenting.''' ,]
++++

@@ -1,0 +1,8 @@
++++
+author = "Olafur Darri Olafsson"
+title = "Olafur Darri Olafsson Quotes"
+quotes_len = "8"
+description = "the best 8 Olafur Darri Olafsson Quotes"
+keywords = "olafur darri olafsson,olafur darri olafsson quotes,olafur darri olafsson quote,olafur darri olafsson sayings,olafur darri olafsson saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''I'd never been to Rhode Island before, I loved it there. Watching the leaves change color in the fall was just gorgeous. I loved it.''' ,'''They say the pen is mightier than the sword and I would like to have the ability to write things down and make them happen. So I guess I would like to be a screenwriter.''' ,'''I'm still blown away by how desolate Iceland can be, how deserted it is. It's very often like living on the moon.''' ,'''Some people just have a love for words and thinking about words that rhyme.''' ,'''I don't know whether it's a Nordic thing, but men in Iceland are very locked-up, very quiet. They hardly ever express emotion.''' ,'''Fantastic Beasts, to in any way be associated with that world was amazing, especially having been such a huge fan of JK Rowling for such a long time, it's one of those things I never would have dreamt of being a part of.''' ,'''Luckily enough, I read 'NOS4A2' about a year before I ever heard of the TV show, so I had read the book and absolutely loved the book.''' ,'''I just love films and any time you get to see a film with a good story, no matter how much money you have for visual effects, if the story isn't good it won't be a good film.''' ,]
++++

@@ -1,0 +1,8 @@
++++
+author = "Sidney Lanier"
+title = "Sidney Lanier Quotes"
+quotes_len = "7"
+description = "the best 7 Sidney Lanier Quotes"
+keywords = "sidney lanier,sidney lanier quotes,sidney lanier quote,sidney lanier sayings,sidney lanier saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''Gradually I find that my whole soul is merging itself into this business of writing, and especially of writing poetry. I am going to try it; and am going to test, in the most rigid way I know, the awful question whether it is my vocation.''' ,'''But I cannot bring myself to believe that I was intended for a musician, because it seems so small a business in comparison with other things which, it seems to me, I might do. Question here: 'What is the province of music in the economy of the world?'''' ,'''Music is love in search of a word.''' ,'''Virtues are acquired through endeavor, which rests wholly upon yourself.''' ,'''If you want to be found stand where the seeker seeks.''' ,'''I have frequently noticed in myself a tendency to a diffuse style; a disposition to push my metaphors too far, employing a multitude of words to heighten the patness of the image, and so making of it a conceit rather than a metaphor, a fault copiously illustrated in the poetry of Cowley, Waller, Donne, and others of that ilk.''' ,'''If a man made himself an expert in any particular branch of human activity, there would result the strong tendency that a peculiar aptitude towards the same branch would be found among some of his descendants.''' ,]
++++

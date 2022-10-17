@@ -1,0 +1,8 @@
++++
+author = "Pete Earley"
+title = "Pete Earley Quotes"
+quotes_len = "7"
+description = "the best 7 Pete Earley Quotes"
+keywords = "pete earley,pete earley quotes,pete earley quote,pete earley sayings,pete earley saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''Unfortunately, we force people to break the law in order to get any kind of mental health treatment.''' ,'''Having been a journalist for thirty-nine years, I've developed a pretty thick skin.''' ,'''Sometimes I feel the only way I can get a major publisher interested in mental illness is if I find a character who has bipolar disorder and is also a love-sick vampire attending an English school called Hogwarts. But I'm not giving up.''' ,'''People with mental illnesses are dying on our streets. More than 350,000 are in jails and prisons. Most are people whose only real crime is they got sick.''' ,'''I think that some of the greatest muckrakers and some of the greatest investigative journalists of all time had strong feelings about civil rights. There is a role for the journalist-advocate. And as long as you play your cards on the table, I think that's a role that we should allow.''' ,'''Our health care system squanders money because it is designed to react to emergencies. Homeless shelters, hospital emergency rooms, jails, prisons - these are expensive and ineffective ways to intervene and there are people who clearly profit from this cycle of continued suffering.''' ,'''Mental illnesses are so frightening and there's so much ignorance about them that I think it comforts people to think, 'Oh, well, it happens to these people because they deserve it.'''' ,]
++++

@@ -1,0 +1,8 @@
++++
+author = "Yasmine Al Masri"
+title = "Yasmine Al Masri Quotes"
+quotes_len = "11"
+description = "the best 11 Yasmine Al Masri Quotes"
+keywords = "yasmine al masri,yasmine al masri quotes,yasmine al masri quote,yasmine al masri sayings,yasmine al masri saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''In TV, you don't know everything. The writers only give you scripts before you shoot the episodes. They keep you on your nerve.''' ,'''I never had planned for my life and my career.''' ,'''I am especially fascinated with mermaids, and they are always coming out in pirate stories.''' ,'''Although I come from a family who are Muslim - my mother is Egyptian, my father is Palestinian - my mother only puts a veil on her head when she has a bad hair day.''' ,'''To be a veiled Muslim woman on screen is a very scary minefield for me.''' ,'''I have a baby that is 21 months old, and I watch Disney Junior with him. A lot of those shows are about pirates. Even the T-shirts and pajamas I buy for him have pirate themes like, 'Aye-aye, argh and mate.' But, I definitely grew up watching pirates.''' ,'''I am a contradiction myself. I'm always looking for something that scares me because when I'm not scared, I'm not stimulated.''' ,'''I didn't want to be an actress. I wasn't trying to be in film or an art gallery for me.''' ,'''I am part of this generation with 'Pirates of the Caribbean' and 'Peter Pan.' I think we all grew up in this culture of pirates.''' ,'''I think Hollywood makes the mistake of mixing all these identities and cultures, mostly from the Middle East.''' ,'''I come from a family of refugees. I'm used to surviving and going with the flow, and what happened to me was just life.''' ,]
++++

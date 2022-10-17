@@ -1,0 +1,8 @@
++++
+author = "Valerie Cruz"
+title = "Valerie Cruz Quotes"
+quotes_len = "8"
+description = "the best 8 Valerie Cruz Quotes"
+keywords = "valerie cruz,valerie cruz quotes,valerie cruz quote,valerie cruz sayings,valerie cruz saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''I'm Cuban, so I know a lot of people who act like vampires. But wait, vampires have to be invited to your house, so maybe they are nothing like Latinos!''' ,'''I would love to adopt a child from a Spanish speaking country, because I want to have Spanish in the home.''' ,'''The best thing I've learned is that you have to listen to your body, and you have to be your own physician. Don't ignore those little groaning aches and pains.''' ,'''With network, shows are pulled half the time after three episodes whether they're good or they're not good. It's a numbers game. With cable, they can take a lot more liberties.''' ,'''Stephen Moyer is probably the most gracious, gifted actor that I've met. He's really intelligent. He has a real sensitivity to his character, to scenes, to scripts.''' ,'''With 'Nip/Tuck,' I had never even done anything before I got on that show. They created that character for me. I was reading for something else.''' ,'''I think that Europeans in general have a more global view of the world because they are in such proximity to other countries that it enables them to travel and see other parts of the world.''' ,'''I eat tons of green veggies to keep my PH balance in check.''' ,]
++++

@@ -1,0 +1,8 @@
++++
+author = "Dan Byrd"
+title = "Dan Byrd Quotes"
+quotes_len = "7"
+description = "the best 7 Dan Byrd Quotes"
+keywords = "dan byrd,dan byrd quotes,dan byrd quote,dan byrd sayings,dan byrd saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''I had a pretty untraditional high school experience. I've been acting since I was very young.''' ,'''The more insight I get, the more scared I get of women in general.''' ,'''My only career strategy is to just not do anything that I have to be completely ashamed of afterwards! Whether it's TV or movies, I feel lucky to be working.''' ,'''When I was in high school, my parents had this power over me - if I ever lied or got caught doing something that I shouldn't be doing, then I would no longer be able to go to L.A. and continue to pursue the acting thing.''' ,'''I've heard this before from people: early 20s kind of screws with your head a little bit because you're transitioning into adulthood and actually becoming an adult with responsibilities and paying bills. So all of a sudden, it's like you're responsible now.''' ,'''The great thing about a name like 'Cougar Town' is that you hear it once and you remember it forever. It's a very 'loud' title. But there's a connection to the word 'cougar' that means a lot of people are going to be turned off right away by the title alone without even giving the show a chance.''' ,'''It's hard for me to listen to any actors whine or moan about anything acting-related because look at the world. We really have nothing to complain about. Just to be working is a blessing.''' ,]
++++

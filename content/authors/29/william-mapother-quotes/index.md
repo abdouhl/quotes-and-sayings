@@ -1,0 +1,8 @@
++++
+author = "William Mapother"
+title = "William Mapother Quotes"
+quotes_len = "10"
+description = "the best 10 William Mapother Quotes"
+keywords = "william mapother,william mapother quotes,william mapother quote,william mapother sayings,william mapother saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''I guess every actor has certain emotions they can access easier than others.''' ,'''I was an English major, so I love discussing possibilities and alternate theories.''' ,'''I can be a bit of a science geek. I tend more towards reading about brain science, neuroscience.''' ,'''In the summer of 2009, I was at the Shakespeare lab at the public theater in New York.''' ,'''I love sci-fi, especially when it thrives on a thought-provoking story, rather than explosions.''' ,'''I've made a number of independent films that didn't receive theatrical distribution, that a lot of people haven't heard of, and as a result, I've conditioned myself to go into small independent films with the expectation that they will not, and therefore, I have to find my reward elsewhere.''' ,'''If you think about filmmaking as an entire spectrum, starting with the writer and ending with maybe the marketing department, the actor's contribution is a rather slender band.''' ,'''I worked in script development, many years ago, and read a lot of scripts. Between that and the scripts I've read as an actor, and I'm a writer as well, I think I have a pretty good sense about whether the bones of a story are there and whether the structure is intact.''' ,'''I would not call myself Catholic anymore, but I went to 16 years of Catholic school: grade school, high school and college.''' ,'''I love classical music and often listen to symphonies or opera in the morning.''' ,]
++++

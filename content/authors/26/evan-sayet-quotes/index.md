@@ -1,0 +1,8 @@
++++
+author = "Evan Sayet"
+title = "Evan Sayet Quotes"
+quotes_len = "13"
+description = "the best 13 Evan Sayet Quotes"
+keywords = "evan sayet,evan sayet quotes,evan sayet quote,evan sayet sayings,evan sayet saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''Jews were asked when life begins. For them it's when they finally graduate medical school.''' ,'''Tony Rezko and Bill Ayers should lead the Democratic Party. They are the only Democrats with any convictions.''' ,'''Michelle Obama was asked when life begins. According to her it's when she and Barack take over the White House.''' ,'''Academics act like they are important, but when something is academic it is meaningless. People say, 'It's academic, now let's get work done.'''' ,'''We are not imperialists. We don't even try to take over Canada. It would be easy, although it might take a rear guard action to guard Anne Murray.''' ,'''At the Olympics in China, every color was represented... and that was just the drinking water.''' ,'''What Democrats call 'nuanced', most people refer to as 'stupidity.'''' ,'''First there was racism. Then liberals created institutional racism and coded racism. You can only hear it with a dog whistle.''' ,'''Mitt Romney is a true Mormon. John Edwards and Bill Clinton are not real Mormons. It was not 'Brigham Young' they were chanting. It was 'Bring 'em young.'''' ,'''Barack Obama has raised tons of money. That is what he means by being green.''' ,'''Jews don't care about ancient rivalries. We worry about humidity in Miami.''' ,'''I am tired of angry feminists. I like my women happy, gregarious... and bathed.''' ,'''Barack Obama says that we need to be humble toward terrorism. Yet he is the one we have been waiting for. That is humble?''' ,]
++++

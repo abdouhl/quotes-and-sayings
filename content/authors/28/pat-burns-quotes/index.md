@@ -1,0 +1,8 @@
++++
+author = "Pat Burns"
+title = "Pat Burns Quotes"
+quotes_len = "12"
+description = "the best 12 Pat Burns Quotes"
+keywords = "pat burns,pat burns quotes,pat burns quote,pat burns sayings,pat burns saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''I got hit with an octopus in Detroit one time. It was the most gross thing I've ever had happen. I got it right in the back of the neck; all the juice was coming down. It was awful.''' ,'''As for my career, I always said to my kids, 'you don't cry because it's over, you're happy because it happened.'''' ,'''I know my life is nearing its end and I accept that.''' ,'''They're trying to kill me before I'm dead. I come to Quebec to spend some time with my family and they say I'm dead.''' ,'''Excuse my voice - I don't have the thundering voice I used to have to get players going on the ice anymore.''' ,'''If one of my players ever wants to hit me, he better do it really hard because otherwise, I'll find a rock, a stick, or a piece of wood - and believe me, it's gonna be a brawl.''' ,'''Toronto was a great place to work, a fun place to work. People were so hockey-oriented, hockey-minded, without being too critical. In Montreal, they got downright nasty sometimes.''' ,'''The kids get cheated out of a lot of times with their dad. They were good about it.''' ,'''I believe in Wendel Clark. We want Wendel to be a prime-time player.''' ,'''Coaching the Bruins is like going bear hunting with a butter knife.''' ,'''I'm not an overly happy person. There are times when I'm happy, and that's usually in my private life.''' ,'''Coming to another hockey Mecca like Toronto makes you a better coach. I want to have fun again. I want to make it fun for everybody, and it's fun when you win.''' ,]
++++

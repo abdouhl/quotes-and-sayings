@@ -1,0 +1,8 @@
++++
+author = "David Mccallum"
+title = "David Mccallum Quotes"
+quotes_len = "11"
+description = "the best 11 David Mccallum Quotes"
+keywords = "david mccallum,david mccallum quotes,david mccallum quote,david mccallum sayings,david mccallum saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''I've never outgrown my childhood.''' ,'''People who know, know. The others, it really doesn't matter.''' ,'''In a few hundred years you have achieved in America what it took thousands of years to achieve in Europe.''' ,'''I didn't want to be famous. I just wanted to earn enough money to have a nice life and enjoy acting.''' ,'''I feel it's a person's duty to participate in the governing of the country in which he lives.''' ,'''Savor the mystery, Stephen, we don't get enough of them.''' ,'''Fear, conformity, immorality: these are heavy burdens. They drain us of creative energy. And when we are drained of creative energy, we do not create. We procreate, but we do not create.''' ,'''I think your life is governed not by the bricks or mortar around you, it's governed by who holds your hand and who spits in your eye.''' ,'''But so far as countries are concerned, I don't go to a place to see what's there, but who is there.''' ,'''If I had no family, my wife and I would lead a much more romantic and nomadic existence.''' ,'''We should learn to live and love our neighbors as ourselves for the sake of peace and progress.''' ,]
++++

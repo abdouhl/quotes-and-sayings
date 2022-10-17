@@ -1,0 +1,8 @@
++++
+author = "Danny Dyer"
+title = "Danny Dyer Quotes"
+quotes_len = "8"
+description = "the best 8 Danny Dyer Quotes"
+keywords = "danny dyer,danny dyer quotes,danny dyer quote,danny dyer sayings,danny dyer saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''I wasn't a bad kid. My dad left when I was young, so I didn't have much discipline, not that I'm making excuses. I was always out and about and had a good time as a kid, so I've done alright.''' ,'''There is never a right or wrong time to have kids; it happens for whatever reason, but you can have this paranoia: 'will I be able to do this, I'm not sure if I'm ready to have kids?'''' ,'''I've got quite a big fan base, and people like to see you do the same thing - that's why you get offered the same roles.''' ,'''There are a lot of bitter people out there who have got jobs that they hate and the key to life for me is doing something you love doing.''' ,'''I do walk with a bit of a swagger. I do swear a lot. And people are going to be offended by that. But in this PC world, you can't be honest.''' ,'''I don't know what's happened to me. I've got a bit more sophisticated in my old age. I like a bit of jasmine tea. I love it.''' ,'''I had a good upbringing, we didn't have any money, but there was a lot of love in my family.''' ,'''I don't think you can get any more working class than me. Everyone seems posh to me.''' ,]
++++

@@ -1,0 +1,8 @@
++++
+author = "Stefan Molyneux"
+title = "Stefan Molyneux Quotes"
+quotes_len = "8"
+description = "the best 8 Stefan Molyneux Quotes"
+keywords = "stefan molyneux,stefan molyneux quotes,stefan molyneux quote,stefan molyneux sayings,stefan molyneux saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''Since we own our bodies, we also inevitably own the effects of our actions, be they good or bad. If we own the effects of our actions, then clearly we own that which we produce, whether what we produce is a bow, or a book - or a murder.''' ,'''If you don't want to be a slave, stop acting like a slave.''' ,'''Deep down, I do not believe that there are any really good parents out there - the same way that I do not believe there were any really good doctors in the 10th century.''' ,'''I'm sure a few marriages broke up because of feminism; it doesn't make feminism a cult.''' ,'''Even if we did achieve what we wanted with a very small state, we'd just be resetting the clock back to 1776, and it would roll forward exactly the same way again.''' ,'''Trust is everything. If I didn't have trust, there would be no downloads, no show, and no business.''' ,'''If you look at America, which was the experiment of the smallest conceivable government, what grows out of that is the largest government the world has ever seen.''' ,'''What I'm talking about, what I strongly suggest to people, is that they should get closer to the people they're with.''' ,]
++++

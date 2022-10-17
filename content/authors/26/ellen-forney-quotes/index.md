@@ -1,0 +1,8 @@
++++
+author = "Ellen Forney"
+title = "Ellen Forney Quotes"
+quotes_len = "8"
+description = "the best 8 Ellen Forney Quotes"
+keywords = "ellen forney,ellen forney quotes,ellen forney quote,ellen forney sayings,ellen forney saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''A sense of electrical current was part of my own experience of being manic. The sensation that my mind was spinning and overheating would sometimes build to a sensation like an electrical short - a burst of light, a melting, or dissipating - and I'd get a metallic taste in my mouth, like when you lick a battery.''' ,'''For one thing, I don't think art needs to be about suffering; sometimes it really seems like it's only the art about pain that is interpreted as profound, and in my work for years I've really tried to deal with subjects that are substantial, not just fluffy, but presented in a more playful, approachable kind of way.''' ,'''I just really respond to comics. I find it a really exciting medium.''' ,'''The way I process things, they way I express myself, is in comics, just as poets process things that they are trying to understand.''' ,'''I had this sense that I was part of, sort of a lineage of artists and writers through history that have had mood disorders.''' ,'''I find that stability is good for my creativity.''' ,''''Marbles' really took so much and such a thorough effort from me that I was so happy to tie that up and have it feel satisfying.''' ,'''I think that Van Gogh is really the ultimate crazy artist that we all think of.''' ,]
++++

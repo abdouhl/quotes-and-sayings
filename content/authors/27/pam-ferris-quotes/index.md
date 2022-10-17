@@ -1,0 +1,8 @@
++++
+author = "Pam Ferris"
+title = "Pam Ferris Quotes"
+quotes_len = "10"
+description = "the best 10 Pam Ferris Quotes"
+keywords = "pam ferris,pam ferris quotes,pam ferris quote,pam ferris sayings,pam ferris saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''The older I get, the less I know. By that I mean the less I am sure of. I view people with strong opinions on the big stuff with distrust. I don't think we should have certain certainties on faith and politics; I think we should be open-minded.''' ,'''My dad died when he was 60. I was only 17 and I think, psychologically, that had a huge impact on me, probably more than I realised.''' ,'''Some people find that if they share a profession with their partner, they don't talk about anything else.''' ,'''Girls shouldn't throw away their lives. They have the opportunity to not have 25 children - to make something of themselves, and use their brains and creativity. I'm just thrilled about that.''' ,'''I think fractures in your childhood make you observe the world more as an outsider. Possibly it pushes you outside.''' ,'''I don't get self-conscious. I'm not vain in that way.''' ,'''I was obsessed with work in my youth. It's why I didn't get married until I was 38 and the reason I didn't have kids.''' ,'''Grief is a terrible, painful place. You can't grind away on grief in a solid way and say, 'I'm going to work on this until it's over' because it will be with you for the rest of your life, whatever you do. So, you deal with it and move on.''' ,'''I think I would have had trouble living with someone who didn't know what it was like to be an actor.''' ,'''I'm a professional actor, not a celebrity.''' ,]
++++

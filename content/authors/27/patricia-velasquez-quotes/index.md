@@ -1,0 +1,8 @@
++++
+author = "Patricia Velasquez"
+title = "Patricia Velasquez Quotes"
+quotes_len = "16"
+description = "the best 16 Patricia Velasquez Quotes"
+keywords = "patricia velasquez,patricia velasquez quotes,patricia velasquez quote,patricia velasquez sayings,patricia velasquez saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''I used to be a dancer, and for me it was a really good combination of dance and acting.''' ,'''There was a time when I used to live in Spain that it went really crazy with drugs and stuff like that.''' ,'''So struggling for work here has been very good for me, but it's also been very hard to handle rejection.''' ,'''If I need something, even a pair of socks, my assistant has to get them for me.''' ,'''I think if I could have a boyfriend like my brothers I'd be really happy. But without the brother thing.''' ,'''If there is one creature that represents my essence, it's butterflies.''' ,'''You need a routine, to be able to spend some time with a person, and my lifestyle is constantly on the move.''' ,'''Clothes, thank God I can get them from designers.''' ,'''Always work hard, be honest, and be proud of who you are.''' ,'''Thank God I had all these family values or who knows where I'd be now.''' ,'''I have no doubt I was someone very interesting in a past life.''' ,'''I enjoyed working as a model a lot as it let me travel and I got to do some really interesting projects.''' ,'''Every time you play a bad girl or guy in a movie, you really come from a place of pain.''' ,'''I live in New York and I was only there for 2 weeks all last year.''' ,'''OK, I've been very wild, but I've never really been the sort of person who goes that crazy!''' ,'''It takes one person to give you a big chance.''' ,]
++++

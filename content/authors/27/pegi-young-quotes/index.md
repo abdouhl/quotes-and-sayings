@@ -1,0 +1,8 @@
++++
+author = "Pegi Young"
+title = "Pegi Young Quotes"
+quotes_len = "12"
+description = "the best 12 Pegi Young Quotes"
+keywords = "pegi young,pegi young quotes,pegi young quote,pegi young sayings,pegi young saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''In the immediate aftermath of the separation I just wrote and wrote and wrote. And wrote and wrote and wrote. Thank God I had that as an outlet.''' ,'''But I like the small places myself. I mean, you know you can really feel it, and for me the music just goes really well in the smaller places.''' ,'''I'm certainly not the only person to have gone through a divorce. I'm not the only person who's had heartbreak.''' ,'''Be authentic, be true, sing what's in your heart.''' ,'''You know, when you break it down, 'Broken Vows' is, if anything, more about my parents divorce. And 'Starting Over' was written after I went to a funeral.''' ,'''I had to figure out at 61 years of age: 'Holy moly! Who am I?'''' ,'''But you know, I really like to present the songs on an album as a story, as something thematic, rather than something you'd put on a random shuffle.''' ,'''I was on my own for a long time before I married Neil, and now I'm on my own again. I've kind of gotten over the separation and divorce. I'm capable. I can do this.''' ,'''It's not about making it perfect, it's about letting it be real, sometimes raw and flawed, as long as it's true.''' ,'''I came into my own, you might say, in terms of putting out my first record quite late in life. And yet there's some authors and photographers and even probably recording artists that didn't really hit their stride until their mid-50s.''' ,'''Loss and heartbreak are pretty universal.''' ,'''Take the high road, that's my approach.''' ,]
++++

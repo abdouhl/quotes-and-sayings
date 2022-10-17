@@ -1,0 +1,8 @@
++++
+author = "Georgie Henley"
+title = "Georgie Henley Quotes"
+quotes_len = "9"
+description = "the best 9 Georgie Henley Quotes"
+keywords = "georgie henley,georgie henley quotes,georgie henley quote,georgie henley sayings,georgie henley saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''My mother treats me exactly the same as she has always done, and the same as my older sisters. She tells me off when I need it, and sometimes I do need telling to go to my room or to do my homework.''' ,'''I really look up to people who experiment in all areas and I think Johnny Depp is a really good actor to look up to because he's done so many genres of films.''' ,'''I really love school, but I'd love to continue acting jobs if I can.''' ,'''I have confidence in my personality, because I think that if I talk to people hopefully they will like me, but I don't have confidence in my body.''' ,'''I'll watch anything as long as it's good. I can't choose just one movie that I love.''' ,'''Filming is a very adult world, and you need to be with people your own age.''' ,'''I like individuality in fashion - it annoys me when celebrities put on a bodycon dress and a pair of high heels and suddenly they are 'style icons.'''' ,'''I am definitely not into the exposed look. I am not one of those people who flashes their stomach or anything like that, because I don't have the confidence.''' ,'''Cheese and jam are really nice. Cheese and apple as well. Cheese and grapes are good.''' ,]
++++

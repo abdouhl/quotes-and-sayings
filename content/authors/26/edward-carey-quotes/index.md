@@ -1,0 +1,8 @@
++++
+author = "Edward Carey"
+title = "Edward Carey Quotes"
+quotes_len = "7"
+description = "the best 7 Edward Carey Quotes"
+keywords = "edward carey,edward carey quotes,edward carey quote,edward carey sayings,edward carey saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''Part of the joy of writing for kids is that you have to have a real adventure story. You can get really involved in the fantastic in a way that perhaps you can't so much in adult fiction.''' ,'''An ideal reader is someone who doesn't know what on Earth you've been doing, who will look at it with absolute freshness and go, 'Oh, so that's what you've been up to.'''' ,'''I had a very happy childhood. But I was sent off to boarding school at quite a young age, this massive Victorian house that was suffocated in ivy. I think there is a part of that school in 'Heap House.'''' ,'''Every new writing project, every new artistic project, needs to be protected so it can grow on its own before it begins to creep out into the world.''' ,'''I inhaled Dickens as a kid, and I've always been fascinated by the Victorians. So many ridiculous objects they had! They created things like mustache cups, so you wouldn't wet your mustache when you were drinking tea. And eyebrow combs. What's happened to all the eyebrow combs? Marvelous things.''' ,'''Fairy tales, before they were sanitized, were very dark, and kids love that. 'Coraline' by Neil Gaiman feels like Beckett for kids. I think there's plenty of room for that. And I think there's a danger of being too patronizing to children, having things too sanitized.''' ,'''I was sent to Naval School when I was young, and it didn't do me any good in any other form, but it made me get up in the morning.''' ,]
++++

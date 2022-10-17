@@ -1,0 +1,8 @@
++++
+author = "Wendie Malick"
+title = "Wendie Malick Quotes"
+quotes_len = "7"
+description = "the best 7 Wendie Malick Quotes"
+keywords = "wendie malick,wendie malick quotes,wendie malick quote,wendie malick sayings,wendie malick saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''I don't know how many times I can sit there and talk about my character or my life. It's interesting to talk about experiences in the context of something you're doing for somebody else, and particularly if you can persuade others to join you in your support.''' ,'''The whole publicity machine is a very weird one. It's kind of a necessary part of what we do here, but this helps me keep grounded.''' ,'''Every time you get something, give something away.''' ,'''They talked about me as if I were Mother Teresa, and that every time I get a paycheck I go and send it to poor people and that we spend every free moment helping out people less fortunate. That was an enormous exaggeration.''' ,'''It was a matter of survival for the local people, but it was the most violent scene I have ever witnessed. The people in my group, feeling helpless, were all spellbound and aghast at the same time. I became a vegetarian shortly after that.''' ,'''I feel that I have such an abundance in my life, and once you've seen how many people suffer and how little it takes for you to actually change their lives for the better, it's hard not to do something.''' ,'''I think there is something for all of us where you find a balance in your life, where you feel that everything you do isn't about your own creature comforts or satisfying your own appetites. Some of it has to be directed outward and there is a huge satisfaction in that.''' ,]
++++

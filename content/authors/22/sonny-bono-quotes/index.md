@@ -1,0 +1,8 @@
++++
+author = "Sonny Bono"
+title = "Sonny Bono Quotes"
+quotes_len = "13"
+description = "the best 13 Sonny Bono Quotes"
+keywords = "sonny bono,sonny bono quotes,sonny bono quote,sonny bono sayings,sonny bono saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''What is qualified? What have I been qualified for in my life? I haven't been qualified to be a mayor. I'm not qualified to be a songwriter. I'm not qualified to be a TV producer. I'm not qualified to be a successful businessman. And so, I don't know what qualified means.''' ,'''I'm not homophobic, I'm not a bigot, I'm not pandering to hatred.''' ,'''Don't cling to fame. You're just borrowing it. It's like money. You're going to die, and somebody else is going to get it.''' ,'''I feel kind of like the black sheep in Congress, but here I am.''' ,'''Cher wanted to be an entertainer more than I've seen anybody want to be an entertainer in my life.''' ,'''I'm a maverick. I've always been a maverick.''' ,'''With all due respect to lawyers, it's wonderful that you have this intricate knowledge. You break down words to the nth degree. And sometimes I find it rather disgusting. And it goes on and on.''' ,'''We all love the environment, but we have placed creatures above people. A rat is a rat.''' ,'''We'll have all the same players... We'll be missing one, actually.''' ,'''I'm not a lawyer, and maybe I should have used more specific legal language.''' ,'''People underestimate me, but I've always been a stretch runner.''' ,'''People have said to me, You can't write songs. You can't play an instrument. But I've got 10 gold records.''' ,'''If anybody ever dares to compare Bob Dole to Clinton, then they're comparing a criminal to an honest man.''' ,]
++++

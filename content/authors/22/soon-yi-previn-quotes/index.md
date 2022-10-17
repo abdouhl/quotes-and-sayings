@@ -1,0 +1,8 @@
++++
+author = "Soon-Yi Previn"
+title = "Soon-Yi Previn Quotes"
+quotes_len = "12"
+description = "the best 12 Soon-Yi Previn Quotes"
+keywords = "soon-yi previn,soon-yi previn quotes,soon-yi previn quote,soon-yi previn sayings,soon-yi previn saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''I fought for my survival since infancy.''' ,'''To think that Woody was in any way a father or stepfather to me is laughable.''' ,'''I was never interested in writing a 'Mommie Dearest,' getting even with Mia - none of that.''' ,'''Woody says I can make jokes, but I don't get them - I'm always looking deeper for the meanings.''' ,'''I came to America when I was 7.''' ,'''I have a terrific relationship with Woody and realize it's full of dramatic overtones, but it's really quite simple. It revolves around conversations, film talk, sports talk, books, and art.''' ,'''There is no question I owe Mia a great deal for adopting me. For that gesture, I still love her.''' ,'''When I first got friendly with Woody, he and Mia were finished with their romance and were just friends. I think Mia would have been just as angry if he had taken up with another actress or his secretary.''' ,'''My parents are Andre Previn and Mia, but obviously, they're not even my real parents.''' ,'''I was always mature for my age.''' ,'''Please don't try and dramatize my relationship with Woody Allen. He was never any kind of father figure to me.''' ,'''I don't think Mia should go on adopting children, and I think that all her adoptions should have been a warning signal to Woody when he met her.''' ,]
++++

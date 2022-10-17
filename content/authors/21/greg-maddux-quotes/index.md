@@ -1,0 +1,8 @@
++++
+author = "Greg Maddux"
+title = "Greg Maddux Quotes"
+quotes_len = "12"
+description = "the best 12 Greg Maddux Quotes"
+keywords = "greg maddux,greg maddux quotes,greg maddux quote,greg maddux sayings,greg maddux saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''I don't care if we're out of it or not, if I've got a chance to pitch, I want to.''' ,'''I know I don't throw very hard anymore, but I'd like to think I can still hurt a guy who's not looking.''' ,'''The reason I think I'm a good pitcher is I locate my fastball and I change speeds. Period. That's what you do to pitch. That's what pitchers have to do to win games.''' ,'''If they want me I'd love to come back. I'm not going to play because I can, I'm going to play because I deserve it.''' ,'''The dirt was OK, but once you hit the grass... Wet grass is slippery.''' ,'''I take golf trips with my brother or with friends. We usually go to Pebble or Bandon Dunes. One year we went to Hawaii.''' ,'''I only know one way to pitch. I really do.''' ,'''I daydream just like everybody else. I just do it with my body facing the field, so everybody thinks I'm paying attention.''' ,'''I was under the impression I had signed a three-year contract. I want to be back. I expect to be back. I will be back.''' ,'''I look forward to another good year next year. It would be nice to win, too.''' ,'''I don't believe for one second that the eye surgery has helped me on the mound.''' ,'''I would love to try to win another game. Obviously, it's more fun when you win. I'd rather try and not win than not try at all.''' ,]
++++

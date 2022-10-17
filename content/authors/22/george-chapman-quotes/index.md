@@ -1,0 +1,8 @@
++++
+author = "George Chapman"
+title = "George Chapman Quotes"
+quotes_len = "17"
+description = "the best 17 George Chapman Quotes"
+keywords = "george chapman,george chapman quotes,george chapman quote,george chapman sayings,george chapman saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''For one heat, all know, doth drive out another, One passion doth expel another still.''' ,'''They're only truly great who are truly good.''' ,'''An Englishman, being flattered, is a lamb; threatened, a lion.''' ,'''Ignorance is the mother of admiration.''' ,'''I am ashamed the law is such an ass.''' ,'''Advice is seldom welcome; and those who want it the most always like it the least.''' ,'''Be free all worthy spirits, and stretch yourselves, for greatness and for height.''' ,'''Extremes, though contrary, have the like effects. Extreme heat kills, and so extreme cold: extreme love breeds satiety, and so extreme hatred; and too violent rigor tempts chastity, as does too much license.''' ,'''Who to himself is law, no law doth need, offends no law, and is a king indeed.''' ,'''Flatterers look like friends, as wolves like dogs.''' ,'''Promise is most given when the least is said.''' ,'''He that shuns trifles must shun the world.''' ,'''Pure innovation is more gross than error.''' ,'''Let no man under value the price of a virtuous woman's counsel.''' ,'''We inherit nothing truly, but what our actions make us worthy of.''' ,'''And let a scholar all earth's volumes carry, he will be but a walking dictionary: a mere articulate clock.''' ,'''Young men think old men are fools; but old men know young men are fools.''' ,]
++++

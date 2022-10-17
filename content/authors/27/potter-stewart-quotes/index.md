@@ -1,0 +1,8 @@
++++
+author = "Potter Stewart"
+title = "Potter Stewart Quotes"
+quotes_len = "12"
+description = "the best 12 Potter Stewart Quotes"
+keywords = "potter stewart,potter stewart quotes,potter stewart quote,potter stewart sayings,potter stewart saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''It must always be remembered that what the Constitution forbids is not all searches and seizures, but unreasonable searches and seizures.''' ,'''Swift justice demands more than just swiftness.''' ,'''The 4th Amendment and the personal rights it secures have a long history. At the very core stands the right of a man to retreat into his own home and there be free from unreasonable governmental intrusion.''' ,'''Ethics is knowing the difference between what you have a right to do and what is right to do.''' ,'''To force a lawyer on a defendant can only lead him to believe that the law contrives against him.''' ,'''Censorship reflects a society's lack of confidence in itself.''' ,'''A person's mere propinquity to others independently suspected of criminal activity does not give rise to probable cause to search that person.''' ,'''Fairness is what justice really is.''' ,'''I shall not today attempt further to define the kinds of material but I know it when I see it.''' ,'''The dichotomy between personal liberties and property rights is a false one. Property does not have rights. People have rights.''' ,'''Abortion is inherently different from other medical procedures because no other procedure involves the purposeful termination of a potential life.''' ,'''In fact, a fundamental interdependence exists between the personal right to liberty and the personal right to property.''' ,]
++++

@@ -1,0 +1,8 @@
++++
+author = "Gerald Jampolsky"
+title = "Gerald Jampolsky Quotes"
+quotes_len = "11"
+description = "the best 11 Gerald Jampolsky Quotes"
+keywords = "gerald jampolsky,gerald jampolsky quotes,gerald jampolsky quote,gerald jampolsky sayings,gerald jampolsky saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''Through our willingness to help others we can learn to be happy rather than depressed.''' ,'''I can have peace of mind only when I forgive rather than judge.''' ,'''A truly creative person rids him or herself of all self-imposed limitations.''' ,'''When I am able to resist the temptation to judge others, I can see them as teachers of forgiveness in my life, reminding me that I can only have peace of mind when I forgive rather than judge.''' ,'''The best way to navigate through life is to give up all of our controls.''' ,'''You can be right or you can be happy.''' ,'''Other people do not have to change for us to experience peace of mind.''' ,'''Inner peace can be reached only when we practice forgiveness. Forgiveness is letting go of the past, and is therefore the means for correcting our misperceptions.''' ,'''Love is the total absence of fear. Love asks no questions. Its natural state is one of extension and expansion, not comparison and measurement.''' ,'''Peace of mind comes from not wanting to change others.''' ,'''Forgiveness means letting go of the past.''' ,]
++++

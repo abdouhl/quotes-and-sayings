@@ -1,0 +1,8 @@
++++
+author = "Diane English"
+title = "Diane English Quotes"
+quotes_len = "11"
+description = "the best 11 Diane English Quotes"
+keywords = "diane english,diane english quotes,diane english quote,diane english sayings,diane english saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''If you keep hearing the same thing over and over again from your fan base, you should pay attention to that. But that's just another bunch of loud voices in your ear. I would imagine it makes it very hard to stay in touch with your own gut. You try to think of it as just another episode, but that never works. It just isn't.''' ,'''I don't think there's anything wrong with feminist uplift. That's how we got credit cards in our own name.''' ,'''The writing of a series finale is horrible.''' ,'''I think people have a responsibility, if they write a letter, to make sure that they saw it themselves and it's not hearsay.''' ,'''The best stories come from real life.''' ,'''Women friends get me through the bumps in the road.''' ,'''In 1998, there was no social media. People were barely on the Internet. So I had no input from fans at all. Zero.''' ,'''In '39, they had no problem with it. But today, there's a huge issue with a movie that has no male movie stars.''' ,'''One has to develop a sense of humor to cope.''' ,'''I don't think it's more important to preserve female friendship than a marriage. But I think that there's a place for female friendship that's really important in the lives of all the women I know. As I've gotten older, it's become much more important to me.''' ,'''You have to be creative. It's the basics. You can't be Picasso unless you know how to draw a real face; then you can turn it upside down.''' ,]
++++

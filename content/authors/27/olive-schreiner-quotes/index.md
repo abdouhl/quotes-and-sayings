@@ -1,0 +1,8 @@
++++
+author = "Olive Schreiner"
+title = "Olive Schreiner Quotes"
+quotes_len = "10"
+description = "the best 10 Olive Schreiner Quotes"
+keywords = "olive schreiner,olive schreiner quotes,olive schreiner quote,olive schreiner sayings,olive schreiner saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''Everything has two sides - the outside that is ridiculous, and the inside that is solemn.''' ,'''Power! Did you ever hear of men being asked whether other souls should have power or not? It is born in them.''' ,'''Men are like the earth and we are the moon; we turn always one side to them, and they think there is no other, because they don't see it - but there is.''' ,'''It is finer to bring one noble human being into the world and rear it well... than to kill ten thousand.''' ,'''There was never a great man who had not a great mother.''' ,'''How hard it is to make your thoughts look anything but imbecile fools when you paint them with ink on paper.''' ,'''We were equals once when we lay new-born babes on our nurse's knees. We will be equal again when they tie up our jaws for the last sleep.''' ,'''Perhaps the old monks were right when they tried to root love out; perhaps the poets are right when they try to water it. It is a blood-red flower, with the color of sin; but there is always the scent of a god about it.''' ,'''No good work is ever done while the heart is hot and anxious and fretted.''' ,'''Our fathers had their dreams; we have ours; the generation that follows will have its own. Without dreams and phantoms man cannot exist.''' ,]
++++

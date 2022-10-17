@@ -1,0 +1,8 @@
++++
+author = "Dan Gelber"
+title = "Dan Gelber Quotes"
+quotes_len = "7"
+description = "the best 7 Dan Gelber Quotes"
+keywords = "dan gelber,dan gelber quotes,dan gelber quote,dan gelber sayings,dan gelber saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''At what point is someone precluded from availing themselves of the justification of self-defense because of their own poor judgment or bad behavior?''' ,'''A strong accountability system needs to broaden, not narrow, the curriculum. That cannot happen if you only have accountability without adequate school funding. Until Tallahassee understands the need to raise the bar as well as the financial investment, Florida will continue to celebrate mediocrity at the expense of true achievement.''' ,'''It can be difficult to run your own firm, but the trade off is fewer conflicts and more control.''' ,'''I'm Dan Gelber. As a federal prosecutor, I helped put away corporate criminals, corrupt politicians and violent gangs.''' ,'''Getting straight A's for having lots of tests is not the same as getting A's on the tests. Weighing a malnourished dog every day doesn't make him any better.''' ,'''While in the Florida legislature, I strongly opposed the Stand Your Ground law because I believed it would provide defenses to people who had created the scenarios they sought protection from. Or it would leave juries without the proper rules of engagement that ought govern predictable human interactions.''' ,'''Florida is one of the first states that sort of gives the legislature a very clear criteria for re-drawing electoral district maps. Basically, all the criteria do is tell the legislators that you can't draw a seat that helps yourself or a political party. That's really critical.''' ,]
++++

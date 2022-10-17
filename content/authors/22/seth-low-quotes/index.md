@@ -1,0 +1,8 @@
++++
+author = "Seth Low"
+title = "Seth Low Quotes"
+quotes_len = "6"
+description = "the best 6 Seth Low Quotes"
+keywords = "seth low,seth low quotes,seth low quote,seth low sayings,seth low saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''These are some of the things for which we believe the American people owe no little gratitude to the Dutch; and these are the things for which today, speaking in the name of the American people, we venture to express their heartfelt thanks.''' ,'''On this day, so full for Americans of thoughts connected with their National Independence, we may not forget that Americans have yet other grounds for gratitude to the people of the Netherlands.''' ,'''From you we have learned what we, at least, value, to separate Church and State; and from you we gather inspiration at all times in our devotion to learning, to religious liberty, and to individual and National freedom.''' ,'''The great city can teach something that no university by itself can altogether impart: a vivid sense of the largeness of human brotherhood, a vivid sense of man's increasing obligation to man; a vivid sense of our absolute dependence on one another.''' ,'''We cannot forget that our flag received its first foreign salute from a Dutch officer, nor that the Province of Friesland gave to our independence its first formal recognition.''' ,'''The United States of America have taken their name from the United States of the Netherlands.''' ,]
++++

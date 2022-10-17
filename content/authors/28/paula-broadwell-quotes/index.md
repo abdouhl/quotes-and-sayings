@@ -1,0 +1,8 @@
++++
+author = "Paula Broadwell"
+title = "Paula Broadwell Quotes"
+quotes_len = "7"
+description = "the best 7 Paula Broadwell Quotes"
+keywords = "paula broadwell,paula broadwell quotes,paula broadwell quote,paula broadwell sayings,paula broadwell saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''A few months into my research, General Petraeus, who was then leading Central Command, invited me to go for a run with him and his team along the Potomac River during one of his visits to Washington. I figured I could interview him while we ran.''' ,'''I introduced myself to then-Lieutenant General Petraeus and told him about my research interests; he gave me his card and offered to put me in touch with other researchers and service members working on the same issues.''' ,'''Even when you've made mistakes in life, you can still contribute and pick up the stuff and move on.''' ,'''I was driven when I was younger. Driven at West Point where it was much more competitive in that women were competing with men on many levels, and I was driven in the military and at Harvard, both competitive environments.''' ,'''Yes, I wear a number of hats. But my most important title is mom and wife.''' ,'''I grew up in a strong faith-based family. I think I have selected to return to those roots for strength, for my family, for myself and to protect our children and to forgive others and move on and face forward.''' ,'''I think it is important for working moms to recognize that family is the most important.''' ,]
++++

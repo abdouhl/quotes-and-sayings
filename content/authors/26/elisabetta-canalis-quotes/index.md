@@ -1,0 +1,8 @@
++++
+author = "Elisabetta Canalis"
+title = "Elisabetta Canalis Quotes"
+quotes_len = "12"
+description = "the best 12 Elisabetta Canalis Quotes"
+keywords = "elisabetta canalis,elisabetta canalis quotes,elisabetta canalis quote,elisabetta canalis sayings,elisabetta canalis saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''I am a firm believer in marriage. In the future I will be married.''' ,'''At the end of the day I have always seen the end of my relationships as a personal failure. There is nothing ever pretty in saying goodbye.''' ,'''I don't always have the stomach muscles I have, and I get cellulite as well like everyone else.''' ,'''Since I was a little kid, I was against fur. I never wore fur in my life.''' ,'''Sometimes when I flick through a magazine and see these thin models I'm left wondering what effect they can have on an insecure person. But I say to girls: forget what you see in the magazines, that is a world which has nothing to do with reality; think of it as a cartoon.''' ,'''I love variety in my life.''' ,'''In the past I would self destruct when it came to love - I was immature, throwing myself into things but now times have changed, I want a relationship where you understand the other person.''' ,'''I'm looking for men who can give me security.''' ,'''My maternal desires are fully satisfied with my dogs.''' ,'''American men are more open, they are readier to express their emotions, but they also get frightened easily. Italians are used to drama. For us, arguing, shouting is perfectly normal - for them it is inconceivable.''' ,'''I have always seen cold and controlled men as the right ones for me.''' ,'''I'm a bit of a tomboy, but when it comes to love I am a doormat.''' ,]
++++

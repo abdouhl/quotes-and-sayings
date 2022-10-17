@@ -1,0 +1,8 @@
++++
+author = "Samantha Mumba"
+title = "Samantha Mumba Quotes"
+quotes_len = "13"
+description = "the best 13 Samantha Mumba Quotes"
+keywords = "samantha mumba,samantha mumba quotes,samantha mumba quote,samantha mumba sayings,samantha mumba saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''I'm really starting to think everything happens for a reason.''' ,'''I'm not into the whole showbiz scene.''' ,'''But I've had to act and not depend on my voice so much.''' ,'''People watch me, waiting for me to slip up, so my privacy has gone - but that's a price you pay.''' ,'''I loved being behind the scenes and finding out how they make movies.''' ,'''But I'm not crazy about the designers like Prada and Gucci. I hate going into designer stores.''' ,'''All I say is that I don't go out with famous men.''' ,'''I'm having a great time. It's like I'm on some ridiculous big roller coaster not knowing what's happening next, but just having a great time on the ride.''' ,'''There are a lot of female artists my age around at the moment, but they're all American and blonde and blue-eyed and smiley. I'm totally the opposite of that. I want to show a bit more attitude and I have an opinion.''' ,'''When I'm out with a group I hide in the corner and get legless. I just make sure my friends shield me.''' ,'''All I want to do when I have time off is to have a laugh with my school friends and go down the pub.''' ,'''I'm very picky, and I'm never 100% happy with the work I do; I hate watching myself and hearing my voice.''' ,'''I'm based in London now. I'm renting an apartment, making my own little home. It's great because I am around people all the time and I need my own space to get away from it all.''' ,]
++++

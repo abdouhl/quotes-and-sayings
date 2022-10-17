@@ -1,0 +1,8 @@
++++
+author = "Sahara Davenport"
+title = "Sahara Davenport Quotes"
+quotes_len = "7"
+description = "the best 7 Sahara Davenport Quotes"
+keywords = "sahara davenport,sahara davenport quotes,sahara davenport quote,sahara davenport sayings,sahara davenport saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''What has helped me: There aren't a lot of girls who dance, who are as refined in dancing. That is what draws people to see me. The dance, and the prettiness.''' ,'''It's hard to make a living as an artist, period.''' ,'''At first it was like, 'I don't want to date no drag queen.' I guess it's considered taboo and funny. I always have to set my friends straight and say, 'We're two gay men, and that is why we're attracted to each other.' We don't kiss in drag usually, it messes up our lipstick. Sometimes I'll try, and she'll be like, 'Get away from me.'''' ,'''I became part of a drag family, which is where I got part of my last name, Davenport, from. I got the name Sahara from one of my favorite performers at that time, Sierra. I was like, 'I'm black, so I should be the African one, Sahara.'''' ,'''The New York scene is so much bigger than in Dallas.''' ,'''When I'm a lady, I'm a lady. Can you imagine walking into a men's room and seeing a beautiful goddess standing at the urinal? It would be as much uncomfortable for them as it is for us.''' ,'''I had to build my name here by doing talent nights, talent competitions and networking and meeting all the working girls and figure out how to work this animal of New York City.''' ,]
++++

@@ -1,0 +1,8 @@
++++
+author = "David Frost"
+title = "David Frost Quotes"
+quotes_len = "12"
+description = "the best 12 David Frost Quotes"
+keywords = "david frost,david frost quotes,david frost quote,david frost sayings,david frost saying,quotes, sayings,quote, saying, motivation"
+quotes = ['''Diplomacy, n. is the art of letting somebody else have your way.''' ,'''Don't aim for success if you want it; just do what you love and believe in, and it will come naturally.''' ,'''The most important advice you can give anyone about to appear on TV is incredibly prosaic - be yourself.''' ,'''If you don't have the smoking gun, then it's pointless to hector interviewees. Because you just shut people up instead of opening them up.''' ,'''Vote Labor, and you build castles in the air. Vote Conservative, and you can live in them.''' ,'''Being upbeat is the key to life.''' ,'''Having one child makes you a parent; having two, you are a referee.''' ,'''You often see politicians who try to put on a different persona; they think they should be more jolly or serious. Invariably, the persona they choose is worse than their own.''' ,'''Love is staying up all night with a sick child - or a healthy adult.''' ,'''Over the last half century the television interview has given us some of TV's most heart-stopping and memorable moments. On the surface it is a simple format - two people sitting across from one another having a conversation. But underneath it is often a power struggle - a battle for the psychological advantage.''' ,'''Television is an invention that permits you to be entertained in your living room by people you wouldn't have in your home.''' ,'''Love is when each person is more concerned for the other than for one's self.''' ,]
++++
