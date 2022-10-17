@@ -1,8 +1,0 @@
-+++
-author = "Henry James Sumner Maine"
-title = '''The ancient Roman code belongs to a class of which almost every civilised nation in the world can show a sample, and which, so far as the Roman and Hellenic worlds were concerned, were largely diffused over them at epochs not widely distant from one another.'''
-description = '''the best Henry James Sumner Maine Quote: The ancient Roman code belongs to a class of which almost every civilised nation in the world can show a sample, and which, so far as the Roman and Hellenic worlds were concerned, were largely diffused over them at epochs not widely distant from one another.'''
-slug = '''the-ancient-roman-code-belongs-to-a-class-of-which-almost-every-civilised-nation-in-the-world-can-show-a-sample-and-which-so-far-as-the-roman-and-hellenic-worlds-were-concerned-were-largely-diffused-over-them-at-epochs-not-widely-distant-from-one-another'''
-keywords = '''The ancient Roman code belongs to a class of which almost every civilised nation in the world can show a sample, and which, so far as the Roman and Hellenic worlds were concerned, were largely diffused over them at epochs not widely distant from one another.,henry james sumner maine,henry james sumner maine quotes,henry james sumner maine quote,henry james sumner maine sayings,henry james sumner maine saying,quotes, sayings,quote, saying, motivation'''
-+++
-The ancient Roman code belongs to a class of which almost every civilised nation in the world can show a sample, and which, so far as the Roman and Hellenic worlds were concerned, were largely diffused over them at epochs not widely distant from one another.
