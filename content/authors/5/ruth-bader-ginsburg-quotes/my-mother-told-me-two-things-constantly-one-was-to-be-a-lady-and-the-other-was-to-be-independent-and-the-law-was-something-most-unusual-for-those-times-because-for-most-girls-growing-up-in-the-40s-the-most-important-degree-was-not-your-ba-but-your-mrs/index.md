@@ -1,8 +1,0 @@
-+++
-author = "Ruth Bader Ginsburg"
-title = '''My mother told me two things constantly. One was to be a lady and the other was to be independent, and the law was something most unusual for those times because for most girls growing up in the '40s, the most important degree was not your B.A. but your M.R.S.'''
-description = '''the best Ruth Bader Ginsburg Quote: My mother told me two things constantly. One was to be a lady and the other was to be independent, and the law was something most unusual for those times because for most girls growing up in the '40s, the most important degree was not your B.A. but your M.R.S.'''
-slug = '''my-mother-told-me-two-things-constantly-one-was-to-be-a-lady-and-the-other-was-to-be-independent-and-the-law-was-something-most-unusual-for-those-times-because-for-most-girls-growing-up-in-the-40s-the-most-important-degree-was-not-your-ba-but-your-mrs'''
-keywords = '''My mother told me two things constantly. One was to be a lady and the other was to be independent, and the law was something most unusual for those times because for most girls growing up in the '40s, the most important degree was not your B.A. but your M.R.S.,ruth bader ginsburg,ruth bader ginsburg quotes,ruth bader ginsburg quote,ruth bader ginsburg sayings,ruth bader ginsburg saying,quotes, sayings,quote, saying, motivation'''
-+++
-My mother told me two things constantly. One was to be a lady and the other was to be independent, and the law was something most unusual for those times because for most girls growing up in the '40s, the most important degree was not your B.A. but your M.R.S.

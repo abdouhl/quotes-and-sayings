@@ -1,8 +1,0 @@
-+++
-author = "La'Porsha Renae"
-title = '''I have a lot of written material, and all of it's different. Some records that I have are country, some pop, some alternative rock. I just write what I feel, so I can't specifically say. I just want to be an artist of truth and an artist that stays true to herself.'''
-description = '''the best La'Porsha Renae Quote: I have a lot of written material, and all of it's different. Some records that I have are country, some pop, some alternative rock. I just write what I feel, so I can't specifically say. I just want to be an artist of truth and an artist that stays true to herself.'''
-slug = '''i-have-a-lot-of-written-material-and-all-of-its-different-some-records-that-i-have-are-country-some-pop-some-alternative-rock-i-just-write-what-i-feel-so-i-cant-specifically-say-i-just-want-to-be-an-artist-of-truth-and-an-artist-that-stays-true-to-herself'''
-keywords = '''I have a lot of written material, and all of it's different. Some records that I have are country, some pop, some alternative rock. I just write what I feel, so I can't specifically say. I just want to be an artist of truth and an artist that stays true to herself.,la'porsha renae,la'porsha renae quotes,la'porsha renae quote,la'porsha renae sayings,la'porsha renae saying,quotes, sayings,quote, saying, motivation'''
-+++
-I have a lot of written material, and all of it's different. Some records that I have are country, some pop, some alternative rock. I just write what I feel, so I can't specifically say. I just want to be an artist of truth and an artist that stays true to herself.
