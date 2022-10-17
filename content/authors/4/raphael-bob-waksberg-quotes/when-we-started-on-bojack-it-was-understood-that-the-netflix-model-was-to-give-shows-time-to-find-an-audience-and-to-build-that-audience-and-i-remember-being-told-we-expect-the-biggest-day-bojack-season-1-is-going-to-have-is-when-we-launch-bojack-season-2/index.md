@@ -1,8 +1,0 @@
-+++
-author = "Raphael Bob-Waksberg"
-title = '''When we started on 'BoJack,' it was understood that the Netflix model was to give shows time to find an audience, and to build that audience, and I remember being told, 'We expect the biggest day 'BoJack' Season 1 is going to have is when we launch 'BoJack' Season 2.''''
-description = '''the best Raphael Bob-Waksberg Quote: When we started on 'BoJack,' it was understood that the Netflix model was to give shows time to find an audience, and to build that audience, and I remember being told, 'We expect the biggest day 'BoJack' Season 1 is going to have is when we launch 'BoJack' Season 2.''''
-slug = '''when-we-started-on-bojack-it-was-understood-that-the-netflix-model-was-to-give-shows-time-to-find-an-audience-and-to-build-that-audience-and-i-remember-being-told-we-expect-the-biggest-day-bojack-season-1-is-going-to-have-is-when-we-launch-bojack-season-2'''
-keywords = '''When we started on 'BoJack,' it was understood that the Netflix model was to give shows time to find an audience, and to build that audience, and I remember being told, 'We expect the biggest day 'BoJack' Season 1 is going to have is when we launch 'BoJack' Season 2.',raphael bob-waksberg,raphael bob-waksberg quotes,raphael bob-waksberg quote,raphael bob-waksberg sayings,raphael bob-waksberg saying,quotes, sayings,quote, saying, motivation'''
-+++
-When we started on 'BoJack,' it was understood that the Netflix model was to give shows time to find an audience, and to build that audience, and I remember being told, 'We expect the biggest day 'BoJack' Season 1 is going to have is when we launch 'BoJack' Season 2.'

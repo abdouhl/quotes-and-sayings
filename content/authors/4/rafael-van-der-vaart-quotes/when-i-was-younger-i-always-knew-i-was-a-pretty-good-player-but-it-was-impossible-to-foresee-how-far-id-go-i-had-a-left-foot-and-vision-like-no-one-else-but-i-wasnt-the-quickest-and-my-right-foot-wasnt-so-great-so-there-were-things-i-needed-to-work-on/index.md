@@ -1,8 +1,0 @@
-+++
-author = "Rafael Van Der Vaart"
-title = '''When I was younger, I always knew I was a pretty good player, but it was impossible to foresee how far I'd go. I had a left foot and vision like no one else, but I wasn't the quickest and my right foot wasn't so great, so there were things I needed to work on.'''
-description = '''the best Rafael Van Der Vaart Quote: When I was younger, I always knew I was a pretty good player, but it was impossible to foresee how far I'd go. I had a left foot and vision like no one else, but I wasn't the quickest and my right foot wasn't so great, so there were things I needed to work on.'''
-slug = '''when-i-was-younger-i-always-knew-i-was-a-pretty-good-player-but-it-was-impossible-to-foresee-how-far-id-go-i-had-a-left-foot-and-vision-like-no-one-else-but-i-wasnt-the-quickest-and-my-right-foot-wasnt-so-great-so-there-were-things-i-needed-to-work-on'''
-keywords = '''When I was younger, I always knew I was a pretty good player, but it was impossible to foresee how far I'd go. I had a left foot and vision like no one else, but I wasn't the quickest and my right foot wasn't so great, so there were things I needed to work on.,rafael van der vaart,rafael van der vaart quotes,rafael van der vaart quote,rafael van der vaart sayings,rafael van der vaart saying,quotes, sayings,quote, saying, motivation'''
-+++
-When I was younger, I always knew I was a pretty good player, but it was impossible to foresee how far I'd go. I had a left foot and vision like no one else, but I wasn't the quickest and my right foot wasn't so great, so there were things I needed to work on.

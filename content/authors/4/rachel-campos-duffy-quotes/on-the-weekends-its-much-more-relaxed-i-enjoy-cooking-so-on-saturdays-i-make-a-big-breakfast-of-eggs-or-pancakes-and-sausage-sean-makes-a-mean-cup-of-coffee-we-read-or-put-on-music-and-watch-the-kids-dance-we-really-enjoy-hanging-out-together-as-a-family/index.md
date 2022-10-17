@@ -1,8 +1,0 @@
-+++
-author = "Rachel Campos-Duffy"
-title = '''On the weekends, it's much more relaxed. I enjoy cooking, so on Saturdays I make a big breakfast of eggs or pancakes, and sausage. Sean makes a mean cup of coffee. We read or put on music and watch the kids dance. We really enjoy hanging out together as a family.'''
-description = '''the best Rachel Campos-Duffy Quote: On the weekends, it's much more relaxed. I enjoy cooking, so on Saturdays I make a big breakfast of eggs or pancakes, and sausage. Sean makes a mean cup of coffee. We read or put on music and watch the kids dance. We really enjoy hanging out together as a family.'''
-slug = '''on-the-weekends-its-much-more-relaxed-i-enjoy-cooking-so-on-saturdays-i-make-a-big-breakfast-of-eggs-or-pancakes-and-sausage-sean-makes-a-mean-cup-of-coffee-we-read-or-put-on-music-and-watch-the-kids-dance-we-really-enjoy-hanging-out-together-as-a-family'''
-keywords = '''On the weekends, it's much more relaxed. I enjoy cooking, so on Saturdays I make a big breakfast of eggs or pancakes, and sausage. Sean makes a mean cup of coffee. We read or put on music and watch the kids dance. We really enjoy hanging out together as a family.,rachel campos-duffy,rachel campos-duffy quotes,rachel campos-duffy quote,rachel campos-duffy sayings,rachel campos-duffy saying,quotes, sayings,quote, saying, motivation'''
-+++
-On the weekends, it's much more relaxed. I enjoy cooking, so on Saturdays I make a big breakfast of eggs or pancakes, and sausage. Sean makes a mean cup of coffee. We read or put on music and watch the kids dance. We really enjoy hanging out together as a family.
