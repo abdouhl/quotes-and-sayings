@@ -1,8 +1,0 @@
-+++
-author = "Antony Johnston"
-title = '''Finishing something is the hardest part. You know it's not as good as you hoped. You know there are plot problems. You know that by finishing it, you're saying - even if only to yourself - 'This is the best I can do.' And because it's not perfect, that's really hard.'''
-description = '''the best Antony Johnston Quote: Finishing something is the hardest part. You know it's not as good as you hoped. You know there are plot problems. You know that by finishing it, you're saying - even if only to yourself - 'This is the best I can do.' And because it's not perfect, that's really hard.'''
-slug = '''finishing-something-is-the-hardest-part-you-know-its-not-as-good-as-you-hoped-you-know-there-are-plot-problems-you-know-that-by-finishing-it-youre-saying---even-if-only-to-yourself---this-is-the-best-i-can-do-and-because-its-not-perfect-thats-really-hard'''
-keywords = '''Finishing something is the hardest part. You know it's not as good as you hoped. You know there are plot problems. You know that by finishing it, you're saying - even if only to yourself - 'This is the best I can do.' And because it's not perfect, that's really hard.,antony johnston,antony johnston quotes,antony johnston quote,antony johnston sayings,antony johnston saying,quotes, sayings,quote, saying, motivation'''
-+++
-Finishing something is the hardest part. You know it's not as good as you hoped. You know there are plot problems. You know that by finishing it, you're saying - even if only to yourself - 'This is the best I can do.' And because it's not perfect, that's really hard.

@@ -1,8 +1,0 @@
-+++
-author = "Arnold Schwarzenegger"
-title = '''The last three or four reps is what makes the muscle grow. This area of pain divides the champion from someone else who is not a champion. That's what most people lack, having the guts to go on and just say they'll go through the pain no matter what happens.'''
-description = '''the best Arnold Schwarzenegger Quote: The last three or four reps is what makes the muscle grow. This area of pain divides the champion from someone else who is not a champion. That's what most people lack, having the guts to go on and just say they'll go through the pain no matter what happens.'''
-slug = '''the-last-three-or-four-reps-is-what-makes-the-muscle-grow-this-area-of-pain-divides-the-champion-from-someone-else-who-is-not-a-champion-thats-what-most-people-lack-having-the-guts-to-go-on-and-just-say-theyll-go-through-the-pain-no-matter-what-happens'''
-keywords = '''The last three or four reps is what makes the muscle grow. This area of pain divides the champion from someone else who is not a champion. That's what most people lack, having the guts to go on and just say they'll go through the pain no matter what happens.,arnold schwarzenegger,arnold schwarzenegger quotes,arnold schwarzenegger quote,arnold schwarzenegger sayings,arnold schwarzenegger saying,quotes, sayings,quote, saying, motivation'''
-+++
-The last three or four reps is what makes the muscle grow. This area of pain divides the champion from someone else who is not a champion. That's what most people lack, having the guts to go on and just say they'll go through the pain no matter what happens.

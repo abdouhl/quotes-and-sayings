@@ -1,8 +1,0 @@
-+++
-author = "Anja Niedringhaus"
-title = '''Things develop in front of my camera, and then I will try to do the best out of it. I am close, but in most of the scenes, I am trying not to be seen. I think that's the trick. I think it starts in your heart, goes to the head, and the head puts it into the finger.'''
-description = '''the best Anja Niedringhaus Quote: Things develop in front of my camera, and then I will try to do the best out of it. I am close, but in most of the scenes, I am trying not to be seen. I think that's the trick. I think it starts in your heart, goes to the head, and the head puts it into the finger.'''
-slug = '''things-develop-in-front-of-my-camera-and-then-i-will-try-to-do-the-best-out-of-it-i-am-close-but-in-most-of-the-scenes-i-am-trying-not-to-be-seen-i-think-thats-the-trick-i-think-it-starts-in-your-heart-goes-to-the-head-and-the-head-puts-it-into-the-finger'''
-keywords = '''Things develop in front of my camera, and then I will try to do the best out of it. I am close, but in most of the scenes, I am trying not to be seen. I think that's the trick. I think it starts in your heart, goes to the head, and the head puts it into the finger.,anja niedringhaus,anja niedringhaus quotes,anja niedringhaus quote,anja niedringhaus sayings,anja niedringhaus saying,quotes, sayings,quote, saying, motivation'''
-+++
-Things develop in front of my camera, and then I will try to do the best out of it. I am close, but in most of the scenes, I am trying not to be seen. I think that's the trick. I think it starts in your heart, goes to the head, and the head puts it into the finger.

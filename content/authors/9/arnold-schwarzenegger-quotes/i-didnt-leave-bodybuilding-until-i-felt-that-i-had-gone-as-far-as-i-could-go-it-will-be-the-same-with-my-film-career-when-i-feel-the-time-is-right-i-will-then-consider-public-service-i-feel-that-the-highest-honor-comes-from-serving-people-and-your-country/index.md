@@ -1,8 +1,0 @@
-+++
-author = "Arnold Schwarzenegger"
-title = '''I didn't leave bodybuilding until I felt that I had gone as far as I could go. It will be the same with my film career. When I feel the time is right, I will then consider public service. I feel that the highest honor comes from serving people and your country.'''
-description = '''the best Arnold Schwarzenegger Quote: I didn't leave bodybuilding until I felt that I had gone as far as I could go. It will be the same with my film career. When I feel the time is right, I will then consider public service. I feel that the highest honor comes from serving people and your country.'''
-slug = '''i-didnt-leave-bodybuilding-until-i-felt-that-i-had-gone-as-far-as-i-could-go-it-will-be-the-same-with-my-film-career-when-i-feel-the-time-is-right-i-will-then-consider-public-service-i-feel-that-the-highest-honor-comes-from-serving-people-and-your-country'''
-keywords = '''I didn't leave bodybuilding until I felt that I had gone as far as I could go. It will be the same with my film career. When I feel the time is right, I will then consider public service. I feel that the highest honor comes from serving people and your country.,arnold schwarzenegger,arnold schwarzenegger quotes,arnold schwarzenegger quote,arnold schwarzenegger sayings,arnold schwarzenegger saying,quotes, sayings,quote, saying, motivation'''
-+++
-I didn't leave bodybuilding until I felt that I had gone as far as I could go. It will be the same with my film career. When I feel the time is right, I will then consider public service. I feel that the highest honor comes from serving people and your country.

@@ -1,8 +1,0 @@
-+++
-author = "Anita Sarkeesian"
-title = '''The notion that gaming was not for women rippled out into society, until we heard it not just from the games industry, but from our families, teachers and friends. As a consequence, I, like many women, had a complicated, love-hate relationship with gaming culture.'''
-description = '''the best Anita Sarkeesian Quote: The notion that gaming was not for women rippled out into society, until we heard it not just from the games industry, but from our families, teachers and friends. As a consequence, I, like many women, had a complicated, love-hate relationship with gaming culture.'''
-slug = '''the-notion-that-gaming-was-not-for-women-rippled-out-into-society-until-we-heard-it-not-just-from-the-games-industry-but-from-our-families-teachers-and-friends-as-a-consequence-i-like-many-women-had-a-complicated-love-hate-relationship-with-gaming-culture'''
-keywords = '''The notion that gaming was not for women rippled out into society, until we heard it not just from the games industry, but from our families, teachers and friends. As a consequence, I, like many women, had a complicated, love-hate relationship with gaming culture.,anita sarkeesian,anita sarkeesian quotes,anita sarkeesian quote,anita sarkeesian sayings,anita sarkeesian saying,quotes, sayings,quote, saying, motivation'''
-+++
-The notion that gaming was not for women rippled out into society, until we heard it not just from the games industry, but from our families, teachers and friends. As a consequence, I, like many women, had a complicated, love-hate relationship with gaming culture.

@@ -1,8 +1,0 @@
-+++
-author = "Cameron Van Der Burgh"
-title = '''I'm trying to focus on the 100 and 200 breaststroke now. There's no point concentrating on the 50 when it's not in the Olympics. I'm not going to quit the 50 but it's not my priority any more. I'll do it but as part of my bid for gold at the other distances.'''
-description = '''the best Cameron Van Der Burgh Quote: I'm trying to focus on the 100 and 200 breaststroke now. There's no point concentrating on the 50 when it's not in the Olympics. I'm not going to quit the 50 but it's not my priority any more. I'll do it but as part of my bid for gold at the other distances.'''
-slug = '''im-trying-to-focus-on-the-100-and-200-breaststroke-now-theres-no-point-concentrating-on-the-50-when-its-not-in-the-olympics-im-not-going-to-quit-the-50-but-its-not-my-priority-any-more-ill-do-it-but-as-part-of-my-bid-for-gold-at-the-other-distances'''
-keywords = '''I'm trying to focus on the 100 and 200 breaststroke now. There's no point concentrating on the 50 when it's not in the Olympics. I'm not going to quit the 50 but it's not my priority any more. I'll do it but as part of my bid for gold at the other distances.,cameron van der burgh,cameron van der burgh quotes,cameron van der burgh quote,cameron van der burgh sayings,cameron van der burgh saying,quotes, sayings,quote, saying, motivation'''
-+++
-I'm trying to focus on the 100 and 200 breaststroke now. There's no point concentrating on the 50 when it's not in the Olympics. I'm not going to quit the 50 but it's not my priority any more. I'll do it but as part of my bid for gold at the other distances.

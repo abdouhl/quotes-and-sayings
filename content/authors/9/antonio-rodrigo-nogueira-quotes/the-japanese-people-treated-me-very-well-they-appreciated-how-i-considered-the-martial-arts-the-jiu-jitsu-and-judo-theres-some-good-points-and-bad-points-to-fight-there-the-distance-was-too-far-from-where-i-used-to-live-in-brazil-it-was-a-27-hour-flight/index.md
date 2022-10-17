@@ -1,8 +1,0 @@
-+++
-author = "Antonio Rodrigo Nogueira"
-title = '''The Japanese people treated me very well. They appreciated how I considered the martial arts, the jiu-jitsu and judo. There's some good points and bad points to fight there. The distance was too far from where I used to live in Brazil. It was a 27-hour flight.'''
-description = '''the best Antonio Rodrigo Nogueira Quote: The Japanese people treated me very well. They appreciated how I considered the martial arts, the jiu-jitsu and judo. There's some good points and bad points to fight there. The distance was too far from where I used to live in Brazil. It was a 27-hour flight.'''
-slug = '''the-japanese-people-treated-me-very-well-they-appreciated-how-i-considered-the-martial-arts-the-jiu-jitsu-and-judo-theres-some-good-points-and-bad-points-to-fight-there-the-distance-was-too-far-from-where-i-used-to-live-in-brazil-it-was-a-27-hour-flight'''
-keywords = '''The Japanese people treated me very well. They appreciated how I considered the martial arts, the jiu-jitsu and judo. There's some good points and bad points to fight there. The distance was too far from where I used to live in Brazil. It was a 27-hour flight.,antonio rodrigo nogueira,antonio rodrigo nogueira quotes,antonio rodrigo nogueira quote,antonio rodrigo nogueira sayings,antonio rodrigo nogueira saying,quotes, sayings,quote, saying, motivation'''
-+++
-The Japanese people treated me very well. They appreciated how I considered the martial arts, the jiu-jitsu and judo. There's some good points and bad points to fight there. The distance was too far from where I used to live in Brazil. It was a 27-hour flight.

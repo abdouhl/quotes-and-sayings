@@ -1,8 +1,0 @@
-+++
-author = "Anjelica Huston"
-title = '''I was very excited to do 'The Witches.' It was with one of my favorite directors, Nick Roeg, and I loved his work from 'Don't Look Now' and 'Eureka.' So I was very excited to work with him. The story was a very subversive fairy tale by Roald Dahl, and a fantastic part.'''
-description = '''the best Anjelica Huston Quote: I was very excited to do 'The Witches.' It was with one of my favorite directors, Nick Roeg, and I loved his work from 'Don't Look Now' and 'Eureka.' So I was very excited to work with him. The story was a very subversive fairy tale by Roald Dahl, and a fantastic part.'''
-slug = '''i-was-very-excited-to-do-the-witches-it-was-with-one-of-my-favorite-directors-nick-roeg-and-i-loved-his-work-from-dont-look-now-and-eureka-so-i-was-very-excited-to-work-with-him-the-story-was-a-very-subversive-fairy-tale-by-roald-dahl-and-a-fantastic-part'''
-keywords = '''I was very excited to do 'The Witches.' It was with one of my favorite directors, Nick Roeg, and I loved his work from 'Don't Look Now' and 'Eureka.' So I was very excited to work with him. The story was a very subversive fairy tale by Roald Dahl, and a fantastic part.,anjelica huston,anjelica huston quotes,anjelica huston quote,anjelica huston sayings,anjelica huston saying,quotes, sayings,quote, saying, motivation'''
-+++
-I was very excited to do 'The Witches.' It was with one of my favorite directors, Nick Roeg, and I loved his work from 'Don't Look Now' and 'Eureka.' So I was very excited to work with him. The story was a very subversive fairy tale by Roald Dahl, and a fantastic part.
