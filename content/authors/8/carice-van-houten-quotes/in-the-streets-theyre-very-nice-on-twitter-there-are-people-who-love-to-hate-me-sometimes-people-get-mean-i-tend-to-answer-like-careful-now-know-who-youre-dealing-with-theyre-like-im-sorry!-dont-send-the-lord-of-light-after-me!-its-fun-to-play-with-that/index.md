@@ -1,8 +1,0 @@
-+++
-author = "Carice Van Houten"
-title = '''In the streets, they're very nice. On Twitter, there are people who love to hate me. Sometimes people get mean. I tend to answer like, 'Careful now, know who you're dealing with...' They're like, 'I'm sorry! Don't send the Lord of Light after me!' It's fun to play with that.'''
-description = '''the best Carice Van Houten Quote: In the streets, they're very nice. On Twitter, there are people who love to hate me. Sometimes people get mean. I tend to answer like, 'Careful now, know who you're dealing with...' They're like, 'I'm sorry! Don't send the Lord of Light after me!' It's fun to play with that.'''
-slug = '''in-the-streets-theyre-very-nice-on-twitter-there-are-people-who-love-to-hate-me-sometimes-people-get-mean-i-tend-to-answer-like-careful-now-know-who-youre-dealing-with-theyre-like-im-sorry!-dont-send-the-lord-of-light-after-me!-its-fun-to-play-with-that'''
-keywords = '''In the streets, they're very nice. On Twitter, there are people who love to hate me. Sometimes people get mean. I tend to answer like, 'Careful now, know who you're dealing with...' They're like, 'I'm sorry! Don't send the Lord of Light after me!' It's fun to play with that.,carice van houten,carice van houten quotes,carice van houten quote,carice van houten sayings,carice van houten saying,quotes, sayings,quote, saying, motivation'''
-+++
-In the streets, they're very nice. On Twitter, there are people who love to hate me. Sometimes people get mean. I tend to answer like, 'Careful now, know who you're dealing with...' They're like, 'I'm sorry! Don't send the Lord of Light after me!' It's fun to play with that.
