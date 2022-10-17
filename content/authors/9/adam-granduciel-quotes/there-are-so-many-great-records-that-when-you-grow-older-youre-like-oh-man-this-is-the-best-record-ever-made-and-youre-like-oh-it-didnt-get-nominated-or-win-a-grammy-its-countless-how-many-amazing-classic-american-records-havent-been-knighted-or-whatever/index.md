@@ -1,8 +1,0 @@
-+++
-author = "Adam Granduciel"
-title = '''There are so many great records that when you grow older, you're like, 'Oh man, this is the best record ever made.' And you're like, 'Oh it didn't get nominated or win a Grammy.' It's countless, how many amazing, classic American records haven't been knighted or whatever.'''
-description = '''the best Adam Granduciel Quote: There are so many great records that when you grow older, you're like, 'Oh man, this is the best record ever made.' And you're like, 'Oh it didn't get nominated or win a Grammy.' It's countless, how many amazing, classic American records haven't been knighted or whatever.'''
-slug = '''there-are-so-many-great-records-that-when-you-grow-older-youre-like-oh-man-this-is-the-best-record-ever-made-and-youre-like-oh-it-didnt-get-nominated-or-win-a-grammy-its-countless-how-many-amazing-classic-american-records-havent-been-knighted-or-whatever'''
-keywords = '''There are so many great records that when you grow older, you're like, 'Oh man, this is the best record ever made.' And you're like, 'Oh it didn't get nominated or win a Grammy.' It's countless, how many amazing, classic American records haven't been knighted or whatever.,adam granduciel,adam granduciel quotes,adam granduciel quote,adam granduciel sayings,adam granduciel saying,quotes, sayings,quote, saying, motivation'''
-+++
-There are so many great records that when you grow older, you're like, 'Oh man, this is the best record ever made.' And you're like, 'Oh it didn't get nominated or win a Grammy.' It's countless, how many amazing, classic American records haven't been knighted or whatever.

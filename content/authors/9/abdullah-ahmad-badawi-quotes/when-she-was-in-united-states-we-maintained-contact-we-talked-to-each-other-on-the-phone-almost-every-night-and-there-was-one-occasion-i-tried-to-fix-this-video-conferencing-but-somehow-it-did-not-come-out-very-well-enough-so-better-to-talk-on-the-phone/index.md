@@ -1,8 +1,0 @@
-+++
-author = "Abdullah Ahmad Badawi"
-title = '''When she was in United States, we maintained contact, we talked to each other on the phone, almost every night. And there was one occasion I tried to fix this video conferencing but somehow it did not come out very well enough so better to talk on the phone.'''
-description = '''the best Abdullah Ahmad Badawi Quote: When she was in United States, we maintained contact, we talked to each other on the phone, almost every night. And there was one occasion I tried to fix this video conferencing but somehow it did not come out very well enough so better to talk on the phone.'''
-slug = '''when-she-was-in-united-states-we-maintained-contact-we-talked-to-each-other-on-the-phone-almost-every-night-and-there-was-one-occasion-i-tried-to-fix-this-video-conferencing-but-somehow-it-did-not-come-out-very-well-enough-so-better-to-talk-on-the-phone'''
-keywords = '''When she was in United States, we maintained contact, we talked to each other on the phone, almost every night. And there was one occasion I tried to fix this video conferencing but somehow it did not come out very well enough so better to talk on the phone.,abdullah ahmad badawi,abdullah ahmad badawi quotes,abdullah ahmad badawi quote,abdullah ahmad badawi sayings,abdullah ahmad badawi saying,quotes, sayings,quote, saying, motivation'''
-+++
-When she was in United States, we maintained contact, we talked to each other on the phone, almost every night. And there was one occasion I tried to fix this video conferencing but somehow it did not come out very well enough so better to talk on the phone.

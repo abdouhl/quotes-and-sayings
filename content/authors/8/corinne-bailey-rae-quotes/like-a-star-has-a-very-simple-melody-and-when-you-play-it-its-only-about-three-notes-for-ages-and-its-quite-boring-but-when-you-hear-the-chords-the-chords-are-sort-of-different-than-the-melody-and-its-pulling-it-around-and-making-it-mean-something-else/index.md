@@ -1,8 +1,0 @@
-+++
-author = "Corinne Bailey Rae"
-title = '''Like a Star' has a very simple melody, and when you play it, it's only about three notes for ages, and it's quite boring. But when you hear the chords, the chords are sort of different than the melody, and it's pulling it around and making it mean something else.'''
-description = '''the best Corinne Bailey Rae Quote: Like a Star' has a very simple melody, and when you play it, it's only about three notes for ages, and it's quite boring. But when you hear the chords, the chords are sort of different than the melody, and it's pulling it around and making it mean something else.'''
-slug = '''like-a-star-has-a-very-simple-melody-and-when-you-play-it-its-only-about-three-notes-for-ages-and-its-quite-boring-but-when-you-hear-the-chords-the-chords-are-sort-of-different-than-the-melody-and-its-pulling-it-around-and-making-it-mean-something-else'''
-keywords = '''Like a Star' has a very simple melody, and when you play it, it's only about three notes for ages, and it's quite boring. But when you hear the chords, the chords are sort of different than the melody, and it's pulling it around and making it mean something else.,corinne bailey rae,corinne bailey rae quotes,corinne bailey rae quote,corinne bailey rae sayings,corinne bailey rae saying,quotes, sayings,quote, saying, motivation'''
-+++
-Like a Star' has a very simple melody, and when you play it, it's only about three notes for ages, and it's quite boring. But when you hear the chords, the chords are sort of different than the melody, and it's pulling it around and making it mean something else.

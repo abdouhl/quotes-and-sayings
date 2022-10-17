@@ -1,8 +1,0 @@
-+++
-author = "Courtney A. Kemp"
-title = '''I worked at 'Mademoiselle,' and then it shut, and I worked at 'GQ' for three years, during which I was freelancing. I wrote for 'Vibe.' I did music reviews. I wrote for 'Time Out.' I was desperate to get into 'Entertainment Weekly' or 'New York Magazine.' Like, desperate.'''
-description = '''the best Courtney A. Kemp Quote: I worked at 'Mademoiselle,' and then it shut, and I worked at 'GQ' for three years, during which I was freelancing. I wrote for 'Vibe.' I did music reviews. I wrote for 'Time Out.' I was desperate to get into 'Entertainment Weekly' or 'New York Magazine.' Like, desperate.'''
-slug = '''i-worked-at-mademoiselle-and-then-it-shut-and-i-worked-at-gq-for-three-years-during-which-i-was-freelancing-i-wrote-for-vibe-i-did-music-reviews-i-wrote-for-time-out-i-was-desperate-to-get-into-entertainment-weekly-or-new-york-magazine-like-desperate'''
-keywords = '''I worked at 'Mademoiselle,' and then it shut, and I worked at 'GQ' for three years, during which I was freelancing. I wrote for 'Vibe.' I did music reviews. I wrote for 'Time Out.' I was desperate to get into 'Entertainment Weekly' or 'New York Magazine.' Like, desperate.,courtney a. kemp,courtney a. kemp quotes,courtney a. kemp quote,courtney a. kemp sayings,courtney a. kemp saying,quotes, sayings,quote, saying, motivation'''
-+++
-I worked at 'Mademoiselle,' and then it shut, and I worked at 'GQ' for three years, during which I was freelancing. I wrote for 'Vibe.' I did music reviews. I wrote for 'Time Out.' I was desperate to get into 'Entertainment Weekly' or 'New York Magazine.' Like, desperate.

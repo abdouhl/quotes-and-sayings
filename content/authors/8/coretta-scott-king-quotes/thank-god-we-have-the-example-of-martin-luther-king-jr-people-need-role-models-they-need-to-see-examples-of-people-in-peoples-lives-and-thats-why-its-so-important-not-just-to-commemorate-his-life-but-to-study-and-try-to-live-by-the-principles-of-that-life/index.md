@@ -1,8 +1,0 @@
-+++
-author = "Coretta Scott King"
-title = '''Thank God we have the example of Martin Luther King, Jr. People need role models. They need to see examples of people in peoples' lives, and that's why it's so important not just to commemorate his life, but to study and try to live by the principles of that life.'''
-description = '''the best Coretta Scott King Quote: Thank God we have the example of Martin Luther King, Jr. People need role models. They need to see examples of people in peoples' lives, and that's why it's so important not just to commemorate his life, but to study and try to live by the principles of that life.'''
-slug = '''thank-god-we-have-the-example-of-martin-luther-king-jr-people-need-role-models-they-need-to-see-examples-of-people-in-peoples-lives-and-thats-why-its-so-important-not-just-to-commemorate-his-life-but-to-study-and-try-to-live-by-the-principles-of-that-life'''
-keywords = '''Thank God we have the example of Martin Luther King, Jr. People need role models. They need to see examples of people in peoples' lives, and that's why it's so important not just to commemorate his life, but to study and try to live by the principles of that life.,coretta scott king,coretta scott king quotes,coretta scott king quote,coretta scott king sayings,coretta scott king saying,quotes, sayings,quote, saying, motivation'''
-+++
-Thank God we have the example of Martin Luther King, Jr. People need role models. They need to see examples of people in peoples' lives, and that's why it's so important not just to commemorate his life, but to study and try to live by the principles of that life.
