@@ -3,7 +3,23 @@
 {{ end }}
 
 {{ define "main" }}
-<div class="bg-white mt-8 container mx-auto p-4 w-11/12 md:w-9/12 lg:w-6/12 border-2 rounded-md">
-{{ .Title }}
+
+<div class="lg:flex lg:flex-row lg:gap-4 mt-8 full">
+<div class="mx-4 lg:basis-3/4">
+<div class="bg-white border-2 rounded-md  p-4 mb-4">
+  <ul class="divide-y divide-dashed">
+  {{- range .Params.quotes -}}
+    <li class="p-2">
+       <a class="title" href="#">{{ . }}</a>
+    </li>
+  {{- end -}}
+  </ul>
+</div>
+</div>
+<div class="sticky top-2 bg-white border-2 rounded-md  p-4 mx-4 lg:mx-0 lg:mr-4 lg:basis-1/4 max-h-64">
+<div>
+{{ partialCached "ads/s_ad.html" . }}
+</div>
+</div>
 </div>
 {{ end }}
