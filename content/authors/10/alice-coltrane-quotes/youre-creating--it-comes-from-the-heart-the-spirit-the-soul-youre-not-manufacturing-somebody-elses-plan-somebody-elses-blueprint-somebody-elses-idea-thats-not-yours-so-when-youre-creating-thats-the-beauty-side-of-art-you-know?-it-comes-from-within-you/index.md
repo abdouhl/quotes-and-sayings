@@ -1,8 +1,0 @@
-+++
-author = "Alice Coltrane"
-title = '''You're creating ' it comes from the heart, the spirit, the soul. You're not manufacturing somebody else's plan, somebody else's blueprint, somebody else's idea that's not yours. So when you're creating, that's the beauty side of art, you know? It comes from within you.'''
-description = '''the best Alice Coltrane Quote: You're creating ' it comes from the heart, the spirit, the soul. You're not manufacturing somebody else's plan, somebody else's blueprint, somebody else's idea that's not yours. So when you're creating, that's the beauty side of art, you know? It comes from within you.'''
-slug = '''youre-creating--it-comes-from-the-heart-the-spirit-the-soul-youre-not-manufacturing-somebody-elses-plan-somebody-elses-blueprint-somebody-elses-idea-thats-not-yours-so-when-youre-creating-thats-the-beauty-side-of-art-you-know?-it-comes-from-within-you'''
-keywords = '''You're creating ' it comes from the heart, the spirit, the soul. You're not manufacturing somebody else's plan, somebody else's blueprint, somebody else's idea that's not yours. So when you're creating, that's the beauty side of art, you know? It comes from within you.,alice coltrane,alice coltrane quotes,alice coltrane quote,alice coltrane sayings,alice coltrane saying,quotes, sayings,quote, saying, motivation'''
-+++
-You're creating ' it comes from the heart, the spirit, the soul. You're not manufacturing somebody else's plan, somebody else's blueprint, somebody else's idea that's not yours. So when you're creating, that's the beauty side of art, you know? It comes from within you.

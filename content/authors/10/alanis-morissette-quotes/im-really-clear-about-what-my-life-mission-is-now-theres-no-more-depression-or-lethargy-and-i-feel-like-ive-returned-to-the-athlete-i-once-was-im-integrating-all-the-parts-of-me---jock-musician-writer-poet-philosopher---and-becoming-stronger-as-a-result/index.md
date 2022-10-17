@@ -1,8 +1,0 @@
-+++
-author = "Alanis Morissette"
-title = '''I'm really clear about what my life mission is now. There's no more depression or lethargy, and I feel like I've returned to the athlete I once was. I'm integrating all the parts of me - jock, musician, writer, poet, philosopher - and becoming stronger as a result.'''
-description = '''the best Alanis Morissette Quote: I'm really clear about what my life mission is now. There's no more depression or lethargy, and I feel like I've returned to the athlete I once was. I'm integrating all the parts of me - jock, musician, writer, poet, philosopher - and becoming stronger as a result.'''
-slug = '''im-really-clear-about-what-my-life-mission-is-now-theres-no-more-depression-or-lethargy-and-i-feel-like-ive-returned-to-the-athlete-i-once-was-im-integrating-all-the-parts-of-me---jock-musician-writer-poet-philosopher---and-becoming-stronger-as-a-result'''
-keywords = '''I'm really clear about what my life mission is now. There's no more depression or lethargy, and I feel like I've returned to the athlete I once was. I'm integrating all the parts of me - jock, musician, writer, poet, philosopher - and becoming stronger as a result.,alanis morissette,alanis morissette quotes,alanis morissette quote,alanis morissette sayings,alanis morissette saying,quotes, sayings,quote, saying, motivation'''
-+++
-I'm really clear about what my life mission is now. There's no more depression or lethargy, and I feel like I've returned to the athlete I once was. I'm integrating all the parts of me - jock, musician, writer, poet, philosopher - and becoming stronger as a result.

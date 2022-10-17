@@ -1,8 +1,0 @@
-+++
-author = "Aishwarya Rai Bachchan"
-title = '''With each film, I get more and more involved and it's more and more time-consuming. Also, I like to break myths and people's preconceived ideas. My characters have always stood for something, have always had an opinion, although they've never really rebelled.'''
-description = '''the best Aishwarya Rai Bachchan Quote: With each film, I get more and more involved and it's more and more time-consuming. Also, I like to break myths and people's preconceived ideas. My characters have always stood for something, have always had an opinion, although they've never really rebelled.'''
-slug = '''with-each-film-i-get-more-and-more-involved-and-its-more-and-more-time-consuming-also-i-like-to-break-myths-and-peoples-preconceived-ideas-my-characters-have-always-stood-for-something-have-always-had-an-opinion-although-theyve-never-really-rebelled'''
-keywords = '''With each film, I get more and more involved and it's more and more time-consuming. Also, I like to break myths and people's preconceived ideas. My characters have always stood for something, have always had an opinion, although they've never really rebelled.,aishwarya rai bachchan,aishwarya rai bachchan quotes,aishwarya rai bachchan quote,aishwarya rai bachchan sayings,aishwarya rai bachchan saying,quotes, sayings,quote, saying, motivation'''
-+++
-With each film, I get more and more involved and it's more and more time-consuming. Also, I like to break myths and people's preconceived ideas. My characters have always stood for something, have always had an opinion, although they've never really rebelled.

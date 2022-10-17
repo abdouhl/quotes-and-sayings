@@ -1,8 +1,0 @@
-+++
-author = "Alexa Von Tobel"
-title = '''If you're trying to diet, what do you do? You grab your two friends and say, 'We're going to the gym; let's do this together.' Money shouldn't be any different. If you're trying to make progress, if you're trying to save more, we really need to be able to get support.'''
-description = '''the best Alexa Von Tobel Quote: If you're trying to diet, what do you do? You grab your two friends and say, 'We're going to the gym; let's do this together.' Money shouldn't be any different. If you're trying to make progress, if you're trying to save more, we really need to be able to get support.'''
-slug = '''if-youre-trying-to-diet-what-do-you-do?-you-grab-your-two-friends-and-say-were-going-to-the-gym-lets-do-this-together-money-shouldnt-be-any-different-if-youre-trying-to-make-progress-if-youre-trying-to-save-more-we-really-need-to-be-able-to-get-support'''
-keywords = '''If you're trying to diet, what do you do? You grab your two friends and say, 'We're going to the gym; let's do this together.' Money shouldn't be any different. If you're trying to make progress, if you're trying to save more, we really need to be able to get support.,alexa von tobel,alexa von tobel quotes,alexa von tobel quote,alexa von tobel sayings,alexa von tobel saying,quotes, sayings,quote, saying, motivation'''
-+++
-If you're trying to diet, what do you do? You grab your two friends and say, 'We're going to the gym; let's do this together.' Money shouldn't be any different. If you're trying to make progress, if you're trying to save more, we really need to be able to get support.
