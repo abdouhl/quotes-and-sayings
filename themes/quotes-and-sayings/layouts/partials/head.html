@@ -1,4 +1,5 @@
 {{ $img_twitter := .Resources.GetMatch "img_twitter.webp" }}
+{{ $image := .Resources.GetMatch "author_img.webp" }}
 <head>
     <meta name="robots" content="all">
     <meta charset="UTF-8">
@@ -52,6 +53,36 @@
     <script src='{{ "/js/lunr-languages/lunr.ar.min.js" | relURL }}'></script>
     {{ end }}
     {{ end }}
+    {{ if .IsPage }}
+    <script type="application/ld+json">
+    {
+      "@context": "https://schema.org/",
+      "@type": "BlogPosting",
+      "mainEntityOfPage": {
+        "@type": "WebPage",
+        "@id": "{{ .Permalink | absURL}}"
+      },
+      "headline": "{{ .Title }}",
+      "description": "{{ .Description }}",
+      "image": "{{ .Permalink | urlize}}{{ $image }}",
+      "author": {
+        "@type": "Person",
+        "name": "{{ .Params.author }}",
+        "url": ""
+      },
+      "publisher": {
+        "@type": "Organization",
+        "name": "{{ site.Title }}",
+        "logo": {
+          "@type": "ImageObject",
+          "url": "{{ "/images/logo.jpeg" | absURL }}"
+        }
+      },
+      "datePublished": ""
+    }
+    </script>
+    {{ end }}
+    
     <!-- Google Tag Manager -->
     <script>(function(w,d,s,l,i){w[l]=w[l]||[];w[l].push({'gtm.start':
     new Date().getTime(),event:'gtm.js'});var f=d.getElementsByTagName(s)[0],
