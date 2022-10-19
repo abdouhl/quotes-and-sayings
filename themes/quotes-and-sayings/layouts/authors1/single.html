@@ -3,6 +3,16 @@
 {{ end }}
 
 {{ define "main" }}
+{{ $image := .Resources.GetMatch "author_img.webp" }}
+<div class="mt-8 mx-4 bg-white border-2 rounded-md  flex flex-col items-center md:flex-row">
+{{ if $image}}
+<img class="object-fit cover w-full h-96 rounded-t-md md:h-auto md:w-48 md:rounded-none md:rounded-{{ substr .Site.Language.LanguageDirection 0 1 }}-md" src="{{ $image }}" alt="">
+{{ end }}
+    <div class="flex flex-col justify-between p-4 leading-normal">
+        <h1 class="mb-2 text-2xl font-bold tracking-tight text-gray-900 dark:text-white">{{- .Title -}}</h1>
+    </div>
+</div>
+
 
 <div class="lg:flex lg:flex-row lg:gap-4 mt-8 full">
 <div class="mx-4 lg:basis-3/4">
