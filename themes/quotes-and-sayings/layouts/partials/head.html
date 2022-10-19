@@ -6,21 +6,13 @@
     <meta name="viewport" content="width=device-width, initial-scale=1.0">
     {{ with .Keywords }}<meta name="keywords" content="{{ . }}">{{ end }}
     
-    {{ if .IsPage }}
-    <title>{{ .Params.author }} Quote</title>
-    <meta property="og:title" content="{{ .Params.author }} Quote" />
-    <meta name="twitter:title" content="{{ .Params.author }} Quote">
-    <meta name="description" content="{{ .Title }}">
-    <meta property="og:description" content="{{ .Title }}" />
-    <meta name="twitter:description" content="{{ .Title }}">
-    {{ else }}
     <title>{{ .Title }}</title>
     <meta property="og:title" content="{{ .Title }}" />
     <meta name="twitter:title" content="{{ .Title }}">
     <meta name="description" content="{{ .Description }}">
     <meta property="og:description" content="{{ .Description }}" />
     <meta name="twitter:description" content="{{ .Description }}">
-    {{ end }}
+
     
     
     
@@ -47,15 +39,19 @@
     <link rel="canonical" href="{{ .Permalink }}">
 
     <link rel="stylesheet" href="https://unpkg.com/flowbite@1.5.3/dist/flowbite.min.css" />
-
-
+    {{ $rlink := "" }}
+    {{ if (eq (substr (.Site.BaseURL | relLangURL) -1) "/") }}{{ $rlink = (.Site.BaseURL | relLangURL) }}{{ else }}{{ $rlink = print (.Site.BaseURL | relLangURL) "/" }}{{ end }}
     <script src="https://cdn.tailwindcss.com"></script>
-    {{ if eq .Permalink .Site.BaseURL }}
+
+    {{ if eq (.Permalink | relURL) $rlink }}
     <script src="https://code.jquery.com/jquery-3.1.1.min.js"
     integrity="sha256-hVVnYaiADRTO2PzUGmuLJr8BLUSjGIZsDYGmIJLv2b8=" crossorigin="anonymous"></script>
     <script src="https://unpkg.com/lunr/lunr.js"></script>
+    {{ if eq (.Permalink | relURL) "/ar/" }}
+    <script src='{{ "/js/lunr-languages/lunr.stemmer.support.js" | relURL }}'></script>
+    <script src='{{ "/js/lunr-languages/lunr.ar.js" | relURL }}'></script>
     {{ end }}
-    
+    {{ end }}
     <!-- Google Tag Manager -->
     <script>(function(w,d,s,l,i){w[l]=w[l]||[];w[l].push({'gtm.start':
     new Date().getTime(),event:'gtm.js'});var f=d.getElementsByTagName(s)[0],
@@ -65,6 +61,4 @@
     <!-- End Google Tag Manager -->   
     <script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-3610150616518651"
      crossorigin="anonymous"></script>
-     
 </head>
-

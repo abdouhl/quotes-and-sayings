@@ -7,7 +7,7 @@ var documents = [{{- range .Pages -}}
         {{- range .Pages -}}
       {{- range .Pages -}}
         {
-  "name": "{{ replace .Title " Quotes" ""}}",
+  "name": "{{ .Params.author }}",
   "index": "{{ $num }}",
   "link": "{{ .Params.externalLink | default .RelPermalink }}"
 },
@@ -25,7 +25,10 @@ var documents = [{{- range .Pages -}}
     console.log(default_search)
     var idx = lunr(function () {
   this.ref('index')
-
+  
+  {{ if eq (.Permalink | relURL) "/ar/" }}
+  this.use(lunr.ar);
+  {{ end }}
   this.field('name')
   
   

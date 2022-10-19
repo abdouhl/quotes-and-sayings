@@ -12,7 +12,7 @@
   <ul id='res'>
       {{- range first 50 $res -}}
         <li class='text-center py-1'>
-  <a class="title" href="{{ .Params.externalLink | default .RelPermalink }}">{{ replace .Title " Quotes" ""}}</a>
+  <a class="title" href="{{ .Params.externalLink | default .RelPermalink }}">{{ .Params.author }}</a>
   
 </li>
       {{- end -}}
