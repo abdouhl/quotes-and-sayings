@@ -1,0 +1,6 @@
+[keywords]
+other = "أقوال {{ .Params.author }}, حكم {{ .Params.author }}, مقولات {{ .Params.author }}, اقتباسات {{ .Params.author }}"
+[famous_authors]
+other = "مؤلفين مشهورين"
+[search_for_authors]
+other = "البخث عن مؤلفين"

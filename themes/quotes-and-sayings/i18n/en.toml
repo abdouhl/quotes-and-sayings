@@ -1,0 +1,6 @@
+[keywords]
+other = "{{ .Params.author }},{{ .Params.author }} quotes,{{ .Params.author }} quote,{{ .Params.author }} sayings,{{ .Params.author }} saying,quotes, sayings,quote, saying, motivation"
+[famous_authors]
+other = "Famous Authors"
+[search_for_authors]
+other = "Search for Authors"
