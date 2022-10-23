@@ -4,3 +4,5 @@ other = "{{ .Params.author }},{{ .Params.author }} quotes,{{ .Params.author }} q
 other = "Famous Authors"
 [search_for_authors]
 other = "Search for Authors"
+[all_rights_reserved]
+other = "© 2022 Abderrahmane HELLAL. All rights reserved."
