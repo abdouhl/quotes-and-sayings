@@ -3,6 +3,8 @@
 {{ end }}
 
 {{ define "main" }}
+
+
 {{ $image := .Resources.GetMatch "author_img.webp" }}
 <div class="mt-8 mx-4 bg-white border-2 rounded-md  flex flex-col items-center md:flex-row">
 {{ if $image}}
@@ -28,6 +30,53 @@
 </div>
 <div class="sticky top-2 bg-white border-2 rounded-md  p-4 mx-4 lg:mx-0 lg:mr-4 lg:basis-1/4 max-h-64">
 <div>
+<h3>Related Authors</h3>
+{{ $related_authors := newScratch }}
+{{ $related_authors.Set "related_authors" slice }}
+
+{{with .Next}}
+{{ $related_authors.Add "related_authors" ( dict "url" .Permalink "name" .Params.author) }}
+{{with .Next}}
+{{ $related_authors.Add "related_authors" ( dict "url" .Permalink "name" .Params.author) }}
+{{with .Next}}
+{{ $related_authors.Add "related_authors" ( dict "url" .Permalink "name" .Params.author) }}
+{{with .Next}}
+{{ $related_authors.Add "related_authors" ( dict "url" .Permalink "name" .Params.author) }}
+{{with .Next}}
+{{ $related_authors.Add "related_authors" ( dict "url" .Permalink "name" .Params.author) }}
+{{end}}
+{{end}}
+{{end}}
+{{end}}
+{{end}}
+{{with .Prev}}
+{{ $related_authors.Add "related_authors" ( dict "url" .Permalink "name" .Params.author) }}
+{{with .Prev}}
+{{ $related_authors.Add "related_authors" ( dict "url" .Permalink "name" .Params.author) }}
+{{with .Prev}}
+{{ $related_authors.Add "related_authors" ( dict "url" .Permalink "name" .Params.author) }}
+{{with .Prev}}
+{{ $related_authors.Add "related_authors" ( dict "url" .Permalink "name" .Params.author) }}
+{{with .Prev}}
+{{ $related_authors.Add "related_authors" ( dict "url" .Permalink "name" .Params.author) }}
+{{end}}
+{{end}}
+{{end}}
+{{end}}
+{{end}}
+
+
+{{ $result := first 5 (shuffle ($related_authors.Get "related_authors") ) }}
+
+<ul>
+
+{{- range  $result -}}
+    <li class="p-2">
+       <a class="title" href="{{- .url -}}">{{ .name }}</a>
+    </li>
+{{- end -}}
+
+</ul>
 {{ partialCached "ads/s_ad.html" . }}
 </div>
 </div>

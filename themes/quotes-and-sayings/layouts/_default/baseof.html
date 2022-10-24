@@ -1,7 +1,9 @@
 <!DOCTYPE html>
 <html dir="{{ .Site.Language.LanguageDirection }}" lang="{{ .Site.Language.Lang }}">
     {{- partial "head.html" . -}}
-    <body class="bg-slate-50">
+    <body class="bg-slate-50 flex flex-col min-h-screen relative pb-12">
+    
+
 <!-- Google tag (gtag.js) -->
 <script async src="https://www.googletagmanager.com/gtag/js?id=G-NWNGZYM300"></script>
 <script>
@@ -19,9 +21,9 @@ height="0" width="0" style="display:none;visibility:hidden"></iframe></noscript>
 
 
         {{- partial "header.html" . -}}
-        <div id="content">
+        <main id="content">
         {{- block "main" . }}{{- end }}
-        </div>
+        </main>
         {{- partial "footer.html" . -}}
         {{- block "scripts" . }}{{- end }}
         {{ partialCached "scripts.html" . }}

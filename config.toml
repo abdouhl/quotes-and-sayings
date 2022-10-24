@@ -2,7 +2,7 @@ baseURL = "https://quotesandsayings.net/"
 title = "Quotes and Sayings"
 theme = "quotes-and-sayings"
 enableRobotsTXT = true
-
+enableGitInfo = true
 
 [languages.en]
 languageName = "english"
@@ -11,3 +11,5 @@ languageDirection = "ltr"
 languageName = "عربية"
 languageDirection = "rtl"
 title = "أقوال و اقتباسات"
+
+
