@@ -6,3 +6,5 @@ other = "Famous Authors"
 other = "Search for Authors"
 [all_rights_reserved]
 other = "© 2022 Abderrahmane HELLAL. All rights reserved."
+[related_authors]
+other = "Related Authors"
