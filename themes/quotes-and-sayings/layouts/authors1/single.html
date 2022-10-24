@@ -67,7 +67,7 @@
 
 
 {{ $result := first 5 (shuffle ($related_authors.Get "related_authors") ) }}
-<h3>Related Authors{{ i18n "related_authors" }}</h3>
+<h3>{{ i18n "related_authors" }}</h3>
 <ul>
 
 {{- range  $result -}}
