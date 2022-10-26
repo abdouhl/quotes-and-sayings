@@ -9,7 +9,7 @@ var documents = [{{- range .Pages -}}
         {
   "name": "{{ .Params.author }}",
   "index": "{{ $num }}",
-  "link": "{{ .Params.externalLink | default .RelPermalink }}"
+  "link": "{{ path.Base ( path.Dir .Parent )}}"
 },
 {{ $num = (add $num 1) }}
       {{- end -}}
@@ -46,7 +46,7 @@ break;
 var bb_index = res[aa]['ref']
 console.log(bb_index,documents[bb_index]["name"],documents[bb_index]["link"])
 var bb_name = documents[bb_index]["name"];
-var bb_link = documents[bb_index]["link"]
+var bb_link = "/authors/"+documents[bb_index]["link"]+"/"+bb_name.replace(',','').replace('.','').replace("'",'').replace(";",'').replace(' ','-').toLowerCase()+"-quotes/"
 result = result + '<li>'+'<a class="title" href="'+bb_link+'">'+ bb_name+ '</a></li>'
 }
 $('#res').html(result)
