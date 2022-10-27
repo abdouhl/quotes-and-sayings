@@ -1,6 +1,4 @@
 <script>
-    
-    
 
 {{ $num := 0 }}
 var documents = [{{- range .Pages -}}
@@ -51,4 +49,6 @@ result = result + '<li>'+'<a class="title" href="'+bb_link+'">'+ bb_name+ '</a><
 }
 $('#res').html(result)
   });
+
+
 </script>

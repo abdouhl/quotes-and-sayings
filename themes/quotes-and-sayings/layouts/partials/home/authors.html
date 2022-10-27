@@ -30,7 +30,7 @@
       {{- end -}}
 
   <ul id='res'>
-      {{- range first 50 $res -}}
+      {{- range first 50 (shuffle $res) -}}
         <li class='py-1'>
   <a class="title" href="{{ .Params.externalLink | default .RelPermalink }}">{{ .Params.author }}</a>
   

@@ -28,7 +28,7 @@
   </ul>
 </div>
 </div>
-<div class="sticky top-2 bg-white border-2 rounded-md  p-4 mx-4 lg:mx-0 lg:mr-4 lg:basis-1/4 max-h-64">
+<div class="sticky top-2 bg-white border-2 rounded-md  p-4 mx-4 lg:mx-0 lg:mr-4 lg:basis-1/4 h-fit  pb-4">
 <div>
 
 {{ $related_authors := newScratch }}
@@ -67,18 +67,20 @@
 
 
 {{ $result := first 5 (shuffle ($related_authors.Get "related_authors") ) }}
-<h3>{{ i18n "related_authors" }}</h3>
+<h3 class="text-center font-bold text-2xl pb-2 text-slate-500">{{ i18n "related_authors" }}</h3>
 <ul>
 
 {{- range  $result -}}
-    <li class="p-2">
+    <li class="p-1">
        <a class="title" href="{{- .url -}}">{{ .name }}</a>
     </li>
 {{- end -}}
 
 </ul>
-{{ partialCached "ads/s_ad.html" . }}
+
+</div>
+
 </div>
 </div>
-</div>
+{{ partialCached "ads/h_ad.html" . }}
 {{ end }}
