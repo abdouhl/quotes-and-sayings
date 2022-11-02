@@ -14,16 +14,40 @@
         <h1 class="mb-2 text-2xl font-bold tracking-tight text-gray-900">{{- .Title -}}</h1>
     </div>
 </div>
-
-
+{{ $linkk := relURL .Permalink }}
+{{ $quote_slug := "" }}
 <div class="lg:flex lg:flex-row lg:gap-4 mt-8 full">
 <div class="mx-4 lg:basis-3/4">
 <div class="bg-white border-2 rounded-md  p-4 mb-4">
   <ul class="divide-y divide-dashed">
+  
+  
   {{- range .Params.quotes -}}
+  {{ if in $linkk "/ar/" }}
     <li class="p-2">
-       <a class="title" href="#">{{ . }}</a>
+       <p class="title" >{{ . }}</p>
     </li>
+  {{- else -}}
+  {{ if in $linkk "/1/" }}
+  {{ $quote_slug = replace . "," "" }}
+  {{ $quote_slug = replace $quote_slug "." "" }}
+  {{ $quote_slug = replace $quote_slug "," "" }}
+  {{ $quote_slug = replace $quote_slug "'" "" }}
+  {{ $quote_slug = replace $quote_slug ";" "" }}
+  {{ $quote_slug = replace $quote_slug "/" "" }}
+  {{ $quote_slug = replace $quote_slug "?" "" }}
+  {{ $quote_slug = replace $quote_slug " " "-" }}
+  {{ $quote_slug = lower $quote_slug}}
+  {{ $quote_slug = substr $quote_slug 0 256}}
+    <li class="p-2">
+       <a class="title" href="https://quotes.quotesandsayings.net{{ $linkk }}{{- $quote_slug -}}/">{{ . }}</a>
+    </li>
+  {{- else -}}
+    <li class="p-2">
+       <p class="title" >{{ . }}</p>
+    </li>
+  {{- end -}}
+  {{- end -}}
   {{- end -}}
   </ul>
 </div>
