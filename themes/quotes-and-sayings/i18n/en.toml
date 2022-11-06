@@ -8,3 +8,5 @@ other = "Search for Authors"
 other = "© 2022 Abderrahmane HELLAL. All rights reserved."
 [related_authors]
 other = "Related Authors"
+[all_authors]
+other = "All Authors"
