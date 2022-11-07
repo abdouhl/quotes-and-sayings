@@ -2,6 +2,8 @@
 other = "{{ .Params.author }},{{ .Params.author }} quotes,{{ .Params.author }} quote,{{ .Params.author }} sayings,{{ .Params.author }} saying,quotes, sayings,quote, saying, motivation"
 [famous_authors]
 other = "Famous Authors"
+[popular_quotes]
+other = "Popular Quotes"
 [search_for_authors]
 other = "Search for Authors"
 [all_rights_reserved]
@@ -10,3 +12,5 @@ other = "© 2022 Abderrahmane HELLAL. All rights reserved."
 other = "Related Authors"
 [all_authors]
 other = "All Authors"
+[more_quotes]
+other = "More Quotes"

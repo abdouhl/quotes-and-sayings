@@ -1,18 +1,24 @@
-{{ if eq .Language.LanguageName "english" }}
-
 {{ $res := slice }}
 {{ $dir_letter := substr .Site.Language.LanguageDirection 0 1 }}
 {{ $dir_word := "left" }}
+{{ $all_quotes_url := "https://quotes.quotesandsayings.net/" }}
 {{ if eq $dir_letter "r"  }}
 {{ $dir_word = "right" }}
+{{ $all_quotes_url = "https://ar.quotes.quotesandsayings.net/" }}
 {{ end }}
+
 <div class="bg-white mt-8 container mx-auto border-2 rounded-md grid place-items-center w-full">
 <div class="p-4">
 <div class="flex items-center justify-start w-full mb-6">
-<h3 class="font-bold text-2xl pb-2 text-slate-500">Popular Quotes</h3>
+<h3 class="font-bold text-2xl pb-2 text-slate-500">{{ i18n "popular_quotes" }}</h3>
 </div>
 <div class="mx-auto flex flex-wrap flex-col justify-center md:flex-row w-full">
-{{ $quotes := getJSON "https://quotes.quotesandsayings.net/authors/index.json" }}
+
+{{ $quotes := getJSON "https://ar.quotes.quotesandsayings.net/authors/index.json" }}
+{{ if eq .Language.LanguageName "english" }}
+{{ $quotes = getJSON "https://quotes.quotesandsayings.net/authors/index.json" }}
+{{ end }}
+
 
 {{ range $quotes }}
 
@@ -23,10 +29,17 @@
 </div>
 
 <div class="w-full inline-flex items-center bg-gradient-to-b from-white via-slate-300 to-slate-400 rounded-b-md">
-    <a href="https://quotes.quotesandsayings.net/" class="inline-flex items-center pt-6 px-3 text-sm font-medium text-center text-white mx-auto mb-2">
-            More Quotes
-            <svg aria-hidden="true" class="ml-2 -mr-1 w-4 h-4" fill="currentColor" viewBox="0 0 20 20" xmlns="http://www.w3.org/2000/svg"><path fill-rule="evenodd" d="M10.293 3.293a1 1 0 011.414 0l6 6a1 1 0 010 1.414l-6 6a1 1 0 01-1.414-1.414L14.586 11H3a1 1 0 110-2h11.586l-4.293-4.293a1 1 0 010-1.414z" clip-rule="evenodd"></path></svg>
+    <a href="{{ $all_quotes_url }}" class="inline-flex items-center pt-6 px-3 text-sm font-medium text-center text-white mx-auto mb-2">
+            {{ i18n "more_quotes" }}
+            {{ if eq $dir_letter "r"  }}
+            <svg xmlns="http://www.w3.org/2000/svg" width="25" height="25" fill="currentColor" class="bi bi-arrow-left-short" viewBox="0 0 16 16">
+  <path fill-rule="evenodd" d="M12 8a.5.5 0 0 1-.5.5H5.707l2.147 2.146a.5.5 0 0 1-.708.708l-3-3a.5.5 0 0 1 0-.708l3-3a.5.5 0 1 1 .708.708L5.707 7.5H11.5a.5.5 0 0 1 .5.5z"/>
+</svg>
+            {{ else }}
+            <svg xmlns="http://www.w3.org/2000/svg" width="25" height="25" fill="currentColor" class="bi bi-arrow-right-short" viewBox="0 0 16 16">
+  <path fill-rule="evenodd" d="M4 8a.5.5 0 0 1 .5-.5h5.793L8.146 5.354a.5.5 0 1 1 .708-.708l3 3a.5.5 0 0 1 0 .708l-3 3a.5.5 0 0 1-.708-.708L10.293 8.5H4.5A.5.5 0 0 1 4 8z"/>
+</svg>
+            {{ end }}
         </a>
     </div>
 </div>
-{{ end }}

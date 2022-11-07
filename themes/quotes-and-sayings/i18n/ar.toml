@@ -2,6 +2,8 @@
 other = "أقوال {{ .Params.author }}, حكم {{ .Params.author }}, مقولات {{ .Params.author }}, اقتباسات {{ .Params.author }}"
 [famous_authors]
 other = "مؤلفين مشهورين"
+[popular_quotes]
+other = "أقوال مأثورة"
 [search_for_authors]
 other = "البخث عن مؤلفين"
 [all_rights_reserved]
@@ -10,3 +12,5 @@ other = "© 2022 عبد الرحمان هلال . كل الحقوق محفوظة
 other = "مؤلفون أخرون"
 [all_authors]
 other = "جميع المؤلفين"
+[more_quotes]
+other = "المزيد من الأقوال"
